@@ -2,37 +2,32 @@
 title: Welcome
 ---
 
-This is the **Edition** template from [CloudCannon](http://cloudcannon.com/).
-**Edition** is perfect for documenting your product, application or service.
-It's populated with example content to give you some ideas.
+### Sermon Series:
+## Wisdom for Life 
 
-ChatApp is a fictional chat application for sending messages and media to others.
-Teams and friend groups would use ChatApp to stay up to date if it existed.
+---
+#### Thus says the Lord: There is no other god besides me, a righteous God and Saviour, turn to me and be saved, all the ends of the earth.
+##### Isaiah 45.21,22
 
-> [Sign up](http://example.com/signup) or learn more about ChatApp at [example.com](http://example.com/).
+---
 
-### Getting Started
+We are gathering in person!
+For people who can’t gather in person, we have these 3 options:
 
-Getting a message sent is quick and easy with ChatApp:
 
-1. Sign up for an account
-2. Add your friends from their email addresses
-3. Type a message or send a photo
+1. 9:30am and 4pm Zoom
+    - Zoom link [here](https://us02web.zoom.us/j/84926695073?pwd=d0lHUlowbXEvWDJZQm9mZTNaYlU2dz09)
+    - Meeting ID: 84926695073 
+    - Passcode: Hurstville 
+2. Telephone
+    - Call: 80156011
+    - Enter: 84926695073 (Meeting ID)
+    - Press: # (Participant ID) 
+    - Enter: 5781124425 (Passcode) 
+3. Watch Online [here](https://stgeorgeshurstville.org.au/sunday-english-online)
 
-> Feel free to send us a message at [feedback@example.com](mailto:feedback@example.com) with your feedback.
+---
 
-### Features
+If you are a guest, please fill in this [survey](https://tinyurl.com/SGHACsurvey) so that we know how you found it and if there’s anything we can help with.
 
-Explore more of ChatApp by reading about our features:
-
-#### Media
-
-Send images, videos and other media to people. Sources include your computer, phone and Facebook.
-
-#### Contact Syncing
-
-Sync your contact list with your phone and/or Facebook contacts. Never lose your contacts between devices again!
-
-#### Devices
-
-ChatApp is available everywhere. Find out how to set it up on your all your devices.
+Updates about how our church is responding to COVID can be found [here](https://stgeorgeshurstville.org.au/covid-update). If you have any technical questions, please contact: enquiry@stgeorgeshurstville.org.au

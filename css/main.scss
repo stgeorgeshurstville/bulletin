@@ -13,6 +13,12 @@ $content-background-color: #fff;
 $brand-colour: #3583d6;
 $brand-colour-light: mix($brand-colour, $content-background-color, 10%);
 
+$border-color: #3583d6;
+$link-color: #3583d6;
+
+$body-font-family: system-ui, -apple-system, blinkmacsystemfont, "Segoe UI",
+roboto, "Helvetica Neue", arial, sans-serif !default;
+
 $nav-header-background-color: $brand-colour;
 $nav-header-height: 60px;
 $nav-background-color: #f5f5f5;
@@ -27,6 +33,5 @@ $full-width-break: $nav-width + ($space * 4) + $content-max-width;
 @import "normalize";
 @import "pygments";
 @import "typography";
-@import "code";
 @import "tables";
 @import "layout";

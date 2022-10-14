@@ -53,18 +53,7 @@ body {
 			width: $nav-width;
 			background-color: $nav-background-color;
 		}
-
-	// 	#search-input,
-	// 	&::after {
-	// 		box-shadow: inset -10px 0 10px -10px rgba(0, 0, 0, 0.1);
-	// 	}
-
-	// 	&::before {
-	// 		left: $nav-width;
-	// 		right: 0;
-	// 		background-color: $content-background-color;
-	// 	}
-	// }
+	}
 }
 
 .main {
@@ -93,7 +82,7 @@ header {
 		margin: 0;
 	}
 
-	h1 {
+	h1.menu-header {
 		padding: $emblem-vertical-padding $emblem-horizontal-padding;
 		height: $nav-header-height;
 		box-sizing: border-box;
@@ -151,7 +140,7 @@ $nav-image: $baseurl + "/images/menu.svg";
 			display: none;
 		}
 
-		h1 {
+		h1.menu-header {
 			box-shadow: inset -10px 0 10px -10px rgba(0, 0, 0, 0.1);
 		}
 	}
@@ -162,11 +151,48 @@ $nav-image: $baseurl + "/images/menu.svg";
 	background-color: $content-background-color;
 	color: $content-color;
 
-	h3::before {
-		content: "";
-		@extend hr;
-		margin: 60px 0;
+}
+
+.content {
+	h2 {
+		font-size: 3rem;
+		margin-left: -1px;
+		font-weight: 600;
+		line-height: 1.2;
 	}
+
+	h3 {
+		font-size: 2rem;
+		margin-left: -1px;
+		font-weight: 500;
+		line-height: 2;
+		text-transform: uppercase;
+		letter-spacing: 0.15em;
+		color: #888;
+	}
+
+	h4,h5,h6 {
+		font-size: 1.5rem;
+		margin-left: -1px;
+		font-weight: 400;
+		letter-spacing: 0.1em;
+	}
+
+	h4 {
+		font-style: italic;
+		line-height: 1;
+	}
+
+	h5 {
+		text-align: right;
+		line-height: 2;
+	}
+
+	h6 {
+		text-transform: uppercase;
+		font-weight: 600;
+	}
+
 }
 
 .content,
@@ -177,31 +203,40 @@ $nav-image: $baseurl + "/images/menu.svg";
 }
 
 .page-header {
-	h2,
-	h3 {
+	h1.top-page-header,
+	h1.page-title {
 		margin: 0;
 		line-height: 1.2;
 		letter-spacing: -1px;
 	}
 
-	h2 {
+	h1.top-page-header {
 		font-size: 2rem;
 		margin-left: -1px;
 		color: #888;
-		letter-spacing: 0;
+		font-weight: 400;
+  		text-transform: uppercase;
+  		letter-spacing: 0.1em;
 	}
 
-	h3 {
+	h1.page-title {
 		font-size: 4rem;
 		margin-left: -4px;
+		font-weight: 300;
+	}
+
+	h1.page-title::after{
+		content: "";
+		@extend hr;
+		margin: 20px 0;
 	}
 
 	@media (min-width: $mobile-break) {
-		h2 {
-			font-size: 2.65rem;
+		h1.top-page-header {
+			font-size: 2.5rem;
 		}
 
-		h3 {
+		h1.page-title {
 			font-size: 5.4rem;
 		}
 	}
@@ -209,6 +244,7 @@ $nav-image: $baseurl + "/images/menu.svg";
 	@media (min-width: $full-width-break) {
 		margin-top: 55px;
 	}
+
 }
 
 nav,
@@ -225,41 +261,6 @@ nav > ul {
 
 	& + ul {
 		border-top: 1px solid rgba(0, 0, 0, 0.075);
-	}
-}
-
-.nav-item {
-	display: block;
-	font-family: "Open Sans", sans-serif;
-	line-height: 1;
-	margin: 0;
-
-	nav:not(.full-navigation) & > ul {
-		display: none;
-	}
-
-	nav:not(.full-navigation) &.current > ul {
-		display: block;
-	}
-
-	> a {
-		color: #666;
-		text-decoration: none;
-		font-size: 1.4rem;
-		padding: $space / 2 0 $space / 2 $space * 2;
-		display: block;
-	}
-
-	&.current > a,
-	> a:active,
-	> a:hover {
-		color: #111;
-	}
-
-	&.top-level > a {
-		line-height: 1.5;
-		font-weight: 600;
-		padding-left: $space;
 	}
 }
 
@@ -341,57 +342,38 @@ h4 svg {
 	padding-left: 5px;
 }
 
-// #search-results {
-// 	margin: 0;
-// 	padding: 0;
+.nav-item {
+	display: block;
+	font-family: "Open Sans", sans-serif;
+	line-height: 1;
+	margin: 0;
 
-// 	li {
-// 		list-style: none;
-// 		margin: 0;
-// 		padding: 0;
-
-// 		h4 {
-// 			font-size: 2rem;
-// 		}
-
-// 		p {
-// 			line-height: 1.5;
-// 		}
-// 	}
-// }
-
-
-// #search-input {
-// 	-webkit-appearance: none;
-// 	display: block;
-// 	margin: 0;
-// 	padding: 10px 20px 10px 15px;
-// 	width: 100%;
-// 	box-sizing: border-box;
-// 	border: 0;
-// 	border-bottom: 1px solid rgba(0, 0, 0, 0.075);
-// 	border-left: 5px solid transparent;
-// 	font-size: 1.5rem;
-// 	font-weight: 600;
-// 	line-height: 1.8;
-
-// 	&:focus {
-// 		outline: none;
-// 		border-left-color: $brand-colour;
-// 	}
-// }
-
-.changelog {
-	&,
-	> div {
-		margin: 0;
-		padding: 0;
-		list-style: none;
+	nav:not(.full-navigation) & > ul {
+		display: none;
 	}
 
-	.date {
-		color: #888;
-		font-style: italic;
+	nav:not(.full-navigation) &.current > ul {
+		display: block;
+	}
+
+	> a {
+		color: #666;
+		text-decoration: none;
+		font-size: 1.4rem;
+		padding: $space / 2 0 $space / 2 $space * 2;
+		display: block;
+	}
+
+	&.current > a,
+	> a:active,
+	> a:hover {
+		color: #111;
+	}
+
+	&.top-level > a {
+		line-height: 1.5;
+		font-weight: 600;
+		padding-left: $space;
 	}
 }
 
