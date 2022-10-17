@@ -37,7 +37,7 @@ to all the volunteers and stall holders. Every stall holder donated their taking
 - **COVID:** Please be covid safe. If you are experiencing symptoms of COVID-19 (including fever,
 cough, sore throat, shortness of breath, runny nose, loss of smell or taste, diarrhoea, nausea or
 vomiting, or unexplained chest pain, etc.), stay home, take a RAT and seek medical attention.
-- Services in different languages: Cantonese on Sat 3pm and Sun 9:30am, Mandarin Sun 11am
+- **Services in different languages**: Cantonese on Sat 3pm and Sun 9:30am, Mandarin Sun 11am
 and Nepalese Sun 5pm.
 - **English Classes:** Wed 10am-12pm during the school term.
 - **Youth Group:** Fri 5:30-7:30pm during the school term.
