@@ -15,7 +15,7 @@ to all the volunteers and stall holders. Every stall holder donated their taking
 
 ## From the Mission Team
 - **WhatsApp Group:** Please speak to a member of the mission subcommittee (Daisy, Kaelyn, Kai, Zoe and Rev. Alan) for updates, prayer points, know what’s needed and how to be involved.
-- **Local High School Scripture:** Sign up for prayer updates at https://www.hurstvillesre.com/become-a-supporter. You can partner financially by giving to the following account:
+- **Local High School Scripture:** Sign up for prayer updates [here](https://www.hurstvillesre.com/become-a-supporter). You can partner financially by giving to the following account:
 
 
   | Account Name | Christian Education Board for Hurstville High Schools |
@@ -28,9 +28,9 @@ to all the volunteers and stall holders. Every stall holder donated their taking
 - **New to St George’s (first Sunday of each month):** We’d love to meet you and introduce you to our church.
   - Please join us in the foyer of the church hall at 11am or
   - At the right transept of the church at 5:20pm
-- **Digging Deeper and Getting Connected:** The best way to do this is to be part of a small group (Discipleship Group). More information here: https://stgeorgeshurstville.org.au/discipleship-groups. You can also contact one of the pastoral staff: (brian.tung@stgeorgeshurstville.org.au or alan.lam@stgeorgeshurstville.org.au).
+- **Digging Deeper and Getting Connected:** The best way to do this is to be part of a small group (Discipleship Group). More information [here]( https://stgeorgeshurstville.org.au/discipleship-groups). You can also contact one of the pastoral staff: (brian.tung@stgeorgeshurstville.org.au or alan.lam@stgeorgeshurstville.org.au).
 - **More to Life:** Weekly on Sundays at 11am and fortnightly on Sun 1pm and Fri 8pm. Please speak to Rev. Lam (alan.lam@stgeorgeshurstville.org.au) for more information.
-- **Online Resources:** We are curating some resources on our website (https://stgeorgeshurstville.org.au/lets-talk-about-christianity).
+- **Online Resources:** We are curating some resources on our [website](https://stgeorgeshurstville.org.au/lets-talk-about-christianity).
 
 
 ## Ongoing Items
