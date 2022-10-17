@@ -8,7 +8,7 @@ google_analytics_key:
 show_full_navigation: true
 
 # Values for the jekyll-seo-tag gem (https://github.com/jekyll/jekyll-seo-tag)
-logo: images/churchIcon.png
+logo: /churchIcon.png
 description: Product documentation template for Jekyll.
 author:
   name:
