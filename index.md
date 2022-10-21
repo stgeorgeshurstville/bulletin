@@ -1,6 +1,7 @@
 ---
 title: Welcome
 ---
+
 ### Sermon Series:
 ## Wisdom for Life 
 ---
