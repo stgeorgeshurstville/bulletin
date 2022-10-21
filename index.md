@@ -25,3 +25,12 @@ For people who can’t gather in person, we have these 3 options:
 If you are a guest, please fill in this [survey](https://tinyurl.com/SGHACsurvey) so that we know how you found it and if there’s anything we can help with.
 
 Updates about how our church is responding to COVID can be found [here](https://stgeorgeshurstville.org.au/covid-update). If you have any technical questions, please contact: enquiry@stgeorgeshurstville.org.au
+
+---
+
+# Heading 1
+## Heading 2
+### Heading 3
+#### Heading 4
+##### Heading 5
+###### Heading 6
