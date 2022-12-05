@@ -3,6 +3,7 @@ input::-ms-reveal {
 	display: none !important;
 }
 
+// Menu Bar
 body {
 	height: auto;
 	overflow-x: hidden;
@@ -65,7 +66,7 @@ body {
 }
 
 header {
-	$emblem-size: 35px;
+	$emblem-size: 45px;
 	$emblem-vertical-padding: ($nav-header-height - $emblem-size) / 2;
 	$emblem-horizontal-padding: $space;
 
