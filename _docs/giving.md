@@ -3,8 +3,8 @@ title: Giving
 order: 4
 ---
 
-#### Command those who are rich in this present world not to be arrogant, not to put their hope in wealth, which is so uncertain, but to put their hope in God, who richly provides us with everything for our enjoyment.
-##### - 1 Timothy 6:17
+#### Through Jesus, therefore, let us continually offer to God a sacrifice of praise—the fruit of lips that openly profess his name. And do not forget to do good and to share with others, for with such sacrifices God is pleased. 
+##### - Hebrews 13:15-16 (NIV11)
 
 ---
 
