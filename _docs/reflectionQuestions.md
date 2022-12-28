@@ -4,9 +4,12 @@ order: 5
 ---
 
 ### Big Idea
-Get the full picture of the future and make wise decisions about the present and about your money.
+We were made for resting from the beginning and for eternity.
 
 ### Questions
-1. How would you live differently knowing that God has a plan for your future?
-2. How would you spend your money differently knowing that you will need to give an account for
-how you’ve used your money?
+1. Is there a logical sequence to creation?
+2. Why do you think God created reality?
+3. What aspects of God’s nature shown in creation do you appreciate the most?
+4. What part does the Son of God play in creation? (Colossians 1:15-16.)
+5. What benefits do you see for yourself and your spiritual development in taking seriously the need to “ rest in God” regularly?
+
