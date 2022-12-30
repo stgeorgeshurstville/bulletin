@@ -8,7 +8,7 @@ order: 1
 ### Prayer
 Almighty God, we thank you for the gift of your holy word. May it be a lantern to our feet, a light to our paths, and strength to our lives. Take us and use us to love and serve all people in the power of the Holy Spirit and in the name of your Son Jesus Christ our Lord. Amen.
 
-### Genesis 1:1-2:3 
+### Genesis 1:1-2:3 (NIRV)
 ¹ In the beginning, God created the heavens and the earth. ² The earth didn’t have any shape. And it was empty. There was darkness over the surface of the waves. At that time, the Spirit of God was hovering over the waters.
 
 ³ God said, “Let there be light.” And there was light. ⁴ God saw that the light was good. He separated the light from the darkness. ⁵ God called the light “day.” He called the darkness “night.” There was evening, and there was morning. It was day one.
@@ -37,7 +37,7 @@ He created them as male and female.
 
 ³¹ God saw everything he had made. And it was very good. There was evening, and there was morning. It was day six.
 
-¹ So the heavens and the earth and everything in them were completed.
+2 So the heavens and the earth and everything in them were completed.
 
 ² By the seventh day God had finished the work he had been doing. So on that day he rested from all his work. ³ God blessed the seventh day and made it holy. He blessed it because on that day he rested from all the work he had done.
 
