@@ -13,7 +13,7 @@ order: 3
 ## What’s Next?
 - **New?** We’d love to meet you and introduce you to our church. Please speak to one of the pastors for a time to chat. 
 - **Growing Together:** The best way to do this is to be part of a small group (Discipleship Group). More information [here]( https://stgeorgeshurstville.org.au/discipleship-groups). 
-- **More to Life:** Weekly on Sundays at 11am and fortnightly on Sun 1pm and Fri 8pm. Please speak to Rev. Lam (alan.lam@stgeorgeshurstville.org.au) for more information.
+- **More to Life:** Please speak to Rev. Lam (alan.lam@stgeorgeshurstville.org.au) for more information.
 - **Online Resources:** We are curating some resources on our [website](https://stgeorgeshurstville.org.au/lets-talk-about-christianity).
 
 
