@@ -8,7 +8,7 @@ Jesus brings in the real rest which sin destroyed
 
 ### Questions
 1. How would you define rest? 
-2. How do your rest? 
+2. How do you rest? 
 3. What challenges do you face at work or school? 
 4. What makes it bearable? 
 5. What job do you hope to do in the future? 
