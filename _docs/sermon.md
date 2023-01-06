@@ -6,49 +6,72 @@ order: 1
 ## Bible Reading
 
 ### Prayer
-Almighty God, we thank you for the gift of your holy word. May it be a lantern to our feet, a light to our paths, and strength to our lives. Take us and use us to love and serve all people in the power of the Holy Spirit and in the name of your Son Jesus Christ our Lord. Amen.
+We thank you heavenly Father, for inspiring all Scripture by the Holy Spirit. Help us by your Spirit so to hear your holy word that we may be equipped for every good work, through Jesus Christ our Lord.  Amen.
 
-### Genesis 1:1-2:3 (NIRV)
-¹ In the beginning, God created the heavens and the earth. ² The earth didn’t have any shape. And it was empty. There was darkness over the surface of the waves. At that time, the Spirit of God was hovering over the waters.
+### Genesis 3 (NIRV)
+The serpent was more clever than any of the wild animals the Lord God had made. The serpent said to the woman, “Did God really say, ‘You must not eat fruit from any tree in the garden’?”
 
-³ God said, “Let there be light.” And there was light. ⁴ God saw that the light was good. He separated the light from the darkness. ⁵ God called the light “day.” He called the darkness “night.” There was evening, and there was morning. It was day one.
+² The woman said to the serpent, “We may eat fruit from the trees in the garden. ³ But God did say, ‘You must not eat the fruit from the tree in the middle of the garden. Do not even touch it. If you do, you will die.’ ”
 
-⁶ God said, “Let there be a huge space between the waters. Let it separate water from water.” ⁷ And that’s exactly what happened. God made the huge space between the waters. He separated the water under the space from the water above it. ⁸ God called the huge space “sky.” There was evening, and there was morning. It was day two.
+⁴ “You will certainly not die,” the serpent said to the woman. ⁵ “God knows that when you eat fruit from that tree, you will know things you have never known before. Like God, you will be able to tell the difference between good and evil.”
 
-⁹ God said, “Let the water under the sky be gathered into one place. Let dry ground appear.” And that’s exactly what happened. ¹⁰ God called the dry ground “land.” He called all the water that was gathered together “seas.” And God saw that it was good.
+⁶ The woman saw that the tree’s fruit was good to eat and pleasing to look at. She also saw that it would make a person wise. So she took some of the fruit and ate it. She also gave some to her husband, who was with her. And he ate it. ⁷ Then both of them knew things they had never known before. They realized they were naked. So they sewed together fig leaves and made clothes for themselves.
 
-¹¹ Then God said, “Let the land produce plants. Let them produce their own seeds. And let there be trees on the land that grow fruit with seeds in it. Let each kind of plant or tree have its own kind of seeds.” And that’s exactly what happened. ¹² So the land produced plants. Each kind of plant had its own kind of seeds. And the land produced trees that grew fruit with seeds in it. Each kind of tree had its own kind of seeds. God saw that it was good. ¹³ There was evening, and there was morning. It was day three.
+⁸ Then the man and his wife heard the Lord God walking in the garden. It was during the coolest time of the day. They hid from the Lord God among the trees of the garden. ⁹ But the Lord God called out to the man. “Where are you?” he asked.
 
-¹⁴ God said, “Let there be lights in the huge space of the sky. Let them separate the day from the night. Let the lights set the times for the holy celebrations and the days and the years. ¹⁵ Let them be lights in the huge space of the sky to give light on the earth.” And that’s exactly what happened. ¹⁶ God made two great lights. He made the larger light to rule over the day and the smaller light to rule over the night. He also made the stars. ¹⁷ God put the lights in the huge space of the sky to give light on the earth. ¹⁸ He put them there to rule over the day and the night. He put them there to separate light from darkness. God saw that it was good. ¹⁹ There was evening, and there was morning. It was day four.
+¹⁰ “I heard you in the garden,” the man answered. “I was afraid, because I was naked. So I hid.”
 
-²⁰ God said, “Let the seas be filled with living things. Let birds fly above the earth across the huge space of the sky.” ²¹ So God created the great sea creatures. He created every kind of living thing that fills the seas and moves about in them. He created every kind of bird that flies. And God saw that it was good. ²² God blessed them. He said, “Have little ones so that there will be many of you. Fill the water in the seas. Let there be more and more birds on the earth.” ²³ There was evening, and there was morning. It was day five.
+¹¹ The Lord God said, “Who told you that you were naked? Have you eaten fruit from the tree I commanded you not to eat from?”
 
-²⁴ God said, “Let the land produce every kind of living creature. Let there be livestock, and creatures that move along the ground, and wild animals.” And that’s exactly what happened. ²⁵ God made every kind of wild animal. He made every kind of livestock. He made every kind of creature that moves along the ground. And God saw that it was good.
+¹² The man said, “It’s the fault of the woman you put here with me. She gave me some fruit from the tree. And I ate it.”
 
-²⁶ Then God said, “Let us make human beings so that they are like us. Let them rule over the fish in the seas and the birds in the sky. Let them rule over the livestock and all the wild animals. And let them rule over all the creatures that move along the ground.”
+¹³ Then the Lord God said to the woman, “What have you done?”
 
-²⁷ So God created human beings in his own likeness.
-He created them to be like himself.
-He created them as male and female.
+The woman said, “The serpent tricked me. That’s why I ate the fruit.”
 
-²⁸ God blessed them. He said to them, “Have children so that there will be many of you. Fill the earth and bring it under your control. Rule over the fish in the seas and the birds in the sky. Rule over every living creature that moves along the ground.”
+¹⁴ So the Lord God spoke to the serpent. He said, “Because you have done this,
 
-²⁹ Then God said, “I am giving you every plant on the face of the whole earth that produces its own seeds. I am giving you every tree that has fruit with seeds in it. All of them will be given to you for food. ³⁰ I am giving every green plant as food for all the land animals and for all the birds in the sky. I am also giving the plants to all the creatures that move along the ground. I am giving them to every living thing that breathes.” And that’s exactly what happened.
+“You are set apart from all livestock
+and all wild animals.
+I am putting a curse on you.
+You will crawl on your belly.
+You will eat dust
+all the days of your life.
+¹⁵ I will make you and the woman hate each other.
+Your children and her children will be enemies.
+Her son will crush your head.
+And you will bite his heel.”
 
-³¹ God saw everything he had made. And it was very good. There was evening, and there was morning. It was day six.
+¹⁶ The Lord God said to the woman,
 
-2 So the heavens and the earth and everything in them were completed.
+“I will increase your pain when you give birth.
+You will be in great pain when you have children.
+You will long for your husband.
+And he will rule over you.”
 
-² By the seventh day God had finished the work he had been doing. So on that day he rested from all his work. ³ God blessed the seventh day and made it holy. He blessed it because on that day he rested from all the work he had done.
+¹⁷ The Lord God said to Adam, “You listened to your wife’s suggestion. You ate fruit from the tree I warned you about. I said, ‘You must not eat its fruit.’
+
+“So I am putting a curse on the ground because of what you did.
+All the days of your life you will have to work hard.
+It will be painful for you to get food from the ground. ¹⁸ You will eat plants from the field,
+even though the ground produces thorns and prickly weeds.
+¹⁹ You will have to work hard and sweat a lot
+to produce the food you eat.
+You were made out of the ground.
+You will return to it when you die.
+You are dust,
+and you will return to dust.”
+
+²⁰ Adam named his wife Eve. She would become the mother of every living person.
+
+²¹ The Lord God made clothes out of animal skins for Adam and his wife to wear. ²² The Lord God said, “Just like one of us, the man can now tell the difference between good and evil. He must not be allowed to reach out and pick fruit from the tree of life and eat it. If he does, he will live forever.” ²³ So the Lord God drove the man out of the Garden of Eden. He sent the man to farm the ground he had been made from. ²⁴ The Lord God drove him out and then placed angels on the east side of the garden. He also placed there a flaming sword that flashed back and forth. The angels and the sword guarded the way to the tree of life.
 
 ## Sermon Outline
 
-### Rest Created
-1. Introduction: We know we need to rest but why?
-2. Part one: What the creation looked like and what it led to. 
-3. Part two: What the creation tells us about God and humanity. 
-4. Part three: How do we respond to the idea of rest now in January 2023?
-
+### Rest Ruined
+1. Sin Destroyed Rest
+2. Sin Destroys Rest
+3. The Solution to Sin 
 
 ## Q&A
 Got questions or comments? Send them [here](https://tinyurl.com/SGHACQuestionsAnswers)
