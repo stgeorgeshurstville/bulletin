@@ -6,7 +6,7 @@ title: Welcome
 ## Know Your Bible - Rest
 ---
 #### All the earth worships you, O Lord most high; sings praises to you, and worships your holy Name
-##### Matthew Psalm 66:4
+##### Psalm 66:4
 ---
 We are gathering in person!
 For people who can’t gather in person, we have these 3 options:
