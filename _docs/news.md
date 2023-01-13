@@ -4,9 +4,8 @@ order: 3
 ---
 
 ## General
-- **Children Summer Program:** All-Generation service on 25 Dec 2022, 1 and 8 January 2023. Special summer program on 15, 22 & 29 January 2023. We’re looking for spiritual moms, dads, aunties, uncles, older brothers and sisters who can help with the summer program. Please contact Carol, Catherine or Jun. 
-- **Pledge:** We are pleased to report that a DA for the temporary building will likely be lodged before the end of 2022. We have received a revised estimate of the building and it is more than what was given to us. We are working on cutting some of the costs. Thank you to everyone who had donated or pledged. So far, we have received over **$42,000** in donations and pledges. We are seeking to raise **$220,000.** Please bring in your pledge forms or donations.  
-- **Staff on leave:** Carol on leave until 15 January 2023. Brian on leave from 26 Dec until 29 January 2023. 
+- **Children Summer Program:**Special summer program on 15, 22 & 29 January 2023. Please sign in your children (9:30am - church hall foyer; 11am - church chapel) and pick them up from the ministry centre after service. 
+- **Staff on leave:** Carol on leave until 15 January 2023. Brian on leave from 26 Dec until 29 January 2023.   
 - **COVID and mask:** Please adopt covid safe practices and behaviour (including wearing of masks while indoors) for the sake of those around you and yourself. Thank you. 
 
 
@@ -19,7 +18,8 @@ order: 3
 
 ## Ongoing Items
 - **COVID:** Please be covid safe. If you are experiencing symptoms of COVID-19 (including fever, cough, sore throat, shortness of breath, runny nose, loss of smell or taste, diarrhoea, nausea or vomiting, or unexplained chest pain, etc.), stay home, take a RAT and seek medical attention.
-- **Services in different languages**: Cantonese on Sat 3pm and Sun 9:30am, Mandarin Sun 11am and Nepalese Sun 5pm.
+- **Services in different languages:** Cantonese on Sat 3pm and Sun 9:30am, Mandarin Sun 11am and Nepalese Sun 5pm.
+- **Discipleship Groups:** This will start on the week of Mon 6th of February. More information about times and how to register 1 or 2 weeks before this. 
 - **English Classes (Empowering Everyone with English in Jesus’ Name):** Wed 10am-12pm during the school term. Starting again on Wed 8th of Feb 2023. 
 - **Youth Group:** Fri 5:30-7:30pm during the school term. Starting up again on Fri 3rd of Feb 2023.
 - **Morning Tea:** Served after the 9:30am Service. We’d love for you to join us. We’ll be serving coffee. 
