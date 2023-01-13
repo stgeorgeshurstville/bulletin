@@ -18,9 +18,9 @@ Almighty God, we thank you for the gift of your holy word. May it be a lantern t
 ¹⁵ Remember that you were slaves in Egypt and that the Lord your God brought you out of there with a mighty hand and an outstretched arm. Therefore the Lord your God has commanded you to observe the Sabbath day.
 
 ## Sermon Outline
-Rest promised
+### Rest promised
 
-### Rest and the sabbath
+Introduction. Rest and the sabbath
 1. What were the benefits of the sabbath?
 2. How was the sabbath linked to the promised land?
 3. Was this promise realised by those who entered the promised land?
