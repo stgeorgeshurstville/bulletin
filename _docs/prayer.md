@@ -7,6 +7,7 @@ order: 2
 
 - **Lord’s Prayer:** Our Father in heaven, hallowed be your name, your kingdom come, your will be done on earth as in heaven. Give us today our daily bread. Forgive us our sins as we forgive those who sin against us. Lead us not into temptation, but deliver us from evil. For the kingdom, the power, and the glory are yours now and forever.
 - **Collect:** Almighty and everlasting God, ruler of all things in heaven and earth, mercifully hear the supplications of your people, and grant us your peace all the days of our life; through Jesus Christ our Lord. Amen. 
+- **Church Sermon** Heavenly Father, thank you for your wonderful grace shown to us in the salvation rest granted to us by the death and resurrection of our Lord Jesus Christ. As those who are truly your children enable us by your indwelling Holy Spirit to live lives worthy of the Gospel loving both you and our neighbours in obedience to your will. To your glory, amen. 
 
 ## Weekly Prayer Points
 
