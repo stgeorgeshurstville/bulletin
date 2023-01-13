@@ -4,8 +4,9 @@ order: 3
 ---
 
 ## General
-- **Children Summer Program:**Special summer program on 15, 22 & 29 January 2023. Please sign in your children (9:30am - church hall foyer; 11am - church chapel) and pick them up from the ministry centre after service. 
-- **Staff on leave:** Carol on leave until 15 January 2023. Brian on leave from 26 Dec until 29 January 2023.   
+- **Children Summer Program:** Special summer program on 15, 22 & 29 January 2023. Please sign in your children (9:30am - church hall foyer; 11am - church chapel) and pick them up from the ministry centre after service. 
+- **Memory Verse:** We are learning Matthew 11:28-30 as a memory verse together as a church family. Here’s a [song](https://m.youtube.com/watch?v=c9-pP97ZKr4) to help you learn it at home. 
+- **Staff on leave:** Carol on leave until 15 January 2023. Brian on leave from 26 Dec until 29 January 2023.
 - **COVID and mask:** Please adopt covid safe practices and behaviour (including wearing of masks while indoors) for the sake of those around you and yourself. Thank you. 
 
 
