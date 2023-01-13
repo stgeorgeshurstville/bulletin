@@ -20,10 +20,10 @@ Almighty God, we thank you for the gift of your holy word. May it be a lantern t
 ## Sermon Outline
 ### Rest promised
 
-Introduction. Rest and the sabbath
-1. What were the benefits of the sabbath?
-2. How was the sabbath linked to the promised land?
-3. Was this promise realised by those who entered the promised land?
+1. Introduction. Rest and the sabbath
+2. What were the benefits of the sabbath?
+3. How was the sabbath linked to the promised land?
+4. Was this promise realised by those who entered the promised land?
 
 ## Q&A
 Got questions or comments? Send them [here](https://tinyurl.com/SGHACQuestionsAnswers)
