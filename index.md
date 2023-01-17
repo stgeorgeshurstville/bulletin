@@ -5,8 +5,8 @@ title: Welcome
 ### Sermon Series:
 ## Know Your Bible - Rest
 ---
-#### All the earth worships you, O Lord most high; sings praises to you, and worships your holy Name
-##### Psalm 66:4
+#### O sing to the Lord a new song; sing to the Lord, all the earth. Honour and majesty are before him; strength and beauty are in his sanctuary.
+##### Psalm 96:1,6
 ---
 We are gathering in person!
 For people who can’t gather in person, we have these 3 options:
