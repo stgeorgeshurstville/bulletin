@@ -10,10 +10,10 @@ order: 3
 - **COVID and mask:** Please adopt covid safe practices and behaviour (including wearing of masks while indoors) for the sake of those around you and yourself. Thank you. 
 - **AGM:** 5th March.
 - **Local High School Scripture:** You can sign up for prayer updates at https://www.hurstvillesre.com/become-a-supporter. You can partner financially by giving to the following account: 
--Account Name: Christian Education Board for Hurstville High Schools 
--BSB: 124001 
--Account Number: 22801395 
--Description: Your Name 
+- Account Name: Christian Education Board for Hurstville High Schools 
+- BSB: 124001 
+- Account Number: 22801395 
+- Description: Your Name 
 
 
 ## What’s Next?
