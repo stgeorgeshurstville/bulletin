@@ -42,12 +42,9 @@ Lord make your word our rule, your Spirit our teacher, and your glory our suprem
 ⁸ For the Son of Man is Lord of the Sabbath.”
 
 ## Sermon Outline
-### Rest Given
+### Rest 
 
-1. Introduction. Rest and the sabbath
-2. What were the benefits of the sabbath?
-3. How was the sabbath linked to the promised land?
-4. Was this promise realised by those who entered the promised land?
+
 
 ## Q&A
 Got questions or comments? Send them [here](https://tinyurl.com/SGHACQuestionsAnswers)
