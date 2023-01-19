@@ -9,8 +9,7 @@ order: 1
 Lord make your word our rule, your Spirit our teacher, and your glory our supreme concern, for the sake of our Saviour, the Lord Jesus Christ. Amen.
 
 ### Matt 11:25-12:8 (NIV11)
-## The Father Revealed in the Son ##
-
+**The Father Revealed in the Son**
 ²⁵ At that time Jesus said, “I praise you, Father, Lord of heaven and earth, because you have hidden these things from the wise and learned, and revealed them to little children. 
 
 ²⁶ Yes, Father, for this is what you were pleased to do.
@@ -23,7 +22,7 @@ Lord make your word our rule, your Spirit our teacher, and your glory our suprem
 
 ³⁰ For my yoke is easy and my burden is light.”
 
-## Jesus Is Lord of the Sabbath ##
+**Jesus Is Lord of the Sabbath**
 
 ¹ At that time Jesus went through the grainfields on the Sabbath. His disciples were hungry and began to pick some heads of grain and eat them.
 
