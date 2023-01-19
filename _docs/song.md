@@ -6,6 +6,7 @@ order: 2
 1. song 1
 2. song 2
 3. song 3
+4. All Glory be to Christ
 
 ## 4pm
 1. When I Survey
