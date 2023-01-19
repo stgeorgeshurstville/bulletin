@@ -1,6 +1,6 @@
 ---
 title: Giving 
-order: 4
+order: 5
 ---
 
 #### Through Jesus, therefore, let us continually offer to God a sacrifice of praise—the fruit of lips that openly profess his name. And do not forget to do good and to share with others, for with such sacrifices God is pleased. 
