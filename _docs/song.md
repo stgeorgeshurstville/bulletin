@@ -3,10 +3,10 @@ title: Song
 order: 2
 ---
 ## 9:30am
-1. song 1
-2. song 2
-3. song 3
-4. All Glory be to Christ
+1. Jesus Strong and Kind
+2. In Christ Alone
+3. Trust and Obey
+4. Yet Not I
 
 ## 4pm
 1. When I Survey
