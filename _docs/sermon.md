@@ -41,7 +41,17 @@ Lord make your word our rule, your Spirit our teacher, and your glory our suprem
 ⁸ For the Son of Man is Lord of the Sabbath.”
 
 ## Sermon Outline
-### Rest 
+### What is Rest? 
+Rest is about knowing (and being known by) Jesus (11:25-28)
+- Come to Jesus for rest
+- Rest is about knowing that Jesus is God
+
+Rest is about following Jesus (v29-30)
+- v29
+- Yoke
+- Learn from Jesus
+- Yoke is easy 
+- True rest
 
 
 
