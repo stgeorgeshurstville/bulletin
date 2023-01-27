@@ -24,10 +24,10 @@ Thank you Father for making yourself known to us, showing us the way of salvatio
 
 ## Sermon Outline
 ### Rest experienced 
-Introduction: Is Revelation 21:1-5 the best passage for this sermon?
-Part one: Revisiting the benefits of rest.
-Part two: The heart of rest.
-Part three: A second time of rest?
+- Introduction: Is Revelation 21:1-5 the best passage for this sermon?
+- Part one: Revisiting the benefits of rest.
+- Part two: The heart of rest.
+- Part three: A second time of rest?
 
 
 
