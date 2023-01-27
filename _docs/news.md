@@ -9,7 +9,7 @@ order: 4
 - **Staff on leave:** Brian will be on leave from 26 Dec until 29 January 2023. 
 - **COVID and mask:** Please adopt covid safe practices and behaviour (including wearing of masks while indoors) for the sake of those around you and yourself. Thank you. 
 - **AGM:** 5th March.
-- **Local High School Scripture:** You can sign up for prayer updates at https://www.hurstvillesre.com/become-a-supporter. You can partner financially by giving to the following account: 
+- **Local High School Scripture:** You can sign up for prayer updates [here](https://www.hurstvillesre.com/become-a-supporter). You can partner financially by giving to the following account: 
 1. Account Name: Christian Education Board for Hurstville High Schools 
 2. BSB: 124001 
 3. Account Number: 22801395 
