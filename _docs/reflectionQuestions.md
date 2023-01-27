@@ -4,16 +4,14 @@ order: 6
 ---
 
 ### Big Idea
-True rest is about knowing and following Jesus. 
+Final rest is actually being with God.
 
 ### Questions
 
-- What’s your ideal day of rest? 
-- What does it mean to come to Jesus? 
-- How are we weary and burdened (v28)?
-- What does it mean to take Jesus’ yoke?  
-- If we aren’t yoked with Jesus then what are we yoked with (see also Galatians 5:1)? 
-- What does it mean to rest? 
-- How should we think about burnout, leisure activities and tiredness? 
-- What does truly resting in Jesus look like for you? 
+1. Read Revelation 21:1-5 and explain what stands out to you as blessing.
+2. Why do you think we often (sometimes) find personal Bible study challenging to be consistent with? What is the answer to this?
+3. Psalm 23 speaks about resting securely in the care of the Lord. What verse do you think is the climax of the Psalm and why?
+4. Revelation 14:13 speaks of “ rest from their labours” so what do you think are some of these “labours”?
+5. If being with Jesus is the best thing about Heaven, why might non believers be interested in going there?
+
 
