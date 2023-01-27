@@ -6,52 +6,28 @@ order: 1
 ## Bible Reading
 
 ### Prayer
-Lord make your word our rule, your Spirit our teacher, and your glory our supreme concern, for the sake of our Saviour, the Lord Jesus Christ. Amen.
+Thank you Father for making yourself known to us, showing us the way of salvation through faith in your Son. We ask you now to teach us through your word, so that we may be ready to serve you, for the glory of our Lord Jesus Christ. Amen. 
 
-### Matt 11:25-12:8 (NIV11)
-**The Father Revealed in the Son**
-²⁵ At that time Jesus said, “I praise you, Father, Lord of heaven and earth, because you have hidden these things from the wise and learned, and revealed them to little children. 
+### Revelation 21:1-5 (NIV11)
 
-²⁶ Yes, Father, for this is what you were pleased to do.
+**A New Heaven and a New Earth**
+¹ Then I saw “a new heaven and a new earth,” for the first heaven and the first earth had passed away, and there was no longer any sea. 
 
-²⁷ “All things have been committed to me by my Father. No one knows the Son except the Father, and no one knows the Father except the Son and those to whom the Son chooses to reveal him.
+² I saw the Holy City, the new Jerusalem, coming down out of heaven from God, prepared as a bride beautifully dressed for her husband. 
 
-²⁸ “Come to me, all you who are weary and burdened, and I will give you rest. 
+³ And I heard a loud voice from the throne saying, “Look! God’s dwelling place is now among the people, and he will dwell with them. They will be his people, and God himself will be with them and be their God. 
 
-²⁹ Take my yoke upon you and learn from me, for I am gentle and humble in heart, and you will find rest for your souls. 
+⁴ ‘He will wipe every tear from their eyes. There will be no more death’ or mourning or crying or pain, for the old order of things has passed away.”
 
-³⁰ For my yoke is easy and my burden is light.”
-
-**Jesus Is Lord of the Sabbath**
-
-¹ At that time Jesus went through the grainfields on the Sabbath. His disciples were hungry and began to pick some heads of grain and eat them.
-
-² When the Pharisees saw this, they said to him, “Look! Your disciples are doing what is unlawful on the Sabbath.”
-
-³ He answered, “Haven’t you read what David did when he and his companions were hungry?
-
-⁴ He entered the house of God, and he and his companions ate the consecrated bread—which was not lawful for them to do, but only for the priests. 
-
-⁵ Or haven’t you read in the Law that the priests on Sabbath duty in the temple desecrate the Sabbath and yet are innocent?
-
-⁶ I tell you that something greater than the temple is here. 
-
-⁷ If you had known what these words mean, ‘I desire mercy, not sacrifice,’ you would not have condemned the innocent.
-
-⁸ For the Son of Man is Lord of the Sabbath.”
+⁵ He who was seated on the throne said, “I am making everything new!” Then he said, “Write this down, for these words are trustworthy and true.”
 
 ## Sermon Outline
-### What is Rest? 
-Rest is about knowing (and being known by) Jesus (11:25-28)
-- Come to Jesus for rest
-- Rest is about knowing that Jesus is God
+### Rest experienced 
+Introduction: Is Revelation 21:1-5 the best passage for this sermon?
+Part one: Revisiting the benefits of rest.
+Part two: The heart of rest.
+Part three: A second time of rest?
 
-Rest is about following Jesus (v29-30)
-- v29
-- Yoke
-- Learn from Jesus
-- Yoke is easy 
-- True rest
 
 
 
