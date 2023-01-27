@@ -5,8 +5,8 @@ title: Welcome
 ### Sermon Series:
 ## Know Your Bible - Rest
 ---
-#### O sing to the Lord a new song; sing to the Lord, all the earth. Honour and majesty are before him; strength and beauty are in his sanctuary.
-##### Psalm 96:1-6
+#### We have thought on your steadfast love, O Lord, in the midst of your temple. As your name, O God, so your praise reaches to the ends of the earth. 
+##### Psalm 48.9-10
 ---
 We are gathering in person!
 For people who can’t gather in person, we have these 3 options:
