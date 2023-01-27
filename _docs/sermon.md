@@ -11,6 +11,7 @@ Thank you Father for making yourself known to us, showing us the way of salvatio
 ### Revelation 21:1-5 (NIV11)
 
 **A New Heaven and a New Earth**
+
 ¹ Then I saw “a new heaven and a new earth,” for the first heaven and the first earth had passed away, and there was no longer any sea. 
 
 ² I saw the Holy City, the new Jerusalem, coming down out of heaven from God, prepared as a bride beautifully dressed for her husband. 
