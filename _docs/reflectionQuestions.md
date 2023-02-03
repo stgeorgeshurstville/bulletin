@@ -3,10 +3,10 @@ title: Reflection Questions
 order: 6
 ---
 
-##Big Idea##
+## Big Idea ##
 Discipleship is following the narrow road of giving. Christians give because our God is a giving God. The narrow road of discipleship is a life of grace and faith 
 
-##Questions##
+## Questions ##
 1. ‘Jesus is the Christ. So what?’ How would you answer this question?  
 
 2. Mark 8 is a turning point in the Gospel of Mark. Jesus has been speaking in parables, now he is speaking plainly. What is the direct and clear teaching about who he is? 
