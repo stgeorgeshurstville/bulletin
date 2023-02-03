@@ -60,6 +60,7 @@ Thank you Father for making yourself known to us, showing us the way of salvatio
 
 
 ## Sermon Outline
+### First passion prediction
 - So what that Jesus is the Christ
 
 - As the heavens are higher than the earth 
