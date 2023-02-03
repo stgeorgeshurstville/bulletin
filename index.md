@@ -3,10 +3,10 @@ title: Welcome
 ---
 
 ### Sermon Series:
-## Know Your Bible - Rest
+## Following Jesus - First passion prediction
 ---
-#### We have thought on your steadfast love, O Lord, in the midst of your temple. As your name, O God, so your praise reaches to the ends of the earth. 
-##### Psalm 48.9-10
+#### O come, let us worship and bow down, let us kneel before the Lord, our Maker. For he is our God, and we are the peopel of his pasture, and the sheep of his hand. 
+##### Psalm 95.6-7
 ---
 We are gathering in person!
 For people who can’t gather in person, we have these 3 options:
