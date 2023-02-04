@@ -11,7 +11,7 @@ order: 4
   - **NewGen:** Term 1 will start on Sunday 5th February 2023. Parents will need to re-enrol children for participation, please bear with us in patience in Week 1! New preschool aged children joining should speak first with their creche coordinator. 
   - **Youth Group:** Fri 5:30-7:30pm during the school term. Starting up again on Fri 3rd of Feb 2023. 
   - **English Classes (Empowering Everyone with English in Jesus’ Name):** Wed 10am-12pm during the school term. Starting again on Wed 8th of Feb 2023. 
-**COVID and Mask:** Please adopt COVID safe practices and behaviour (including wearing of masks while indoors) for the sake of those around you and yourself. Thank you. 
+- **COVID and Mask:** Please adopt COVID safe practices and behaviour (including wearing of masks while indoors) for the sake of those around you and yourself. Thank you. 
 - **AGM:** Our annual general meeting will be held on March 5th, 2022 at 2pm in the chapel. We are taking nominations for church wardens, parish councillors, and Synod representatives. Please speak with your congregation pastor for more information.
 - **Anglican Church News:** The latest edition of the Southern Cross is now available. You can get in touch with what's happening in the wider Anglican Church community and read about Berkeley Life Centre (one of our mission partners) and see a photo of Rev. Lam [here](https://sydneyanglicans.net/about/southerncross)
 - **Anglican Aid:** This is Sydney Anglican’s support agency for overseas aid, development and ministry. They seek to see God’s grace overflow to a world in need. You can access their prayer diary [here](https://anglicanaid.org.au/wp-content/uploads/2022/12/Anglican-Aid-2023-Prayer-Diary.pdf)
