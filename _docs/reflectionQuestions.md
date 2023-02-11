@@ -10,11 +10,11 @@ God’s kingdom is about others.
 ### Questions 
 1.   How are you seeking to be more Christ centred? 
 2.   How would you summarise what these sections are about?
-a.   Mark 1-8 
-b.   Mark 8-16 
-c.   Mark 8:22-10:52
-  i.     8:22-9:29
- ii.     9:30-10:31
+  a.   Mark 1-8 
+  b.   Mark 8-16 
+  c.   Mark 8:22-10:52
+    i.     8:22-9:29
+    ii.     9:30-10:31
 3.   If Mark 9:30-10:31 is about God’s kingdom being about others, what do you think Jesus trying to say in these passages? 
 a.   9:33-37
 b.   9:38-41  
