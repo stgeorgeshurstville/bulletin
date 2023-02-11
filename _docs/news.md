@@ -4,10 +4,10 @@ order: 4
 ---
 
 ## General
-- **Discipleship Groups**: Our Discipleship Groups are a great way for us to spur one another on to be Christ centred. You can find more information and register here: https://stgeorgeshurstville.org.au/discipleship-groups 
+- **Discipleship Groups**: Our Discipleship Groups are a great way for us to spur one another on to be Christ centred. You can find more information and register [here](https://stgeorgeshurstville.org.au/discipleship-groups)
 - **More to Life:** Please speak to Rev. Lam (alan.lam@stgeorgeshurstville.org.au) for more information. We’ll start up a group in a week or two after the 4pm Service. 
-- **AGM:** Our annual general meeting will be held on March 5th, 2022 at 2pm in the Chapel. We are taking nominations for church wardens, parish councillors, and Synod representatives. Please speak with your congregation pastor for more information.https://stgeorgeshurstville.org.au/agm
-- **Earthquakes in Turkey and Syria:** More than 22,000 have died and many more injured and affected (WHO estimates 23 million). On your behalf, our church will donate $4000 towards the relief efforts through ARDFA. They will be working with Christian churches to provide emergency relief. You can also make a tax-deductible donation through their website: https://ardfa.org.au/turkey-earthquakes. Please keep praying for the area. 
+- **AGM:** Our annual general meeting will be held on March 5th, 2022 at 2pm in the Chapel. We are taking nominations for church wardens, parish councillors, and Synod representatives. Please speak with your congregation pastor for more [information](https://stgeorgeshurstville.org.au/agm)
+- **Earthquakes in Turkey and Syria:** More than 22,000 have died and many more injured and affected (WHO estimates 23 million). On your behalf, our church will donate $4000 towards the relief efforts through ARDFA. They will be working with Christian churches to provide emergency relief. You can also make a tax-deductible donation through their [website](https://ardfa.org.au/turkey-earthquakes). Please keep praying for the area. 
 
 
 ## What’s Next?
