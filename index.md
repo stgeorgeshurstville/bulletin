@@ -3,10 +3,10 @@ title: Welcome
 ---
 
 ### Sermon Series:
-## Following Jesus - First passion prediction
+## Following Jesus - Second passion prediction
 ---
-#### O come, let us worship and bow down, let us kneel before the Lord, our Maker. For he is our God, and we are the peopel of his pasture, and the sheep of his hand. 
-##### Psalm 95.6-7
+#### God so loved the world that he gave his only Son, that whoever believes in him should not perish but have eternal life. 
+##### John 3:16
 ---
 We are gathering in person!
 For people who can’t gather in person, we have these 3 options:
