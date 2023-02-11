@@ -10,6 +10,7 @@ God’s kingdom is about others.
 ### Questions 
 1.   How are you seeking to be more Christ centred? 
 2.   How would you summarise what these sections are about?
+
   a.   Mark 1-8 
   b.   Mark 8-16 
   c.   Mark 8:22-10:52
