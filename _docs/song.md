@@ -3,10 +3,10 @@ title: Song
 order: 2
 ---
 ## 9:30am
-1. To God be the Glory
-2. And Can It Be
-3. Turn Your Eyes Upon Jesus
-4. I have decided to follow Jesus
+1. All Creatures Of Our God and King
+2. Behold The Lamb of God
+3. The Servant King
+4. This Kingdom
 
 ## 4pm
 1. Yet Not I But Through Christ In Me
