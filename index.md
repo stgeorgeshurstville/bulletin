@@ -3,7 +3,7 @@ title: Welcome
 ---
 
 ### Sermon Series:
-## Following Jesus - Second passion prediction
+## Following Jesus
 ---
 #### God so loved the world that he gave his only Son, that whoever believes in him should not perish but have eternal life. 
 ##### John 3:16
