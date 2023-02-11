@@ -4,15 +4,23 @@ order: 6
 ---
 
 ### Big Idea 
-Discipleship is following the narrow road of giving. Christians give because our God is a giving God. The narrow road of discipleship is a life of grace and faith 
+God’s kingdom is about others. 
+
 
 ### Questions 
-1. ‘Jesus is the Christ. So what?’ How would you answer this question?  
-
-2. Mark 8 is a turning point in the Gospel of Mark. Jesus has been speaking in parables, now he is speaking plainly. What is the direct and clear teaching about who he is? 
-
-3. Peter’s response to Jesus’ teaching reflects human thinking. This is different to who Jesus is. How? 
-
-4. What does following Jesus involve? What does it mean to ‘deny’ ourselves? What is the result of doing/not doing this? What may be holding us back from denying ourselves and following Jesus? What might denying yourself to follow Jesus mean? 
-
-5. The incident in Mark 8:14-32 shows that the disciples are still thinking the thoughts of man and not of God. How? How might we do this? 
+1.   How are you seeking to be more Christ centred? 
+2.   How would you summarise what these sections are about?
+  a.   Mark 1-8 
+  b.   Mark 8-16 
+  c.   Mark 8:22-10:52
+    i.     8:22-9:29
+   ii.     9:30-10:31
+3.   If Mark 9:30-10:31 is about God’s kingdom being about others, what do you think Jesus trying to say in these passages? 
+  a.   9:33-37
+  b.   9:38-41
+  c.   9:42-50
+  d.   10:1-12
+  e.   10:13-16
+  f.   10:17-31
+4.   What would it mean for you to do everything for the sake of others? 
+5.   What would it look like for you and the church if the last was to be first and the first last? 
