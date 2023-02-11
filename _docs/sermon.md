@@ -45,16 +45,24 @@ Jesus then left that place and went into the region of Judea and across the Jord
 
 
 ## Sermon Outline
-### First passion prediction
-- So what that Jesus is the Christ
+### Second passion prediction
 
-- As the heavens are higher than the earth 
-
-- Follow the narrow road 
-
-- Jesus the giver 
-
-- Receiving not working 
+1. Christ centred…
+2. Structure
+    - Mark 1-8 
+    - Mark 8-16
+    - Mark 8:22-10:52
+        - 8:22-9:29
+        - 9:30-10:31
+        - 10:32-52
+3. Six separate stories? 
+    - 9:33-37
+    - 9:38-41
+    - 9:42-50
+    - 10:1-12
+    - 10:13-16
+    - 10:17-31
+4. God’s kingdom is about others. 
 
 
 
