@@ -21,5 +21,11 @@ Seeing Jesus clearly will transform us into like Him, a slave of all.
 
 | What do you want me to do for you? | Cross Shaped Prayer |
 | ------------- | ------------- |
+| Please help me/my child pass this exam.  |   |
+| Content Cell  | Content Cell  |
+| Content Cell  | Content Cell  |
+| Content Cell  | Content Cell  |
+| Content Cell  | Content Cell  |
+| Content Cell  | Content Cell  |
 | Content Cell  | Content Cell  |
 | Content Cell  | Content Cell  |
