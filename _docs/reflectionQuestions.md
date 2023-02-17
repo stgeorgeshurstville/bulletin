@@ -19,7 +19,7 @@ Seeing Jesus clearly will transform us into like Him, a slave of all.
 4. Please Mark 10:46-52. How is Bartimaeus different to (almost the opposite of) the disciples? How is Bartimaeus a model of discipleship and faith? 
 5. “What do you want me to do for you?” Rewrite the following prayers into Cross-shaped prayers 
 
-| **What do you want me to do for you? | How can you think of a Cross Shaped Prayer** |
+| What do you want me to do for you? | How can you think of a Cross Shaped Prayer |
 | ------------- | ------------- |
 | Please help me/my child pass this exam.  |   |
 | Please help me/my child to get into a good school/uni/job.  |   |
