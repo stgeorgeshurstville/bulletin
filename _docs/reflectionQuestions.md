@@ -29,5 +29,6 @@ Seeing Jesus clearly will transform us into like Him, a slave of all.
 | Please help church/school/youth/d-group to go well  |   |
 | Please make Covid go away  |   |
 | Please show me which job I should take |   |
-6.. What is the right/wrong motivation to serve? What does being a servant like Jesus mean to you? How have you done this?  
+
+6. What is the right/wrong motivation to serve? What does being a servant like Jesus mean to you? How have you done this?  
 
