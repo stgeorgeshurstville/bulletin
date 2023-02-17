@@ -4,24 +4,19 @@ order: 6
 ---
 
 ### Big Idea 
-God’s kingdom is about others. 
+Seeing Jesus clearly will transform us into like Him, a slave of all.  
 
 
 ### Questions 
-1. How are you seeking to be more Christ centred? 
-2. How would you summarise what these sections are about?
-    - Mark 1-8 
-    - Mark 8-16 
-    - Mark 8:22-10:52
-        - 8:22-9:29
-        - 9:30-10:31
-3. If Mark 9:30-10:31 is about God’s kingdom being about others, what do you think Jesus trying to say in these passages? 
-    - 9:33-37
-    - 9:38-41  
-    - 9:42-50
-    - 10:1-12
-    - 10:13-16
-    - 10:17-31
-4. What would it mean for you to do everything for the sake of others? 
-5. What would it look like for you and the church if the last was to be first and the first last? 
-
+1. How has Jesus radically changed you? 
+2. Jesus explains what will happen to him the third time in Mark 10:32-34. He further explains the meaning of the suffering in v.45. What is it? And how does this challenge our thinking about being rescued? 
+3. Please read Mark 10:35-45. The disciples still do not understand the Cross. How do we know that? What is it that they don’t understand? 
+    - How does Jesus correct their understanding? 
+    - What would happen if James and John got what they wanted? V.42
+    - In what ways do we grasp for power and control? Why do we grasp? 
+    - What is Jesus’ alternative to grasping for power and control? 
+    - Does this mean that Christians are doormats? If not, why not? What are Christians then? 
+4. Please Mark 10:46-52. How is Bartimaeus different to (almost the opposite of) the disciples? How is Bartimaeus a model of discipleship and faith? 
+5. “What do you want me to do for you?”‘’ Rewrite the following prayers into Cross-shaped prayers 
+| Please help me/my child pass this exam | Content Cell  |
+| Content Cell  | Content Cell  |
