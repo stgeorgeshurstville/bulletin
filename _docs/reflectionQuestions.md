@@ -22,10 +22,13 @@ Seeing Jesus clearly will transform us into like Him, a slave of all.
 | What do you want me to do for you? | How can you think of a Cross Shaped Prayer |
 | ------------- | ------------- |
 | Please help me/my child pass this exam.  |   |
-| Content Cell  | Content Cell  |
-| Content Cell  | Content Cell  |
-| Content Cell  | Content Cell  |
-| Content Cell  | Content Cell  |
-| Content Cell  | Content Cell  |
-| Content Cell  | Content Cell  |
-| Content Cell  | Content Cell  |
+| Please help me/my child to get into a good school/uni/job.  |   |
+| Please help my child be happy  |   |
+| Please heal my friend who is sick  |   |
+| Please give me a good night's sleep  |   |
+| Please help church/school/youth/d-group to go well  |   |
+| Please make Covid go away  |   |
+| Please show me which job I should take |   |
+
+6. What is the right/wrong motivation to serve? What does being a servant like Jesus mean to you? How have you done this?  
+
