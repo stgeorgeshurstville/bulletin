@@ -23,9 +23,9 @@ order: 3
 ## Mission Prayer Points
 
 - **JC in SE Asia** (with English Discipleship Groups focusing on this mission partner in Feb): You call us to make and mature disciples of all nations. We ask that you’ll allow JC to courageously, lovingly and prayerfully share the gospel in a country where evangelism is not allowed and even publicly practicing one’s faith is difficult. May you soften the heart of the authorities and the people of this nation so that they’ll hear and accept the peace, purpose and real spiritual prosperity in Jesus. 
-**Berkeley Life Centre** (with Mandarin Discipleship Groups focusing on this mission partner in Feb). 
-**Compassion** (with Church including children and youth focusing on this mission partner in Feb).
-**Aywan and High School Scripture** (with Cantonese Discipleship Groups focusing on this mission partner in Feb). 
+- **Berkeley Life Centre** (with Mandarin Discipleship Groups focusing on this mission partner in Feb). 
+- **Compassion** (with Church including children and youth focusing on this mission partner in Feb).
+- **Aywan and High School Scripture** (with Cantonese Discipleship Groups focusing on this mission partner in Feb). 
 
 
 
