@@ -18,6 +18,7 @@ Seeing Jesus clearly will transform us into like Him, a slave of all.
     - Does this mean that Christians are doormats? If not, why not? What are Christians then? 
 4. Please Mark 10:46-52. How is Bartimaeus different to (almost the opposite of) the disciples? How is Bartimaeus a model of discipleship and faith? 
 5. “What do you want me to do for you?”‘’ Rewrite the following prayers into Cross-shaped prayers 
+
 | What do you want me to do for you? | Cross Shaped Prayer |
 | ------------- | ------------- |
 | Content Cell  | Content Cell  |
