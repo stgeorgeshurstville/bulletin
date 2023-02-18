@@ -11,7 +11,7 @@ order: 2
 ## 4pm
 1. Jerusalem
 2. Before the Throne of God Above
-3. Behold our God
+3. Servant King
 4. Surrender All
 
 Check out the church spotify playlist [here](https://open.spotify.com/playlist/3gh0ZKXkJBDbNEnZqJJDXj?si=0908aa3f87544643)
