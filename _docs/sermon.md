@@ -49,7 +49,7 @@ The blind man said, “Rabbi, I want to see.”
 ### Third passion prediction
 
 - Who are you following? 
-- You become what you follow
+- You become who you follow
 - Who are YOU following?
 
 
