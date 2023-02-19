@@ -48,15 +48,7 @@ The blind man said, “Rabbi, I want to see.”
 ## Sermon Outline
 ### Third passion prediction
 
-- Jesus turns us upside down 
-
-- Need for rescue 
-
-- Going back to the rubble 
-
-- A disciple can see 
-
-- Conclusions 
+- Who are you following? 
  
 
 
