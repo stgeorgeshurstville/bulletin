@@ -6,51 +6,51 @@ order: 1
 ## Bible Reading
 
 ### Prayer
-Gracious Lord, you have caused all holy scriptures to be written for our learning: help us so to hear them, read, mark, learn, and inwardly digest them, that, encouraged and supported by your holy Word, we may embrace and always hold fast the joyful hope of everlasting life, which you have given us in our Saviour Jesus Christ. Amen.
-### Mark 10:32-52 (NIV11)
+Heavenly Father, give us faith to receive your word, understanding to know what it means, and the will to put it into practice; through Jesus Christ our Lord. Amen.
 
-**Jesus Predicts His Death a Third Time**
+### Mark 11:1-26 (NIV11)
 
-³² They were on their way up to Jerusalem, with Jesus leading the way, and the disciples were astonished, while those who followed were afraid. Again he took the Twelve aside and told them what was going to happen to him. ³³ “We are going up to Jerusalem,” he said, “and the Son of Man will be delivered over to the chief priests and the teachers of the law. They will condemn him to death and will hand him over to the Gentiles, ³⁴ who will mock him and spit on him, flog him and kill him. Three days later he will rise.”
+**Jesus Comes to Jerusalem as King**
 
-**The Request of James and John**
+¹ As they approached Jerusalem and came to Bethphage and Bethany at the Mount of Olives, Jesus sent two of his disciples, ² saying to them, “Go to the village ahead of you, and just as you enter it, you will find a colt tied there, which no one has ever ridden. Untie it and bring it here. ³ If anyone asks you, ‘Why are you doing this?’ say, ‘The Lord needs it and will send it back here shortly.’”
 
-³⁵ Then James and John, the sons of Zebedee, came to him. “Teacher,” they said, “we want you to do for us whatever we ask.”
+⁴ They went and found a colt outside in the street, tied at a doorway. As they untied it, ⁵ some people standing there asked, “What are you doing, untying that colt?” ⁶ They answered as Jesus had told them to, and the people let them go. ⁷ When they brought the colt to Jesus and threw their cloaks over it, he sat on it. ⁸ Many people spread their cloaks on the road, while others spread branches they had cut in the fields. ⁹ Those who went ahead and those who followed shouted,
 
-³⁶ “What do you want me to do for you?” he asked.
+“Hosanna!”
 
-³⁷ They replied, “Let one of us sit at your right and the other at your left in your glory.”
+“Blessed is he who comes in the name of the Lord!”
 
-³⁸ “You don’t know what you are asking,” Jesus said. “Can you drink the cup I drink or be baptized with the baptism I am baptized with?”
+¹⁰ 
+“Blessed is the coming kingdom of our father David!”
 
-³⁹ “We can,” they answered.
+“Hosanna in the highest heaven!”
 
-Jesus said to them, “You will drink the cup I drink and be baptized with the baptism I am baptized with, ⁴⁰ but to sit at my right or left is not for me to grant. These places belong to those for whom they have been prepared.”
+¹¹ Jesus entered Jerusalem and went into the temple courts. He looked around at everything, but since it was already late, he went out to Bethany with the Twelve.
 
-⁴¹ When the ten heard about this, they became indignant with James and John. ⁴² Jesus called them together and said, “You know that those who are regarded as rulers of the Gentiles lord it over them, and their high officials exercise authority over them. ⁴³ Not so with you. Instead, whoever wants to become great among you must be your servant, ⁴⁴ and whoever wants to be first must be slave of all. ⁴⁵ For even the Son of Man did not come to be served, but to serve, and to give his life as a ransom for many.”
+**Jesus Curses a Fig Tree and Clears the Temple Courts**
 
-**Blind Bartimaeus Receives His Sight**
+¹² The next day as they were leaving Bethany, Jesus was hungry. ¹³ Seeing in the distance a fig tree in leaf, he went to find out if it had any fruit. When he reached it, he found nothing but leaves, because it was not the season for figs. ¹⁴ Then he said to the tree, “May no one ever eat fruit from you again.” And his disciples heard him say it.
 
-⁴⁶ Then they came to Jericho. As Jesus and his disciples, together with a large crowd, were leaving the city, a blind man, Bartimaeus (which means “son of Timaeus”), was sitting by the roadside begging. ⁴⁷ When he heard that it was Jesus of Nazareth, he began to shout, “Jesus, Son of David, have mercy on me!”
+¹⁵ On reaching Jerusalem, Jesus entered the temple courts and began driving out those who were buying and selling there. He overturned the tables of the money changers and the benches of those selling doves, ¹⁶ and would not allow anyone to carry merchandise through the temple courts. ¹⁷ And as he taught them, he said, “Is it not written: ‘My house will be called a house of prayer for all nations’? But you have made it ‘a den of robbers.’ ”
 
-⁴⁸ Many rebuked him and told him to be quiet, but he shouted all the more, “Son of David, have mercy on me!”
+¹⁸ The chief priests and the teachers of the law heard this and began looking for a way to kill him, for they feared him, because the whole crowd was amazed at his teaching.
 
-⁴⁹ Jesus stopped and said, “Call him.”
+¹⁹ When evening came, Jesus and his disciples went out of the city.
 
-So they called to the blind man, “Cheer up! On your feet! He’s calling you.” ⁵⁰ Throwing his cloak aside, he jumped to his feet and came to Jesus.
+²⁰ In the morning, as they went along, they saw the fig tree withered from the roots. ²¹ Peter remembered and said to Jesus, “Rabbi, look! The fig tree you cursed has withered!”
 
-⁵¹ “What do you want me to do for you?” Jesus asked him.
-The blind man said, “Rabbi, I want to see.”
+²² “Have faith in God,” Jesus answered. ²³ “Truly I tell you, if anyone says to this mountain, ‘Go, throw yourself into the sea,’ and does not doubt in their heart but believes that what they say will happen, it will be done for them. ²⁴ Therefore I tell you, whatever you ask for in prayer, believe that you have received it, and it will be yours. ²⁵ And when you stand praying, if you hold anything against anyone, forgive them, so that your Father in heaven may forgive you your sins.” 
 
-⁵² “Go,” said Jesus, “your faith has healed you.” Immediately he received his sight and followed Jesus along the road.
 
 
 ## Sermon Outline
-### Third passion prediction
+### The Three Days
 
-- Who are you following? 
-- You become who you follow
-- Who are YOU following?
+1.     Questions
+2.     Expectations
+3.     Failed Expectations
+4.     Recognising Jesus
+5.     Responding rightly to Jesus 
 
 
 
