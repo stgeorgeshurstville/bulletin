@@ -4,31 +4,24 @@ order: 6
 ---
 
 ### Big Idea 
-Seeing Jesus clearly will transform us into like Him, a slave of all.  
+Recognise and respond rightly to Jesus. 
 
 
 ### Questions 
-1. How has Jesus radically changed you? 
-2. Jesus explains what will happen to him the third time in Mark 10:32-34. He further explains the meaning of the suffering in v.45. What is it? And how does this challenge our thinking about being rescued? 
-3. Please read Mark 10:35-45. The disciples still do not understand the Cross. How do we know that? What is it that they don’t understand? 
-    - How does Jesus correct their understanding? 
-    - What would happen if James and John got what they wanted? V.42
-    - In what ways do we grasp for power and control? Why do we grasp? 
-    - What is Jesus’ alternative to grasping for power and control? 
-    - Does this mean that Christians are doormats? If not, why not? What are Christians then? 
-4. Please Mark 10:46-52. How is Bartimaeus different to (almost the opposite of) the disciples? How is Bartimaeus a model of discipleship and faith? 
-5. “What do you want me to do for you?” Rewrite the following prayers into Cross-shaped prayers 
-
-    | What do you want me to do for you? | Cross Shaped Prayer |
-    | ------------- | ------------- |
-    | Please help me/my child pass this exam.  |   |
-    | Please help me/my child to get into a good school/uni/job.  |   |
-    | Please help my child be happy  |   |
-    | Please heal my friend who is sick  |   |
-    | Please give me a good night's sleep  |   |
-    | Please help church/school/youth/d-group to go well  |   |
-    | Please make Covid go away  |   |
-    | Please show me which job I should take |   |
-
-6. What is the right/wrong motivation to serve? What does being a servant like Jesus mean to you? How have you done this?  
-
+1.     Have you ever not recognised something or someone important?
+2.     Read these passages (and its surrounding context) which Mark 11 references and alludes to. What expectations do they created about Jesus? 
+a.     Genesis 49:10-11
+b.    Psalm 118:25-26
+c.     Zechariah 9:9
+d.    Zechariah 14
+e.     Ezekiel 37:26-28
+f.      Jeremiah 8:13
+g.    Isaiah 56:7
+h.    Malachi 3:1-4
+3.     Is it the case that we’ll get whatever we ask for? 
+4.     In Mark 11, how do we see God’s people failing to recognise who Jesus is? 
+5.     Why did they not recognise Jesus? 
+6.     How do we recognise Jesus? 
+7.     In Mark 11, how do we see God’s people failing to respond rightly to Jesus? 
+8.     What was the impact of this? 
+9.     How can we respond rightly to God? 
