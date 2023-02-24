@@ -39,7 +39,7 @@ Heavenly Father, give us faith to receive your word, understanding to know what 
 
 ²⁰ In the morning, as they went along, they saw the fig tree withered from the roots. ²¹ Peter remembered and said to Jesus, “Rabbi, look! The fig tree you cursed has withered!”
 
-²² “Have faith in God,” Jesus answered. ²³ “Truly I tell you, if anyone says to this mountain, ‘Go, throw yourself into the sea,’ and does not doubt in their heart but believes that what they say will happen, it will be done for them. ²⁴ Therefore I tell you, whatever you ask for in prayer, believe that you have received it, and it will be yours. ²⁵ And when you stand praying, if you hold anything against anyone, forgive them, so that your Father in heaven may forgive you your sins.” 
+²² “Have faith in God,” Jesus answered. ²³ “Truly I tell you, if anyone says to this mountain, ‘Go, throw yourself into the sea,’ and does not doubt in their heart but believes that what they say will happen, it will be done for them. ²⁴ Therefore I tell you, whatever you ask for in prayer, believe that you have received it, and it will be yours. ²⁵ And when you stand praying, if you hold anything against anyone, forgive them, so that your Father in heaven may forgive you your sins.” [26]
 
 
 
