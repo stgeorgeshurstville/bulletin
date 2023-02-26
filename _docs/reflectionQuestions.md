@@ -11,7 +11,7 @@ Recognise and respond rightly to Jesus.
 
 1. Have you ever not recognised something or someone important?
 2. Read these passages (and its surrounding context) which Mark 11 references and alludes to. What expectations do they create about Jesus? 
-a.     Genesis 49:10-11
+    a. Genesis 49:10-11
 b.    Psalm 118:25-26
 c.     Zechariah 9:9
 d.    Zechariah 14
