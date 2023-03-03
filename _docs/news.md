@@ -8,7 +8,7 @@ order: 4
 - **More to Life:** Please speak to Rev. Lam (alan.lam@stgeorgeshurstville.org.au) for more information.
 - **AGM:** Our annual general meeting will be held on March 5th, 2022 at 2pm in the Chapel. We are taking nominations for church wardens, parish councillors, and Synod representatives. Annual and Financial Reports are available. Please speak with your congregation pastor for more [information](https://stgeorgeshurstville.org.au/agm).
 - **Chapel Cleaning:** Sunday 4pm will be cleaning the Chapel this month. Please volunteer to vacuum the floor and take out the rubbish.
-- **Coffee Cart:** We are serving baristas coffee after 9:30am church today. Order your coffee at the sign-in area. $3 (small) $4 (large). 
+- **Coffee Cart:** We are serving baristas coffee after 9:30am church today. Order your coffee at the sign-in area. $3 (small), $4 (large). 
 
 
 
