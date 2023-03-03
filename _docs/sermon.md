@@ -6,51 +6,53 @@ order: 1
 ## Bible Reading
 
 ### Prayer
-Heavenly Father, give us faith to receive your word, understanding to know what it means, and the will to put it into practice; through Jesus Christ our Lord. Amen.
+Lord make your word our rule, your Spirit our teacher, and your glory our supreme concern, for the sake of our Saviour, the Lord Jesus Christ. Amen.
 
 ### Mark 11:1-26 (NIV11)
 
-**Jesus Comes to Jerusalem as King**
+**The Authority of Jesus Questioned**
 
-¹ As they approached Jerusalem and came to Bethphage and Bethany at the Mount of Olives, Jesus sent two of his disciples, ² saying to them, “Go to the village ahead of you, and just as you enter it, you will find a colt tied there, which no one has ever ridden. Untie it and bring it here. ³ If anyone asks you, ‘Why are you doing this?’ say, ‘The Lord needs it and will send it back here shortly.’”
+²⁷ They arrived again in Jerusalem, and while Jesus was walking in the temple courts, the chief priests, the teachers of the law and the elders came to him. ²⁸ “By what authority are you doing these things?” they asked. “And who gave you authority to do this?”
 
-⁴ They went and found a colt outside in the street, tied at a doorway. As they untied it, ⁵ some people standing there asked, “What are you doing, untying that colt?” ⁶ They answered as Jesus had told them to, and the people let them go. ⁷ When they brought the colt to Jesus and threw their cloaks over it, he sat on it. ⁸ Many people spread their cloaks on the road, while others spread branches they had cut in the fields. ⁹ Those who went ahead and those who followed shouted,
+²⁹ Jesus replied, “I will ask you one question. Answer me, and I will tell you by what authority I am doing these things. ³⁰ John’s baptism—was it from heaven, or of human origin? Tell me!”
 
-“Hosanna!”
+³¹ They discussed it among themselves and said, “If we say, ‘From heaven,’ he will ask, ‘Then why didn’t you believe him?’ ³² But if we say, ‘Of human origin’ …” (They feared the people, for everyone held that John really was a prophet.)
 
-“Blessed is he who comes in the name of the Lord!”
+³³ So they answered Jesus, “We don’t know.”
+Jesus said, “Neither will I tell you by what authority I am doing these things.”
 
-¹⁰ 
-“Blessed is the coming kingdom of our father David!”
+**The Parable of the Tenants**
 
-“Hosanna in the highest heaven!”
+¹ Jesus then began to speak to them in parables: “A man planted a vineyard. He put a wall around it, dug a pit for the winepress and built a watchtower. Then he rented the vineyard to some farmers and moved to another place. ² At harvest time he sent a servant to the tenants to collect from them some of the fruit of the vineyard. ³ But they seized him, beat him and sent him away empty-handed. ⁴ Then he sent another servant to them; they struck this man on the head and treated him shamefully. ⁵ He sent still another, and that one they killed. He sent many others; some of them they beat, others they killed.
 
-¹¹ Jesus entered Jerusalem and went into the temple courts. He looked around at everything, but since it was already late, he went out to Bethany with the Twelve.
+⁶ “He had one left to send, a son, whom he loved. He sent him last of all, saying, ‘They will respect my son.’
+⁷ “But the tenants said to one another, ‘This is the heir. Come, let’s kill him, and the inheritance will be ours.’ ⁸ So they took him and killed him, and threw him out of the vineyard.
 
-**Jesus Curses a Fig Tree and Clears the Temple Courts**
+⁹ “What then will the owner of the vineyard do? He will come and kill those tenants and give the vineyard to others. ¹⁰ Haven’t you read this passage of Scripture:
+  “‘The stone the builders rejected
+  has become the cornerstone;
+¹¹ 
+  the Lord has done this,
+   and it is marvelous in our eyes’ ?”
 
-¹² The next day as they were leaving Bethany, Jesus was hungry. ¹³ Seeing in the distance a fig tree in leaf, he went to find out if it had any fruit. When he reached it, he found nothing but leaves, because it was not the season for figs. ¹⁴ Then he said to the tree, “May no one ever eat fruit from you again.” And his disciples heard him say it.
-
-¹⁵ On reaching Jerusalem, Jesus entered the temple courts and began driving out those who were buying and selling there. He overturned the tables of the money changers and the benches of those selling doves, ¹⁶ and would not allow anyone to carry merchandise through the temple courts. ¹⁷ And as he taught them, he said, “Is it not written: ‘My house will be called a house of prayer for all nations’? But you have made it ‘a den of robbers.’ ”
-
-¹⁸ The chief priests and the teachers of the law heard this and began looking for a way to kill him, for they feared him, because the whole crowd was amazed at his teaching.
-
-¹⁹ When evening came, Jesus and his disciples went out of the city.
-
-²⁰ In the morning, as they went along, they saw the fig tree withered from the roots. ²¹ Peter remembered and said to Jesus, “Rabbi, look! The fig tree you cursed has withered!”
-
-²² “Have faith in God,” Jesus answered. ²³ “Truly I tell you, if anyone says to this mountain, ‘Go, throw yourself into the sea,’ and does not doubt in their heart but believes that what they say will happen, it will be done for them. ²⁴ Therefore I tell you, whatever you ask for in prayer, believe that you have received it, and it will be yours. ²⁵ And when you stand praying, if you hold anything against anyone, forgive them, so that your Father in heaven may forgive you your sins.” [26]
-
-
+¹² Then the chief priests, the teachers of the law and the elders looked for a way to arrest him because they knew he had spoken the parable against them. But they were afraid of the crowd; so they left him and went away.
 
 ## Sermon Outline
-### The Three Days
+### The Clash of Kingdoms:
+### Challenge to Jesus' Authority 11:27-12:12
+### Jesus' Indictment of the Leaders of Israel 12:13-44
 
-1.     Questions
-2.     Expectations
-3.     Failed Expectations
-4.     Recognising Jesus
-5.     Responding rightly to Jesus 
+
+Radical discipleship is key 
+
+Jesus v. Religion 
+
+None of your business 
+
+謀財害命
+
+Son to Sons 
+
 
 
 
