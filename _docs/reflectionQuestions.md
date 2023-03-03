@@ -4,25 +4,36 @@ order: 6
 ---
 
 ### Big Idea 
-Recognise and respond rightly to Jesus. 
+Sin is taking what rightly belongs to Jesus for ourselves. Sin stops us to following Jesus.
 
 
 ### Questions
 
-1. Have you ever not recognised something or someone important?
-2. Read these passages (and its surrounding context) which Mark 11 references and alludes to. What expectations do they create about Jesus? 
-    - Genesis 49:10-11
-    - Psalm 118:25-26
-    - Zechariah 9:9
-    - Zechariah 14
-    - Ezekiel 37:26-28
-    - Jeremiah 8:13
-    - Isaiah 56:7
-    - Malachi 3:1-4
-3. Is it the case that we’ll get whatever we ask for? 
-4. In Mark 11, how do we see God’s people failing to recognise who Jesus is? 
-5. Why did they not recognise Jesus? 
-6. How do we recognise Jesus? 
-7. In Mark 11, how do we see God’s people failing to respond rightly to Jesus? 
-8. What was the impact of this? 
-9. How can we respond rightly to God? 
+1. What difference would it make to St George’s if most members of the church can say: ‘my relationship with Jesus is the most important thing to me, it controls everything that I do’? What do you think is stopping us from being fully surrendered disciples of Jesus? 
+
+
+2. ‘The greatest hostility to Jesus is religion.’ What is the evidence of this in Mark’s Gospel so far? 
+
+    How has Israel trusted in their religion rather than the Lord? 
+
+    How might we be trusting religion rather than Jesus? 
+
+Please read Mark 11:27-33
+3. The religious people challenged Jesus’ authority. How does Jesus answer them? How has Jesus answered their question (c.f. Mark 1:9-11)? 
+
+4. Please read Mark 12:1-12
+    Jesus tells a parable. What is the parable about? 
+
+    How does the parable relate to the conflict between Jesus and religion? 
+
+    What does the parable tell us about the motive for choosing religion over Jesus, or choosing to not deny ourselves to follow Jesus? 
+
+    Please reflect and share: ‘To refuse to fully deny ourselves and surrender to Jesus is to rob Jesus of his glory and authority.’  
+
+5. What is the result of tenants killing the heir? How is this God’s greatest victory and hope for sinners? V.9-11
+
+6. What does this passage tell us about:
+    - Growing up in our relationship with Jesus? 
+    - Growing deep in our understanding of the Bible? 
+    - Growing out with our faith in Jesus outside the church? 
+
