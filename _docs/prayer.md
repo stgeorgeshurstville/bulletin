@@ -15,16 +15,11 @@ order: 3
 
 - **AGM**.
   - God our Father, you judge your people with wisdom and rule us with love. Give a spirit of understanding to our church. That we may make wise decisions that will give glory to you and be a blessing to your people. Grant this through our Lord Jesus Christ.
-
 - **Pride Month**.
   - Thank you that you made us in your image. Thank you that you have given us bodies and the physical universe. Thank you that you have given us each other for relationships. Thank you that we are made to worship you and serve one another. Thank you that you know us even better than ourselves. Thank you for always having our best interest at heart. We grieve that ever since the garden of Eden, we have believed the lie that doubts your love for us, that we can determine what’s best for us without you. We grieve that as a result,  sadness, pain, confusion and death has entered into the world. Thank you that you have sent Jesus to die for us. That in Jesus, we have forgiveness, wholeness,  That you that by His Spirits we can be transformed into new people. 
-
   - We pray for those who are wrestling with their identity and sexuality. Forgive us when we have been slow to listen, quick to speak and quick to condemn and judge. Please help us to represent Jesus to them. Please help us to be be gentle and kind, courageous and truthful. Holding out the word of Truth and love to those like us have been blinded by the lies of the enemy and the world. Please help them to find their identity and freedom and joy and forgiveness in Jesus. 
-
   - Please help all of us who follow Jesus to deny ourselves, take up our cross and follow Jesus - in our thoughts, words and deed. Keep us from unfaithfulness in our thoughts, in our actions, and in what we look at. Lord again where we have failed you please forgive us. Help us to each help those who are caught up in a wrongdoing. Help us to restore each other in a gentle spirit, watching out that we won’t be tempted. Lord keep us from the sin of acting wrongly. And keep us from pride. 
-
   - We pray that Australia’s churches might be ‘hospitals for sinners,’ where we can safely come broken to you, where we can find people who will love us in our sin, and speak to us of the Lord Jesus, reminding us of his forgiveness, and pointing us to his Holiness. And Lord, we pray especially for those who are tempted to mock you or insult you. We ask for your mercy Lord, that you in your kindness you would extend forgiveness and love. And we pray these things in the powerful name of Jesus. Amen.
-
 - Others can be found [here](https://stgeorgeshurstville.org.au/prayer)
 
 ## Mission Prayer Points
