@@ -33,7 +33,7 @@ Jesus said, “Neither will I tell you by what authority I am doing these things
   has become the cornerstone;
 ¹¹ 
   the Lord has done this,
-   and it is marvelous in our eyes’ ?”
+   and it is marvelous in our eyes’?”
 
 ¹² Then the chief priests, the teachers of the law and the elders looked for a way to arrest him because they knew he had spoken the parable against them. But they were afraid of the crowd; so they left him and went away.
 
