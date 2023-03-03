@@ -5,8 +5,8 @@ title: Welcome
 ### Sermon Series:
 ## Following Jesus
 ---
-#### When you call to me, says the Lord, I will answer you; I will be with you in trouble, I will rescue you and honour you.  
-##### Psalm 91:15,16
+#### My heart says to the Lord, 'Your face, Lord do I seek.' Hide not your face from me. Turn not your servant away in anger, for you have been my help.
+##### Psalm 27:8-9
 ---
 We are gathering in person!
 For people who can’t gather in person, we have these 3 options:
