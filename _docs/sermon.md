@@ -8,7 +8,7 @@ order: 1
 ### Prayer
 Lord make your word our rule, your Spirit our teacher, and your glory our supreme concern, for the sake of our Saviour, the Lord Jesus Christ. Amen.
 
-### Mark 11:1-26 (NIV11)
+### Mark 11:27-12:12 (NIV11)
 
 **The Authority of Jesus Questioned**
 
