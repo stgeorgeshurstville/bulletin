@@ -3,10 +3,10 @@ title: Song
 order: 2
 ---
 ## 9:30am
-1. How Great is Our God
-2. How Great Thou Art
-3. By Faith
-4. Consider Christ
+1. Praise my soul, the King of heaven
+2. Jerusalem
+3. Apostles Creed
+4. This Kingdom
 
 ## 4pm
 1. All I have is Christ
