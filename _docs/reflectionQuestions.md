@@ -26,7 +26,7 @@ Sin is taking what rightly belongs to Jesus for ourselves. Sin stops us to follo
    
    Please read Mark 12:1-12.
 
-4. Please read Mark 12:1-12. Jesus tells a parable. What is the parable about? 
+4. Jesus tells a parable. What is the parable about? 
 
     How does the parable relate to the conflict between Jesus and religion? 
 
