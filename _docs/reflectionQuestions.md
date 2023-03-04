@@ -17,8 +17,12 @@ Sin is taking what rightly belongs to Jesus for ourselves. Sin stops us to follo
     How has Israel trusted in their religion rather than the Lord? 
 
     How might we be trusting religion rather than Jesus? 
+    
+Please read Mark 11:27-33. 
 
-3. Please read Mark 11:27-33. The religious people challenged Jesus’ authority. How does Jesus answer them? How has Jesus answered their question (c.f. Mark 1:9-11)? 
+3. The religious people challenged Jesus’ authority. How does Jesus answer them? How has Jesus answered their question (c.f. Mark 1:9-11)? 
+
+Please read Mark 12:1-12.
 
 4. Please read Mark 12:1-12. Jesus tells a parable. What is the parable about? 
 
