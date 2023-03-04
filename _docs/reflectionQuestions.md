@@ -20,12 +20,10 @@ Sin is taking what rightly belongs to Jesus for ourselves. Sin stops us to follo
     
    
    Please read Mark 11:27-33. 
-
 3. The religious people challenged Jesus’ authority. How does Jesus answer them? How has Jesus answered their question (c.f. Mark 1:9-11)? 
 
    
    Please read Mark 12:1-12.
-
 4. Jesus tells a parable. What is the parable about? 
 
     How does the parable relate to the conflict between Jesus and religion? 
