@@ -20,10 +20,11 @@ Sin is taking what rightly belongs to Jesus for ourselves. Sin stops us to follo
 
 Please read Mark 11:27-33
 
-   3. The religious people challenged Jesus’ authority. How does Jesus answer them? How has Jesus answered their question (c.f. Mark 1:9-11)? 
+3. The religious people challenged Jesus’ authority. How does Jesus answer them? How has Jesus answered their question (c.f. Mark 1:9-11)? 
 
-   4. Please read Mark 12:1-12
-    Jesus tells a parable. What is the parable about? 
+Please read Mark 12:1-12
+
+4. Jesus tells a parable. What is the parable about? 
 
     How does the parable relate to the conflict between Jesus and religion? 
 
@@ -31,9 +32,9 @@ Please read Mark 11:27-33
 
     Please reflect and share: ‘To refuse to fully deny ourselves and surrender to Jesus is to rob Jesus of his glory and authority.’  
 
-   5. What is the result of tenants killing the heir? How is this God’s greatest victory and hope for sinners? V.9-11
+5. What is the result of tenants killing the heir? How is this God’s greatest victory and hope for sinners? V.9-11
 
-   6. What does this passage tell us about:
+6. What does this passage tell us about:
     - Growing up in our relationship with Jesus? 
     - Growing deep in our understanding of the Bible? 
     - Growing out with our faith in Jesus outside the church? 
