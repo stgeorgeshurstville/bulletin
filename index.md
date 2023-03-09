@@ -5,8 +5,8 @@ title: Welcome
 ### Sermon Series:
 ## Following Jesus
 ---
-#### My heart says to the Lord, 'Your face, Lord do I seek.' Hide not your face from me. Turn not your servant away in anger, for you have been my help.
-##### Psalm 27:8-9
+#### My eyes are ever towards the Lord, for he will pluck my feet out of the net. Turn to me, and be gracious to me; for I am lonely and afflicted.
+##### Psalm 25.15-16
 ---
 We are gathering in person!
 For people who can’t gather in person, we have these 3 options:
