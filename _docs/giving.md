@@ -3,8 +3,8 @@ title: Giving
 order: 5
 ---
 
-#### None can serve two masters. Either you will hate the one and love the other, or you will devote to the one and despise the other. You cannot serve both God and money
-##### - Matthew 6:24 (NIV11)
+#### Command those who are rich in this present world not to be arrogant nor to put their hope in wealth, which is so uncertain, but to put their hope in God, who richly provides us with everything for our enjoyment.
+##### - 1 Timothy 6:17 (NIV11)
 
 ---
 
