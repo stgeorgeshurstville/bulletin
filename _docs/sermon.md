@@ -30,13 +30,13 @@ Thank you Father for making yourself known to us, showing us the way of salvatio
 
 ²⁴ “But in those days, following that distress,
 
-“‘the sun will be darkened,
+  “‘the sun will be darkened,
 
-and the moon will not give its light;
+  and the moon will not give its light;
 
-²⁵ the stars will fall from the sky,
+  ²⁵ the stars will fall from the sky,
 
-and the heavenly bodies will be shaken.’ 
+  and the heavenly bodies will be shaken.’ 
 
 ²⁶ “At that time people will see the Son of Man coming in clouds with great power and glory. ²⁷ And he will send his angels and gather his elect from the four winds, from the ends of the earth to the ends of the heavens.
 
