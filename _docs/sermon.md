@@ -29,10 +29,10 @@ Thank you Father for making yourself known to us, showing us the way of salvatio
 ²⁰ “If the Lord had not cut short those days, no one would survive. But for the sake of the elect, whom he has chosen, he has shortened them. ²¹ At that time if anyone says to you, ‘Look, here is the Messiah!’ or, ‘Look, there he is!’ do not believe it. ²² For false messiahs and false prophets will appear and perform signs and wonders to deceive, if possible, even the elect. ²³ So be on your guard; I have told you everything ahead of time.
 
 ²⁴ “But in those days, following that distress,
- “‘the sun will be darkened,
- and the moon will not give its light;
- ²⁵ the stars will fall from the sky,
- and the heavenly bodies will be shaken.’ 
+“‘the sun will be darkened,
+and the moon will not give its light;
+²⁵ the stars will fall from the sky,
+and the heavenly bodies will be shaken.’ 
 
 ²⁶ “At that time people will see the Son of Man coming in clouds with great power and glory. ²⁷ And he will send his angels and gather his elect from the four winds, from the ends of the earth to the ends of the heavens.
 
