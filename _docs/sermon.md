@@ -50,10 +50,7 @@ Thank you Father for making yourself known to us, showing us the way of salvatio
 
 
 ## Sermon Outline
-### The Clash of Kingdoms:
-### Challenge to Jesus' Authority 11:27-12:12
-### Jesus' Indictment of the Leaders of Israel 12:13-44
-
+### The “Little Apocalypse” (Temple)
 
 1. The Future 
 2. The Cross
