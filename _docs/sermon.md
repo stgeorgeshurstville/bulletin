@@ -58,8 +58,8 @@ Thank you Father for making yourself known to us, showing us the way of salvatio
 1. The Future 
 2. The Cross
 3. Be Ready…
-  To Grow Deep
-  To Grow Out  
+  a. To Grow Deep
+  b. To Grow Out  
 
 
 
