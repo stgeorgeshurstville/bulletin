@@ -4,7 +4,7 @@ order: 6
 ---
 
 ### Big Idea 
-Sin is taking what rightly belongs to Jesus for ourselves. Sin stops us to following Jesus.
+Hold onto (going deep) and hold out (growing out) with Jesus. 
 
 
 ### Questions
