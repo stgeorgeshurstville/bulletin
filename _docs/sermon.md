@@ -55,15 +55,11 @@ Thank you Father for making yourself known to us, showing us the way of salvatio
 ### Jesus' Indictment of the Leaders of Israel 12:13-44
 
 
-Radical discipleship is key 
-
-Jesus v. Religion 
-
-None of your business 
-
-謀財害命
-
-Son to Sons 
+1. The Future 
+2. The Cross
+3. Be Ready…
+  - To Grow Deep
+  - To Grow Out  
 
 
 
