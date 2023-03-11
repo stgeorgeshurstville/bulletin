@@ -4,10 +4,9 @@ order: 2
 ---
 ## 9:30am
 1. No Other Name
-2. Jerusalem
-3. Apostles Creed
-4. This Kingdom
-5. I have decided to follow Jesus
+2. It Was Finished Upon the Cross
+3. See Him Coming
+4. Before the Throne of God Above 
 
 ## 4pm
 1. Rejoice
