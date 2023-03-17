@@ -48,8 +48,9 @@ Now the Passover and the Festival of Unleavened Bread were only two days away, a
 
 ²⁷ “You will all fall away,” Jesus told them, “for it is written:
 
-“‘I will strike the shepherd,
-and the sheep will be scattered.’ 
+      “‘I will strike the shepherd,
+      and the sheep will be scattered.’ 
+
 ²⁸ But after I have risen, I will go ahead of you into Galilee.”
 
 ²⁹ Peter declared, “Even if all fall away, I will not.”
