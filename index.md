@@ -5,8 +5,8 @@ title: Welcome
 ### Sermon Series:
 ## Following Jesus
 ---
-#### My eyes are ever towards the Lord, for he will pluck my feet out of the net. Turn to me, and be gracious to me; for I am lonely and afflicted.
-##### Psalm 25.15-16
+#### Rejoice with Jerusalem and be glad for her, all you who love her rejoice in her joy, all you who mourn over her – that you may drink deeply with delight from the abundance of her glory. 
+##### Isaiah 66.10-11
 ---
 We are gathering in person!
 For people who can’t gather in person, we have these 3 options:
