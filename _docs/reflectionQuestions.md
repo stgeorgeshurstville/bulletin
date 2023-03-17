@@ -9,9 +9,7 @@ The Cross of Jesus is God’s superabundant love for us, and it changes/transfor
 ### Questions
 1. ‘We see the universe and everything in it as a market.’ Discuss. 
 2. Please read Mark 14:1-11. There’re 3 responses to Jesus. What are they? 
-    - Vv.1-2
-    - Vv.10-11
-    - Vv.3-9
+    - Vv.1-2; Vv.10-11; Vv.3-9
     - What have we ‘sold’ Jesus for? 
     - What limits have we placed on our love and worship of Jesus? 
     - What is stopping me from loving and worshipping Jesus excessively, abundantly? What will help me? 
