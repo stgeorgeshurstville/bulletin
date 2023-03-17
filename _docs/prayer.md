@@ -9,8 +9,8 @@ order: 3
 - **Collect:** Almighty God, grant that we, who justly deserve to be punished for our sinful deeds, may in your mercy and kindness be pardoned and restored; through our Lord and Saviour Jesus Christ. Amen.
 - **Church Sermon:** Thank you Father that you don’t relate to us on the basis of trade. Thank you that by grace you have created the universe for our joy and delight. We are sorry that we have coveted, envied, squandered and hoarded. Sorry that we have compromised. We have been foolish to think that we can buy your forgiveness and love. We are sorry that we have neglected and ignored those who are of no value to us but of infinite value to you. Thank you that you have given Jesus to us, by grace. Thank you for your superabundant love to us. Please give us your Spirit that we may have the power to know the dimensions of your limitless love. Help us to love as you have loved us. May all power and glory, wisdom and might be to Jesus, your son, our Lord. Amen. 
 - **Church mission** 
-  ####‘At that time men will see the Son of Man coming in clouds with great power and glory. And he will send his angels and gather his elect from the four winds, from the ends of the earth to the ends of the heavens.’
-  #####(Mark 13:26-27) 
+  #### ‘At that time men will see the Son of Man coming in clouds with great power and glory. And he will send his angels and gather his elect from the four winds, from the ends of the earth to the ends of the heavens.’
+  ##### (Mark 13:26-27) 
 
   Our gracious Father, thank you for the privilege of calling us to join in your mission. Thank you that under you what we do makes a difference in the world. We pray therefore that you will save those around us and to transform them into the likeness of Jesus. Please use us to make disciples of the nations, love our neighbours. Please Father, glorify yourself, through our labour in your Son. We pray that we will not be consumers but contributors to the ministries that you have called us to. 
 
