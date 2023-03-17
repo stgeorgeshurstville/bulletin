@@ -17,8 +17,8 @@ The Cross of Jesus is God’s superabundant love for us, and it changes/transfor
     - What is stopping me from loving and worshipping Jesus excessively, abundantly? What will help me? 
 
 3. Pleases read Mark 14:2-27 
-  - How does the last supper demonstrate God’s superabundant love to us? How does the Cross of Jesus challenge the market universe thinking? 
-  - How would our love be different if we love like God? Who would we love? 
+     - How does the last supper demonstrate God’s superabundant love to us? How does the Cross of Jesus challenge the market universe thinking? 
+     - How would our love be different if we love like God? Who would we love? 
 
 4. How does Mark 14 help me in growing up in my relationship with Jesus, and growing out with my faith in Jesus? 
 
