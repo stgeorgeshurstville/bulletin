@@ -4,21 +4,21 @@ order: 6
 ---
 
 ### Big Idea 
-Hold onto (going deep) and hold out (growing out) with Jesus. 
-
+The Cross of Jesus is God’s superabundant love for us, and it changes/transforms us
 
 ### Questions
+1. ‘We see the universe and everything in it as a market.’ Discuss. 
+2. Please read Mark 14:1-11. There’re 3 responses to Jesus. What are they? 
+    - Vv.1-2
+    - Vv.10-11
+    - Vv.3-9
+    - What have we ‘sold’ Jesus for? 
+    - What limits have we placed on our love and worship of Jesus? 
+    - What is stopping me from loving and worshipping Jesus excessively, abundantly? What will help me? 
 
-1. What questions do you have of the passage? 
-2. How would you break up this chapter into different sections based on its content? How would you summarise each section? 
-3. What’s the first thing that Jesus wants them to know in this chapter (v2)? 
-4. What is the abomination that causes desolation? 
-5. What are we told to do? 
-6. How should we view signs and miracles? 
-7. When will these things happen? 
-8. How are you going to hold onto Jesus and his word (v23, 31)? 
-9. Have you experienced the things talked about in verses 9-13? Why? 
-10. How are you going to hold out for Jesus? What are you most afraid of in holding out for Jesus? How does Jesus encourage us to keep holding out for Jesus? 
-11. What does it mean that the Spirit will speak? 
+3. Pleases read Mark 14:2-27 
+  - How does the last supper demonstrate God’s superabundant love to us? How does the Cross of Jesus challenge the market universe thinking? 
+  - How would our love be different if we love like God? Who would we love? 
 
+4. How does Mark 14 help me in growing up in my relationship with Jesus, and growing out with my faith in Jesus? 
 
