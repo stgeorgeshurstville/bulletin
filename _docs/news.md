@@ -14,6 +14,7 @@ order: 4
 - **Chapel Cleaning:** Sunday 4pm will be cleaning the Chapel this month. Please volunteer to vacuum the floor and take out the rubbish.
 - **Day of Prayer:** Fri 5 May 7:30pm and Sun 7 May 2pm. More details to come. 
 - **Sam Chan seminar:** Sat 3 June.  
+  ![Screen Shot 2023-03-17 at 3 12 37 pm](https://user-images.githubusercontent.com/119166299/225810906-cc30fe08-6408-4ce8-b5e0-9fa692a951e2.png)
 
 
 
