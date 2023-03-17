@@ -6,62 +6,69 @@ order: 1
 ## Bible Reading
 
 ### Prayer
-Thank you Father for making yourself known to us, showing us the way of salvation through faith in your Son. We ask you now to teach us through your word, so that we may be ready to serve you, for the glory of our Lord Jesus Christ. Amen. 
+Lord make your word our rule, your Spirit our teacher, and your glory our supreme concern, for the sake of our Saviour, the Lord Jesus Christ. Amen.
 
-### Mark 13 (NIV11)
+### Mark 14:1-31 (NIV11)
 
-**The Destruction of the Temple and Signs of the End Times** 
+**Jesus Anointed at Bethany**
 
-¹³ As Jesus was leaving the temple, one of his disciples said to him, “Look, Teacher! What massive stones! What magnificent buildings!”
+Now the Passover and the Festival of Unleavened Bread were only two days away, and the chief priests and the teachers of the law were scheming to arrest Jesus secretly and kill him. ² “But not during the festival,” they said, “or the people may riot.”
 
-² “Do you see all these great buildings?” replied Jesus. “Not one stone here will be left on another; every one will be thrown down.”
+³ While he was in Bethany, reclining at the table in the home of Simon the Leper, a woman came with an alabaster jar of very expensive perfume, made of pure nard. She broke the jar and poured the perfume on his head.
 
-³ As Jesus was sitting on the Mount of Olives opposite the temple, Peter, James, John and Andrew asked him privately, ⁴ “Tell us, when will these things happen? And what will be the sign that they are all about to be fulfilled?”
+⁴ Some of those present were saying indignantly to one another, “Why this waste of perfume? ⁵ It could have been sold for more than a year’s wages and the money given to the poor.” And they rebuked her harshly.
 
-⁵ Jesus said to them: “Watch out that no one deceives you. ⁶ Many will come in my name, claiming, ‘I am he,’ and will deceive many. ⁷ When you hear of wars and rumors of wars, do not be alarmed. Such things must happen, but the end is still to come. ⁸ Nation will rise against nation, and kingdom against kingdom. There will be earthquakes in various places, and famines. These are the beginning of birth pains.
+⁶ “Leave her alone,” said Jesus. “Why are you bothering her? She has done a beautiful thing to me. ⁷ The poor you will always have with you, and you can help them any time you want. But you will not always have me. ⁸ She did what she could. She poured perfume on my body beforehand to prepare for my burial. ⁹ Truly I tell you, wherever the gospel is preached throughout the world, what she has done will also be told, in memory of her.”
 
-⁹ “You must be on your guard. You will be handed over to the local councils and flogged in the synagogues. On account of me you will stand before governors and kings as witnesses to them. ¹⁰ And the gospel must first be preached to all nations. ¹¹ Whenever you are arrested and brought to trial, do not worry beforehand about what to say. Just say whatever is given you at the time, for it is not you speaking, but the Holy Spirit.
+¹⁰ Then Judas Iscariot, one of the Twelve, went to the chief priests to betray Jesus to them. ¹¹ They were delighted to hear this and promised to give him money. So he watched for an opportunity to hand him over.
 
-¹² “Brother will betray brother to death, and a father his child. Children will rebel against their parents and have them put to death. ¹³ Everyone will hate you because of me, but the one who stands firm to the end will be saved.
+**The Last Supper**
 
-¹⁴ “When you see ‘the abomination that causes desolation’ standing where it does not belong—let the reader understand—then let those who are in Judea flee to the mountains. ¹⁵ Let no one on the housetop go down or enter the house to take anything out. ¹⁶ Let no one in the field go back to get their cloak. ¹⁷ How dreadful it will be in those days for pregnant women and nursing mothers! ¹⁸ Pray that this will not take place in winter, ¹⁹ because those will be days of distress unequaled from the beginning, when God created the world, until now—and never to be equaled again.
+¹² On the first day of the Festival of Unleavened Bread, when it was customary to sacrifice the Passover lamb, Jesus’ disciples asked him, “Where do you want us to go and make preparations for you to eat the Passover?”
 
-²⁰ “If the Lord had not cut short those days, no one would survive. But for the sake of the elect, whom he has chosen, he has shortened them. ²¹ At that time if anyone says to you, ‘Look, here is the Messiah!’ or, ‘Look, there he is!’ do not believe it. ²² For false messiahs and false prophets will appear and perform signs and wonders to deceive, if possible, even the elect. ²³ So be on your guard; I have told you everything ahead of time.
+¹³ So he sent two of his disciples, telling them, “Go into the city, and a man carrying a jar of water will meet you. Follow him. ¹⁴ Say to the owner of the house he enters, ‘The Teacher asks: Where is my guest room, where I may eat the Passover with my disciples?’ ¹⁵ He will show you a large room upstairs, furnished and ready. Make preparations for us there.”
 
-²⁴ “But in those days, following that distress,
+¹⁶ The disciples left, went into the city and found things just as Jesus had told them. So they prepared the Passover.
 
-  “‘the sun will be darkened,
+¹⁷ When evening came, Jesus arrived with the Twelve. ¹⁸ While they were reclining at the table eating, he said, “Truly I tell you, one of you will betray me—one who is eating with me.”
 
-  and the moon will not give its light;
+¹⁹ They were saddened, and one by one they said to him, “Surely you don’t mean me?”
 
-  ²⁵ the stars will fall from the sky,
+²⁰ “It is one of the Twelve,” he replied, “one who dips bread into the bowl with me. ²¹ The Son of Man will go just as it is written about him. But woe to that man who betrays the Son of Man! It would be better for him if he had not been born.”
 
-  and the heavenly bodies will be shaken.’ 
+²² While they were eating, Jesus took bread, and when he had given thanks, he broke it and gave it to his disciples, saying, “Take it; this is my body.”
 
-²⁶ “At that time people will see the Son of Man coming in clouds with great power and glory. ²⁷ And he will send his angels and gather his elect from the four winds, from the ends of the earth to the ends of the heavens.
+²³ Then he took a cup, and when he had given thanks, he gave it to them, and they all drank from it.
 
-²⁸ “Now learn this lesson from the fig tree: As soon as its twigs get tender and its leaves come out, you know that summer is near. ²⁹ Even so, when you see these things happening, you know that it is near, right at the door. ³⁰ Truly I tell you, this generation will certainly not pass away until all these things have happened. ³¹ Heaven and earth will pass away, but my words will never pass away.
+²⁴ “This is my blood of the covenant, which is poured out for many,” he said to them. ²⁵ “Truly I tell you, I will not drink again from the fruit of the vine until that day when I drink it new in the kingdom of God.”
 
-**The Day and Hour Unknown**
+²⁶ When they had sung a hymn, they went out to the Mount of Olives.
 
-³² “But about that day or hour no one knows, not even the angels in heaven, nor the Son, but only the Father. ³³ Be on guard! Be alert ! You do not know when that time will come. ³⁴ It’s like a man going away: He leaves his house and puts his servants in charge, each with their assigned task, and tells the one at the door to keep watch.
+**Jesus Predicts Peter’s Denial**
 
-³⁵ “Therefore keep watch because you do not know when the owner of the house will come back—whether in the evening, or at midnight, or when the rooster crows, or at dawn. ³⁶ If he comes suddenly, do not let him find you sleeping. ³⁷ What I say to you, I say to everyone: ‘Watch!’”
+²⁷ “You will all fall away,” Jesus told them, “for it is written:
+
+“‘I will strike the shepherd,
+and the sheep will be scattered.’ 
+²⁸ But after I have risen, I will go ahead of you into Galilee.”
+
+²⁹ Peter declared, “Even if all fall away, I will not.”
+
+³⁰ “Truly I tell you,” Jesus answered, “today—yes, tonight—before the rooster crows twice you yourself will disown me three times.”
+
+³¹ But Peter insisted emphatically, “Even if I have to die with you, I will never disown you.” And all the others said the same.
+
 
 
 ## Sermon Outline
-### The “Little Apocalypse” (Temple)
+### Watch 1: Evening
 
-1. The Future 
-2. The Cross
-3. Be Ready…
-    - To Grow Deep
-    - To Grow Out  
-
-
-
-
-
+1. Market economy to market universe 
+2. Trading with Jesus 14:1-11
+3. God’s superabundant love 14:12-27 
+4. Transformed by love 
+ 
+Think of morning tea or the next time you’re eating with someone. Pick one thing from the passage or talk that you think might interest/challenge/encourage them, and write down in a way that you might use to talk to them about it. 
 
 
 ## Q&A
