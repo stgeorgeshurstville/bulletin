@@ -21,8 +21,8 @@ order: 3
 
 ## Weekly Prayer Points
 
-- **Redevelopment & Additional Space. **
-- **Harmony Week. **
+- **Redevelopment & Additional Space.**
+- **Harmony Week.**
 - Others can be found [here](https://stgeorgeshurstville.org.au/prayer)
 
 
