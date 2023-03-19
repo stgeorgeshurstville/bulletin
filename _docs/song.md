@@ -9,8 +9,8 @@ order: 2
 4. Jesus, Thank You
 
 ## 4pm
-1. This is Amazing Grace
-2. O Come, All You Unfaithful
-3. His Mercy is More
+1. O Come, All You Unfaithful
+2. His Mercy is More
+3. This is Amazing Grace
 
 Check out the church spotify playlist [here](https://open.spotify.com/playlist/3gh0ZKXkJBDbNEnZqJJDXj?si=0908aa3f87544643)
