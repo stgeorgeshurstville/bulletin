@@ -5,7 +5,7 @@ title: Welcome
 ### Sermon Series:
 ## Following Jesus
 ---
-#### [In the name of Christ, the psalmist prays: Vindicate me, O God, and defend my cause against an ungodly people; from deceitful and unjust men deliver me, for you are the God in whom I take refuge.
+#### In the name of Christ, the psalmist prays: Vindicate me, O God, and defend my cause against an ungodly people; from deceitful and unjust men deliver me, for you are the God in whom I take refuge.
 ##### Psalm 43:1-2
 ---
 We are gathering in person!
