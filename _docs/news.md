@@ -19,7 +19,7 @@ Please talk to your pastor if you want to know more.
 - **Discipleship Groups:** The last weekend of this term is Sun 2nd April. Some groups may operate on a different schedule. Please speak to your leader for more information. Term 2 starts on the week of Mon 8th May. 
 - **Chapel Cleaning:** Sunday 4pm will be cleaning the Chapel this month. Please volunteer to vacuum the floor and take out the rubbish.
 - **Day of Prayer:** Fri 5 May 7:30pm and Sun 7 May 2pm. More details to come. 
-- **Local High School Scripture:**  You can sign up for prayer updates at (https://www.hurstvillesre.com/become-a-supporter). You can partner financially by giving to the following account: 
+- **Local High School Scripture:**  You can sign up for prayer updates [here](https://www.hurstvillesre.com/become-a-supporter). You can partner financially by giving to the following account: 
   - Account Name: Christian Education Board for Hurstville High Schools 
   - BSB: 124001 
   - Account Number: 22801395 
