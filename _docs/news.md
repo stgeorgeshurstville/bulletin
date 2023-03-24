@@ -21,10 +21,10 @@ Please talk to your pastor if you want to know more.
 - **Day of Prayer:** Fri 5 May 7:30pm and Sun 7 May 2pm. More details to come. 
 - **Local High School Scripture:**  You can sign up for prayer updates at https://www.hurstvillesre.com/become-a-supporter. You can partner financially by giving to the following account: 
  - Account Name: Christian Education Board for Hurstville High Schools 
- -BSB: 124001 
- -Account Number: 22801395 
-- Description: Your Name 
-- **Sam Chan seminar:** Sat 3 June.  
+ - BSB: 124001 
+ - Account Number: 22801395 
+ - Description: Your Name 
+ - - **Sam Chan seminar:** Sat 3 June.  
   ![Screen Shot 2023-03-17 at 3 12 37 pm](https://user-images.githubusercontent.com/119166299/225810906-cc30fe08-6408-4ce8-b5e0-9fa692a951e2.png)
 
 
