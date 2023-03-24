@@ -10,7 +10,8 @@ order: 2
 
 ## 4pm
 1. How deep the Father’s love for us
-2. No other name
-3. Rejoice
+2. Your will be done
+3. No other name
+4. Rejoice
 
 Check out the church spotify playlist [here](https://open.spotify.com/playlist/3gh0ZKXkJBDbNEnZqJJDXj?si=0908aa3f87544643)
