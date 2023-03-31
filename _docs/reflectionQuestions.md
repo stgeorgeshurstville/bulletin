@@ -18,7 +18,7 @@ Have confidence in God who fulfils his plans and brings forgiveness in Jesus rat
 8.     How do we see God being in control and fulfill his plans to forgive sinners? 
 9.     Why does Jesus publicly tell people who he is only now and not before? 
 10.    Where are the ironies in these events? What does it show? 
-11.      How is God’s judgment of humanity being placed on Jesus? 
+11.    How is God’s judgment of humanity being placed on Jesus? 
 12.     What would it look like for you to mourn over your sins? 
 13.     What would it look like to have confidence in God and in his power and plans?
 14.     If you aren’t confident, how can you grow in your confidence of God and subsequently yourself? If you are confident, how can you grow in your confidence of God and not yourself? 
