@@ -5,8 +5,8 @@ title: Welcome
 ### Sermon Series:
 ## Following Jesus
 ---
-#### In the name of Christ, the psalmist prays: Vindicate me, O God, and defend my cause against an ungodly people; from deceitful and unjust men deliver me, for you are the God in whom I take refuge.
-##### Psalm 43:1-2
+#### Lift up your heads, O gates! and be lifted up, O ancient doors! that the king of glory may come in. Who is the King of glory? The Lord of hosts, he is the king of glory! 
+##### Psalm 2:9-10
 ---
 We are gathering in person!
 For people who can’t gather in person, we have these 3 options:
