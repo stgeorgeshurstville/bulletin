@@ -11,11 +11,20 @@ Almighty God, we thank you for the gift of your holy word. May it be a lantern t
 ### Mark 14:53-72 (NIV11)
 
 **Jesus Before the Sanhedrin**
-⁵³ They took Jesus to the high priest, and all the chief priests, the elders and the teachers of the law came together. ⁵⁴ Peter followed him at a distance, right into the courtyard of the high priest. There he sat with the guards and warmed himself at the fire.
 
-⁵⁵ The chief priests and the whole Sanhedrin were looking for evidence against Jesus so that they could put him to death, but they did not find any. ⁵⁶ Many testified falsely against him, but their statements did not agree.
+⁵³ They took Jesus to the high priest, and all the chief priests, the elders and the teachers of the law came together.
 
-⁵⁷ Then some stood up and gave this false testimony against him: ⁵⁸ “We heard him say, ‘I will destroy this temple made with human hands and in three days will build another, not made with hands.’” ⁵⁹ Yet even then their testimony did not agree.
+⁵⁴ Peter followed him at a distance, right into the courtyard of the high priest. There he sat with the guards and warmed himself at the fire.
+
+⁵⁵ The chief priests and the whole Sanhedrin were looking for evidence against Jesus so that they could put him to death, but they did not find any. 
+
+⁵⁶ Many testified falsely against him, but their statements did not agree.
+
+⁵⁷ Then some stood up and gave this false testimony against him: 
+
+⁵⁸ “We heard him say, ‘I will destroy this temple made with human hands and in three days will build another, not made with hands.’”
+
+⁵⁹ Yet even then their testimony did not agree.
 
 ⁶⁰ Then the high priest stood up before them and asked Jesus, “Are you not going to answer? What is this testimony that these men are bringing against you?” 
 
@@ -31,15 +40,15 @@ Almighty God, we thank you for the gift of your holy word. May it be a lantern t
 
 **Peter Disowns Jesus**
 
-⁶⁶ While Peter was below in the courtyard, one of the servant girls of the high priest came by. ⁶⁷ When she saw Peter warming himself, she looked closely at him.
+⁶⁶ While Peter was below in the courtyard, one of the servant girls of the high priest came by. 
 
-“You also were with that Nazarene, Jesus,” she said.
+⁶⁷ When she saw Peter warming himself, she looked closely at him. “You also were with that Nazarene, Jesus,” she said.
 
 ⁶⁸ But he denied it. “I don’t know or understand what you’re talking about,” he said, and went out into the entryway. 
 
-⁶⁹ When the servant girl saw him there, she said again to those standing around, “This fellow is one of them.” ⁷⁰ Again he denied it.
+⁶⁹ When the servant girl saw him there, she said again to those standing around, “This fellow is one of them.” 
 
-After a little while, those standing near said to Peter, “Surely you are one of them, for you are a Galilean.”
+⁷⁰ Again he denied it. After a little while, those standing near said to Peter, “Surely you are one of them, for you are a Galilean.”
 
 ⁷¹ He began to call down curses, and he swore to them, “I don’t know this man you’re talking about.”
 
