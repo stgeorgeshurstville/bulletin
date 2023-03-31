@@ -4,17 +4,21 @@ order: 6
 ---
 
 ### Big Idea 
-Jesus alone is able to do what we cannot do. As a result, salvation is through Jesus alone. 
+Have confidence in God who fulfils his plans and brings forgiveness in Jesus rather than in ourselves.
 
 ### Questions
-1. If you’re comfortable, share a time when you feel ‘sick to your stomach’. What happened? How did you feel? 
-2. Mark 14:27-52 is another one of Mark’s sandwich. A story with 3 scenes. The two scenes on the outside (vv.27-31; vv.43-52) to highlight and contrast the scene in the middle (vv.32-42).  
-    - Vv.27-31; Vv.43-52; Vv.32-42
-    - What does Jesus pray for? Why does he pray for this? 
-    - If Jesus is God, if he’s in control (as the narrative shows), and if he knows that he will rise from the dead on the third day, why is he distressed and troubled, overwhelmed with sorrow to the point of death? 
-    - Is Jesus trying to get God the Father to change His mind? If not, what is He praying for?  
-    - It’s not uncommon to think that this is another moment that Jesus is responding to his circumstances as a man (he puts aside his nature as God at this point). What is the problem with this? And what does this scene tell us about God (the Father and the Son)? 
-
-3. Hope does this passage help us to grow up in our relationship with Jesus? 
-     - How would our love be different if we love like God? Who would we love? 
-
+1.     What are you good at (what about yourself are you confident in)? Conversely, what about yourself makes you not confident? 
+2.     Why did the high priest, chief priests, elders and teachers of the law want Jesus dead? 
+3.     How can people be like the high priest etc. in their attitudes and actions to Jesus? 
+4.     Why did the guards beat him? 
+5.     How can people be like the guards in their attitudes and actions to Jesus? 
+6.     Why did Peter deny Jesus? 
+7.   How can people be like Peter in their attitudes and actions to Jesus? 
+7.     Who are you like? When and how have you failed Jesus? 
+8.     How do we see God being in control and fulfill his plans to forgive sinners? 
+9.     Why does Jesus publicly tell people who he is only now and not before? 
+10.  Where are the ironies in these events? What does it show? 
+11.  How is God’s judgment of humanity being placed on Jesus? 
+12.  What would it look like for you to mourn over your sins? 
+13.  What would it look like to have confidence in God and in his power and plans?
+14.  If you aren’t confident, how can you grow in your confidence of God and subsequently yourself? If you are confident, how can you grow in your confidence of God and not yourself? 
