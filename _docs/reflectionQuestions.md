@@ -12,4 +12,4 @@ Crown rather than crucify Jesus.
 3.   What’s your response to Jesus? Will you crown or crucify him? 
 4.   What’s the result of crowning or crucifying Jesus? 
 
-![Our Mission; Make disciples, Love Neighbors Glorify God. Our Vision; Growing up, Growing Deep, Growing Out](https://github.com/stgeorgeshurstville/bulletin/images/upload.JPG)
+![Our Mission; Make disciples, Love Neighbors Glorify God. Our Vision; Growing up, Growing Deep, Growing Out](https://github.com/stgeorgeshurstville/blob/main/bulletin/images/upload.JPG)
