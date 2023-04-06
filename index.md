@@ -5,8 +5,9 @@ title: Welcome
 ### Sermon Series:
 ## Following Jesus
 ---
-#### Lift up your heads, O gates! and be lifted up, O ancient doors! that the king of glory may come in. Who is the King of glory? The Lord of hosts, he is the king of glory! 
-##### Psalm 2:9-10
+#### Jesus says: Now is the judgment of this world, now shall the ruler of this world be cast out; and I, when I am lifted up from the earth will draw all men to myself. 
+
+##### John 12.31
 ---
 We are gathering in person!
 For people who can’t gather in person, we have these 3 options:
