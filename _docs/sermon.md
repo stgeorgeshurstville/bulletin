@@ -6,62 +6,44 @@ order: 1
 ## Bible Reading
 
 ### Prayer
-Almighty God, we thank you for the gift of your holy word. May it be a lantern to our feet, a light to our paths, and strength to our lives. Take us and use us to love and serve all people in the power of the Holy Spirit and in the name of your Son Jesus Christ our Lord.  Amen.
+Father God, your Bible gives life. Help us to hear, read and learn them so that we’ll always hold onto the joyful hope of everlasting life which you have given us in our Saviour Jesus Christ. Amen.
 
-### Mark 14:53-72 (NIV11)
+### Mark 15:16-41 (NIRV)
 
-**Jesus Before the Sanhedrin**
+**The Soldiers Mock Jesus**
+¹⁶ The soldiers led Jesus away into the palace (that is, the Praetorium) and called together the whole company of soldiers. ¹⁷ They put a purple robe on him, then twisted together a crown of thorns and set it on him. ¹⁸ And they began to call out to him, “Hail, king of the Jews!” ¹⁹ Again and again they struck him on the head with a staff and spit on him. Falling on their knees, they paid homage to him. ²⁰ And when they had mocked him, they took off the purple robe and put his own clothes on him. Then they led him out to crucify him.
 
-⁵³ They took Jesus to the high priest, and all the chief priests, the elders and the teachers of the law came together.
+**The Crucifixion of Jesus**
+²¹ A certain man from Cyrene, Simon, the father of Alexander and Rufus, was passing by on his way in from the country, and they forced him to carry the cross. ²² They brought Jesus to the place called Golgotha (which means “the place of the skull”). ²³ Then they offered him wine mixed with myrrh, but he did not take it. ²⁴ And they crucified him. Dividing up his clothes, they cast lots to see what each would get.
 
-⁵⁴ Peter followed him at a distance, right into the courtyard of the high priest. There he sat with the guards and warmed himself at the fire.
+²⁵ It was nine in the morning when they crucified him. ²⁶ The written notice of the charge against him read: the king of the jews.
 
-⁵⁵ The chief priests and the whole Sanhedrin were looking for evidence against Jesus so that they could put him to death, but they did not find any. 
+²⁷ They crucified two rebels with him, one on his right and one on his left. [ ²⁸ ] ²⁹ Those who passed by hurled insults at him, shaking their heads and saying, “So! You who are going to destroy the temple and build it in three days, ³⁰ come down from the cross and save yourself!” ³¹ In the same way the chief priests and the teachers of the law mocked him among themselves. “He saved others,” they said, “but he can’t save himself! ³² Let this Messiah, this king of Israel, come down now from the cross, that we may see and believe.” Those crucified with him also heaped insults on him.
 
-⁵⁶ Many testified falsely against him, but their statements did not agree.
+**The Death of Jesus**
+³³ At noon, darkness came over the whole land until three in the afternoon. ³⁴ And at three in the afternoon Jesus cried out in a loud voice, “Eloi, Eloi, lema sabachthani?” (which means “My God, my God, why have you forsaken me?”). 
 
-⁵⁷ Then some stood up and gave this false testimony against him: 
+³⁵ When some of those standing near heard this, they said, “Listen, he’s calling Elijah.”
 
-⁵⁸ “We heard him say, ‘I will destroy this temple made with human hands and in three days will build another, not made with hands.’”
+³⁶ Someone ran, filled a sponge with wine vinegar, put it on a staff, and offered it to Jesus to drink. “Now leave him alone. Let’s see if Elijah comes to take him down,” he said.
 
-⁵⁹ Yet even then their testimony did not agree.
+³⁷ With a loud cry, Jesus breathed his last.
 
-⁶⁰ Then the high priest stood up before them and asked Jesus, “Are you not going to answer? What is this testimony that these men are bringing against you?” 
+³⁸ The curtain of the temple was torn in two from top to bottom. ³⁹ And when the centurion, who stood there in front of Jesus, saw how he died, he said, “Surely this man was the Son of God!”
 
-⁶¹ But Jesus remained silent and gave no answer. Again the high priest asked him, “Are you the Messiah, the Son of the Blessed One?”
+⁴⁰ Some women were watching from a distance. Among them were Mary Magdalene, Mary the mother of James the younger and of Joseph, and Salome. ⁴¹ In Galilee these women had followed him and cared for his needs. Many other women who had come up with him to Jerusalem were also there.
 
-⁶² “I am,” said Jesus. “And you will see the Son of Man sitting at the right hand of the Mighty One and coming on the clouds of heaven.”
-
-⁶³ The high priest tore his clothes. “Why do we need any more witnesses?” he asked. 
-
-⁶⁴ “You have heard the blasphemy. What do you think?” They all condemned him as worthy of death. 
-
-⁶⁵ Then some began to spit at him; they blindfolded him, struck him with their fists, and said, “Prophesy!” And the guards took him and beat him.
-
-**Peter Disowns Jesus**
-
-⁶⁶ While Peter was below in the courtyard, one of the servant girls of the high priest came by. 
-
-⁶⁷ When she saw Peter warming himself, she looked closely at him. “You also were with that Nazarene, Jesus,” she said.
-
-⁶⁸ But he denied it. “I don’t know or understand what you’re talking about,” he said, and went out into the entryway. 
-
-⁶⁹ When the servant girl saw him there, she said again to those standing around, “This fellow is one of them.” 
-
-⁷⁰ Again he denied it. After a little while, those standing near said to Peter, “Surely you are one of them, for you are a Galilean.”
-
-⁷¹ He began to call down curses, and he swore to them, “I don’t know this man you’re talking about.”
-
-⁷² Immediately the rooster crowed the second time. Then Peter remembered the word Jesus had spoken to him: “Before the rooster crows twice you will disown me three times.” And he broke down and wept.
 
 
 ## Sermon Outline
-### Watch 3: Rooster Crow
+### Watch 4: Dawn 
+### False Start: The destructive sacrilege
 
-1.     Confidence. 
-2.     Everyone denied, deserted or put Jesus to death. 
-3.     Don’t have confidence in yourself. 
-4.     Have confidence in Jesus to fulfil God’s plan and bring forgiveness. 
+1.    Mistakes
+2.    Crown or Crucify Jesus
+3.    Wrong Response
+4.    Right Response 
+
 
 
 ## Q&A
