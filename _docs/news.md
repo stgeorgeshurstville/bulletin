@@ -8,20 +8,10 @@ order: 4
 - **Easter All-Gen Services:**
   - 7th Apr Good Friday 11am
   - 9th Apr Easter Sunday 9:30am & 4pm
-- **Archbishop Video:** https://youtu.be/vb23GUuTaUo 
+- **Water Harvesting System:** There are over 500 students in Nyamusi Primary School Tanzania. Most are poor, can't afford food and lack nutrition. In partnership with the Anglican Diocese of Rorya Tanzania and ARDFA, we are seeking to transform the lives of people living in poverty and demonstrate God's love. We are seeking to raise $7500 (out of a total of $15000 which will be supplemented from our mission budget) over the Easter period (7-23 April) to build a water harvesting system so that children have safe drinking water, the school can grow crops and they can be more self sufficient. Please place and direct your donations to the mission account (BSB032055 AN494673). If you would like a tax deductible receipt, please email: mission@stgeorgeshurstville.org.au
 - **Day of Prayer:** Friday 5 May 7:30pm and Sunday 7 May 2pm. More details to come. 
 - **NewGen on break:** Term 2 will resume on 30 April. All of the Good Friday and Easter Sunday services are all-generations. All-Gen services will be held on April 16 and 23 at English 9:30am and Mandarin 11am. Everyone is welcome to come along. 
-- **Children and Communion:** The Parish Council has adopted a policy to allow children who have been baptised but not yet confirmed to take communion, provided that: 
-1. The child shows a personal desire to share in the Lord’s Supper. 
-2. The parents and the minister agree upon the age and suitability of the child seeking admission to the Lord’s Supper. 
-3. The parents and the child receive instruction about the Lord’s Supper, as approved by the minister. 
-4. The parents and the child are informed that this practice is not a replacement of Confirmation, and that the child should be confirmed at the appropriate age. 
-5. The parents or guardians are communicant members of the congregation.
-Please talk to your pastor if you want to know more.
-- **Discipleship Groups:** The last weekend of this term is Sun 2nd April. Some groups may operate on a different schedule. Please speak to your leader for more information. Term 2 starts on the week of Mon 8th May. 
-- **Fencing and Parking:** Fence replacement project with our neighbouring property will commence from Monday. Section of the church car park will be closed during the weekdays this week.
-- **Sam Chan seminar:** Sat 3 June.  
-  ![Screen Shot 2023-03-17 at 3 12 37 pm](https://user-images.githubusercontent.com/119166299/225810906-cc30fe08-6408-4ce8-b5e0-9fa692a951e2.png)
+
 
 
 
