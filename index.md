@@ -2,6 +2,8 @@
 title: Welcome
 ---
 
+![Screen Shot 2023-04-07 at 8 36 05 am](https://user-images.githubusercontent.com/119166299/230506162-388cc12e-4264-4b22-b5cb-8da9269901a3.png)
+
 ### Sermon Series:
 ## Following Jesus
 ---
