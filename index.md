@@ -7,9 +7,9 @@ title: Welcome
 ### Sermon Series:
 ## Following Jesus
 ---
-#### Jesus says: Now is the judgment of this world, now shall the ruler of this world be cast out; and I, when I am lifted up from the earth will draw all men to myself. 
+#### The Lord is risen indeed, alleluia; to him be glory and dominion for ever and ever. 
 
-##### John 12.31
+##### Luke 24.34; Revelation 1.6
 ---
 We are gathering in person!
 For people who can’t gather in person, we have these 3 options:
