@@ -11,6 +11,7 @@ Thank you Father for making yourself known to us, showing us the way of salvatio
 
 ### Mark 15:33 - 16:8 
 **The Death of Jesus**
+
 ³³ At noon, darkness came over the whole land until three in the afternoon. ³⁴ And at three in the afternoon Jesus cried out in a loud voice, “Eloi, Eloi, lema sabachthani?” (which means “My God, my God, why have you forsaken me?”). 
 
 ³⁵ When some of those standing near heard this, they said, “Listen, he’s calling Elijah.”
@@ -24,9 +25,11 @@ Thank you Father for making yourself known to us, showing us the way of salvatio
 ⁴⁰ Some women were watching from a distance. Among them were Mary Magdalene, Mary the mother of James the younger and of Joseph, and Salome. ⁴¹ In Galilee these women had followed him and cared for his needs. Many other women who had come up with him to Jerusalem were also there.
 
 **The Burial of Jesus**
+
 ⁴² It was Preparation Day (that is, the day before the Sabbath). So as evening approached, ⁴³ Joseph of Arimathea, a prominent member of the Council, who was himself waiting for the kingdom of God, went boldly to Pilate and asked for Jesus’ body. ⁴⁴ Pilate was surprised to hear that he was already dead. Summoning the centurion, he asked him if Jesus had already died. ⁴⁵ When he learned from the centurion that it was so, he gave the body to Joseph. ⁴⁶ So Joseph bought some linen cloth, took down the body, wrapped it in the linen, and placed it in a tomb cut out of rock. Then he rolled a stone against the entrance of the tomb. ⁴⁷ Mary Magdalene and Mary the mother of Joseph saw where he was laid.
 
 **Jesus Has Risen**
+
 **16**
 ¹ When the Sabbath was over, Mary Magdalene, Mary the mother of James, and Salome bought spices so that they might go to anoint Jesus’ body. ² Very early on the first day of the week, just after sunrise, they were on their way to the tomb ³ and they asked each other, “Who will roll the stone away from the entrance of the tomb?”
 
