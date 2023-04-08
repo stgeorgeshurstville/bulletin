@@ -16,9 +16,9 @@ order: 2
 4. In Christ Alone
 
 ## 4pm Easter Sunday
-1.
-2. 
-3. 
-4. 
+1. All Glory be to Christ
+2. Boss of the Cross
+3. Come behold the wondrous mystery
+4. In Christ Alone
 
 Check out the church spotify playlist [here](https://open.spotify.com/playlist/3gh0ZKXkJBDbNEnZqJJDXj?si=0908aa3f87544643)
