@@ -27,7 +27,8 @@ Thank you Father for making yourself known to us, showing us the way of salvatio
 ⁴² It was Preparation Day (that is, the day before the Sabbath). So as evening approached, ⁴³ Joseph of Arimathea, a prominent member of the Council, who was himself waiting for the kingdom of God, went boldly to Pilate and asked for Jesus’ body. ⁴⁴ Pilate was surprised to hear that he was already dead. Summoning the centurion, he asked him if Jesus had already died. ⁴⁵ When he learned from the centurion that it was so, he gave the body to Joseph. ⁴⁶ So Joseph bought some linen cloth, took down the body, wrapped it in the linen, and placed it in a tomb cut out of rock. Then he rolled a stone against the entrance of the tomb. ⁴⁷ Mary Magdalene and Mary the mother of Joseph saw where he was laid.
 
 **Jesus Has Risen**
-16¹ When the Sabbath was over, Mary Magdalene, Mary the mother of James, and Salome bought spices so that they might go to anoint Jesus’ body. ² Very early on the first day of the week, just after sunrise, they were on their way to the tomb ³ and they asked each other, “Who will roll the stone away from the entrance of the tomb?”
+**16**
+¹ When the Sabbath was over, Mary Magdalene, Mary the mother of James, and Salome bought spices so that they might go to anoint Jesus’ body. ² Very early on the first day of the week, just after sunrise, they were on their way to the tomb ³ and they asked each other, “Who will roll the stone away from the entrance of the tomb?”
 
 ⁴ But when they looked up, they saw that the stone, which was very large, had been rolled away. ⁵ As they entered the tomb, they saw a young man dressed in a white robe sitting on the right side, and they were alarmed.
 
