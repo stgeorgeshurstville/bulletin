@@ -3,7 +3,7 @@ title: Welcome
 ---
 
 ### Sermon Series:
-## A Disciples Making Church 
+## A Disciple Making Church 
 ---
 #### The stone which the builders have rejected has become the head of the corner. This is the Lord's doing; it is marvelous in our eyes. 
 
