@@ -3,22 +3,18 @@ title: News
 order: 4
 ---
 
+## Upcoming Dates
+| Sun 16 April | All-Gen services at English 9:30am and Mandarin 11am | 
+| Sun 23 April | All-Gen services at English 9:30am and Mandarin 11am | 
+| Sun 30 April | NewGen Term 2 Commences | 
+| Fri 5 May 7:30pm | Day of Prayer |
+| Sun 7 May 2pm | Day of Prayer |
+| Mon 8 May | Dgroup starts |
+| Sat 3 June | Sam Chan seminar |
+
 ## General
 - **More to Life:** Please speak to Rev. Lam (alan.lam@stgeorgeshurstville.org.au) for more information. 
-- **Easter All-Gen Services:**
-  - 7th Apr Good Friday 11am
-  - 9th Apr Easter Sunday 9:30am & 4pm
-- **Water Harvesting System:** There are over 500 students in Nyamusi Primary School Tanzania. Most are poor, can't afford food and lack nutrition. In partnership with the Anglican Diocese of Rorya Tanzania and ARDFA, we are seeking to transform the lives of people living in poverty and demonstrate God's love. We are seeking to raise $7500 (out of a total of $15000 which will be supplemented from our mission budget) over the Easter period (7-23 April) to build a water harvesting system so that children have safe drinking water, the school can grow crops and they can be more self sufficient. Please place and direct your donations to the mission account (BSB032055 AN494673). If you would like a tax deductible receipt, please email: mission@stgeorgeshurstville.org.au
-- **Day of Prayer:** Friday 5 May 7:30pm and Sunday 7 May 2pm. More details to come. 
-- **NewGen on break:** Term 2 will resume on 30 April. All of the Good Friday and Easter Sunday services are all-generations. All-Gen services will be held on April 16 and 23 at English 9:30am and Mandarin 11am. Everyone is welcome to come along. 
-- **Sam Chan seminar** Saturday 3 June.
-
-
-
-![Sam Chan: How to Talk About Jesus](https://raw.githubusercontent.com/stgeorgeshurstville/bulletin/main/images/upload2.jpg)  
-- **Discipleship Groups:** The last weekend of this term is Sunday the 2nd April. Some groups may operate on a different schedule. Please speak to your leader for more information. Term 2 starts on the week of Mon the 8th of May. 
-
-
+- **Water Harvesting System:** There are over 500 students in Nyamusi Primary School Tanzania. Most are poor, can't afford food and lack nutrition. In partnership with the Anglican Diocese of Rorya Tanzania and ARDFA, we are seeking to transform the lives of people living in poverty and demonstrate God's love. We are seeking to raise $7500 (out of a total of $15000 which will be supplemented from our mission budget) over the Easter period (7-23 April) to build a water harvesting system so that children have safe drinking water, the school can grow crops and they can be more self sufficient. Please place and direct your donations to the mission account (BSB 032055 AN 494673). If you would like a tax deductible receipt, please email: mission@stgeorgeshurstville.org.au
 
 
 ## What’s Next?
