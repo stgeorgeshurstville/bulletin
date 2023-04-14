@@ -4,10 +4,6 @@ order: 2
 ---
 
 ## 9:30am 
-1.
-2.
-3.
-4.
 
 ## 4pm 
 1. More than Conquerors
