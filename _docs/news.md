@@ -6,13 +6,13 @@ order: 4
 ## Upcoming Dates
 | Dates | Events |
 | ----------- | ----------- | 
-| Sun 16 April | All-Gen services at English 9:30am and Mandarin 11am | 
-| Sun 23 April | All-Gen services at English 9:30am and Mandarin 11am | 
-| Sun 30 April | NewGen Term 2 Commences | 
-| Fri 5 May 7:30pm | Day of Prayer |
-| Sun 7 May 2pm | Day of Prayer |
-| Mon 8 May | Dgroup starts |
-| Sat 3 June | Sam Chan seminar |
+| Apr Sun 16  | All-Gen services at English 9:30am and Mandarin 11am | 
+| Apr Sun 23  | All-Gen services at English 9:30am and Mandarin 11am | 
+| Apr Sun 30  | NewGen Term 2 Commences | 
+| May Fri 5 @ 7:30pm | Day of Prayer |
+| May Sun 7 @ 2pm | Day of Prayer |
+| May Mon 8 | Dgroup starts |
+| Jun Sat 3 | Sam Chan seminar |
 
 ## General
 - **More to Life:** Please speak to Rev. Lam (alan.lam@stgeorgeshurstville.org.au) for more information. 
