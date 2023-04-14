@@ -10,6 +10,8 @@ order: 4
 | Apr Sun 23  | All-Gen services at English 9:30am and Mandarin 11am | 
 | Apr Sun 30  | NewGen Term 2 Commences | 
 
+break 
+
 | Dates | Events |
 | ----------- | ----------- | 
 | May Fri 5 @ 7:30pm | Day of Prayer |
