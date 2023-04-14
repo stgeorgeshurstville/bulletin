@@ -9,16 +9,14 @@ order: 4
 | Apr Sun 16  | All-Gen services at English 9:30am and Mandarin 11am | 
 | Apr Sun 23  | All-Gen services at English 9:30am and Mandarin 11am | 
 | Apr Sun 30  | NewGen Term 2 Commences | 
+
+| Dates | Events |
+| ----------- | ----------- | 
 | May Fri 5 @ 7:30pm | Day of Prayer |
 | May Sun 7 @ 2pm | Day of Prayer |
 | May Mon 8 | Dgroup starts |
 | Jun Sat 3 | Sam Chan seminar |
 
-|  | BSB No. | Account No. |
-| ----------- | ----------- | ----------- |
-| General Offertory | 032-055 | 135822 |
-| Missions | 032-055 |494673 |
-| Projects | 032-055 | 253052|
 
 
 ## General
