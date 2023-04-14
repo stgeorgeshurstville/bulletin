@@ -14,6 +14,9 @@ break
 
 | Dates | Events |
 | ----------- | ----------- | 
+| Apr Sun 16  | All-Gen services at English 9:30am and Mandarin 11am | 
+| Apr Sun 23  | All-Gen services at English 9:30am and Mandarin 11am | 
+| Apr Sun 30  | NewGen Term 2 Commences | 
 | May Fri 5 @ 7:30pm | Day of Prayer |
 | May Sun 7 @ 2pm | Day of Prayer |
 | May Mon 8 | Dgroup starts |
