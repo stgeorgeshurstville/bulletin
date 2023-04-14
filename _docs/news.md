@@ -4,6 +4,8 @@ order: 4
 ---
 
 ## Upcoming Dates
+| Dates | Events |
+| ----------- | ----------- | 
 | Sun 16 April | All-Gen services at English 9:30am and Mandarin 11am | 
 | Sun 23 April | All-Gen services at English 9:30am and Mandarin 11am | 
 | Sun 30 April | NewGen Term 2 Commences | 
