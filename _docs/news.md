@@ -7,9 +7,11 @@ order: 4
 
 | Dates | Events |
 | ----------- | ----------- | 
-| Apr Sun 16  | All-Gen services at English 9:30am and Mandarin 11am | 
+
 | Apr Sun 23  | All-Gen services at English 9:30am and Mandarin 11am | 
+| Apr Sat 29 @ 8:30am-12pm | Working Bee | 
 | Apr Sun 30  | NewGen Term 2 Commences | 
+|  @11am | Town Hall Meeting - New Space (see below) | 
 | May Fri 5 @ 7:30pm | Day of Prayer |
 | May Sun 7 @ 2pm | Day of Prayer |
 | May Mon 8 | Dgroup starts |
@@ -23,7 +25,22 @@ order: 4
 
   In partnership with the Anglican Diocese of Rorya Tanzania and ARDFA, we are seeking to transform the lives of people living in poverty and demonstrate God's love. We are seeking to raise $7500 (out of a total of $15000 which will be supplemented from our mission budget) over the Easter period (7-23 April) to build a water harvesting system so that children have safe drinking water, the school can grow crops and they can be more self sufficient. 
 
-  Please place and direct your donations to the mission account (BSB 032055 AN 494673). If you would like a tax deductible receipt, please email: mission@stgeorgeshurstville.org.au
+  Please place and direct your donations to the mission account (BSB 032055 AN 494673). 
+  | BSB | Acc No. |
+  | ----------- | ----------- | 
+  | 032055 | 494673 | 
+
+  If you would like a tax deductible receipt, please email: mission@stgeorgeshurstville.org.au
+- **Local High School Scripture:** You can sign up for prayer updates [here](https://www.hurstvillesre.com/become-a-supporter.) You can partner financially by giving to the following account: 
+
+   | Acc Name | Christian Education Board for Hurstville High Schools |
+  | ----------- | ----------- | 
+  | BSB | 124001 | 
+  | Account Number | 22801395 | 
+  | Description | Your Name  | 
+
+- **New Space**
+  ![Screen Shot 2023-04-21 at 5 28 22 pm](https://user-images.githubusercontent.com/119166299/233571253-33e3e9ea-0c00-4b75-b178-63d6c1390afe.png)
 
 
 ## What’s Next?
