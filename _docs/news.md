@@ -19,7 +19,7 @@ order: 4
 
 | Dates | Events |
 | ----------- | ----------- | 
-| **April**  |  | 
+| **April**    | 
 |  Sun 23  | All-Gen services at English 9:30am and Mandarin 11am | 
 |  Sat 29 @ 8:30am-12pm | Working Bee | 
 |  Sun 30  | NewGen Term 2 Commences | 
