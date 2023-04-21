@@ -25,9 +25,12 @@ order: 4
   In partnership with the Anglican Diocese of Rorya Tanzania and ARDFA, we are seeking to transform the lives of people living in poverty and demonstrate God's love. We are seeking to raise $7500 (out of a total of $15000 which will be supplemented from our mission budget) over the Easter period (7-23 April) to build a water harvesting system so that children have safe drinking water, the school can grow crops and they can be more self sufficient. 
 
   Please place and direct your donations to the mission account below
+  
   | BSB | Acc No. |
   | ----------- | ----------- | 
   | 032055 | 494673 | 
+  
+  
 
   If you would like a tax deductible receipt, please email: mission@stgeorgeshurstville.org.au
 - **Local High School Scripture:** You can sign up for prayer updates [here](https://www.hurstvillesre.com/become-a-supporter.) You can partner financially by giving to the following account: 
