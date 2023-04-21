@@ -4,6 +4,10 @@ order: 2
 ---
 
 ## 9:30am 
+1. Let Your Kingdom Come
+2. As The Deer
+3. In Christ Alone
+4. Jesus Strong And Kind
 
 ## 4pm 
 1. Your Word
