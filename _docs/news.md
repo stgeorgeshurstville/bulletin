@@ -15,6 +15,7 @@ order: 4
 | May Sun 7 @ 2pm | Day of Prayer |
 | May Mon 8 | Dgroup starts |
 | Jun Sat 3 | Sam Chan seminar |
+| Jun Sat 17 | EQUIP |
 
 
 
