@@ -10,7 +10,7 @@ order: 4
 | Apr Sun 23  | All-Gen services at English 9:30am and Mandarin 11am | 
 | Apr Sat 29 @ 8:30am-12pm | Working Bee | 
 | Apr Sun 30  | NewGen Term 2 Commences | 
-|  @11am | Town Hall Meeting - New Space (see below) | 
+| Apr Sun 30 @11am | Town Hall Meeting - New Space (see below) | 
 | May Fri 5 @ 7:30pm | Day of Prayer |
 | May Sun 7 @ 2pm | Day of Prayer |
 | May Mon 8 | Dgroup starts |
@@ -24,7 +24,7 @@ order: 4
 
   In partnership with the Anglican Diocese of Rorya Tanzania and ARDFA, we are seeking to transform the lives of people living in poverty and demonstrate God's love. We are seeking to raise $7500 (out of a total of $15000 which will be supplemented from our mission budget) over the Easter period (7-23 April) to build a water harvesting system so that children have safe drinking water, the school can grow crops and they can be more self sufficient. 
 
-  Please place and direct your donations to the mission account (BSB 032055 AN 494673). 
+  Please place and direct your donations to the mission account below
   | BSB | Acc No. |
   | ----------- | ----------- | 
   | 032055 | 494673 | 
