@@ -4,16 +4,16 @@ order: 6
 ---
 
 ### Big Idea 
-Make disciples of God, with God and for God. 
+Aim of Christian life and church life is for the Gospel to grow!
 
 ### Questions
-1. What’s are the top 10 things you hope to do in life? 
-2. What’s Jesus’ mission? 
-3. What would it look like for you to grow deep as a disciple of God? 
-4. What would it look like for you to make and multiply disciples of God? 
-5. What will need to stay the same in your life? What would need to change? What would you need to do more or less of? 
-6. Pray for one person you are seeking to make a disciple of God.
-7. Pray for one person you are seeking to mature as a disciple of God. 
+1.	What does Paul thank God for vv.3-7? Why? 
+2.	How is Gospel growth different to Church growth? 
+3.	What does Paul pray for in vv.8-14? Why? 
+4.	What is spiritual maturity? 
+5.	What is the difference between focusing on problems vs focusing on growth in our prayer, in our d-group, and in our daily living? 
+7.	Revisit your plans for growth and assess its progress. 
+
 
 
 
