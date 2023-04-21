@@ -5,9 +5,9 @@ title: Welcome
 ### Sermon Series:
 ## A Disciple Making Church 
 ---
-#### The stone which the builders have rejected has become the head of the corner. This is the Lord's doing; it is marvelous in our eyes. 
+#### Make a joyful noise to God, all the earth; sing to the glory of his name; give to him glorious praise.
 
-##### Psalm 118.24-25 
+##### Psalm 66.1-3 
 ---
 We are gathering in person!
 For people who can’t gather in person, you can watch online [here](https://stgeorgeshurstville.org.au/sunday-english-online)
