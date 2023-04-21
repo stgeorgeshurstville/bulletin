@@ -7,7 +7,6 @@ order: 4
 
 | Dates | Events |
 | ----------- | ----------- | 
-
 | Apr Sun 23  | All-Gen services at English 9:30am and Mandarin 11am | 
 | Apr Sat 29 @ 8:30am-12pm | Working Bee | 
 | Apr Sun 30  | NewGen Term 2 Commences | 
@@ -33,13 +32,14 @@ order: 4
   If you would like a tax deductible receipt, please email: mission@stgeorgeshurstville.org.au
 - **Local High School Scripture:** You can sign up for prayer updates [here](https://www.hurstvillesre.com/become-a-supporter.) You can partner financially by giving to the following account: 
 
-   | Acc Name | Christian Education Board for Hurstville High Schools |
+  | Acc Name | Christian Education Board for Hurstville High Schools |
   | ----------- | ----------- | 
   | BSB | 124001 | 
   | Account Number | 22801395 | 
   | Description | Your Name  | 
 
 - **New Space**
+
   ![Screen Shot 2023-04-21 at 5 28 22 pm](https://user-images.githubusercontent.com/119166299/233571253-33e3e9ea-0c00-4b75-b178-63d6c1390afe.png)
 
 
