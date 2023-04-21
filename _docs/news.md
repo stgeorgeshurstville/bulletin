@@ -17,6 +17,20 @@ order: 4
 | Jun Sat 3 | Sam Chan seminar |
 | Jun Sat 17 | EQUIP |
 
+| Dates | Events |
+| ----------- | ----------- | 
+| **April**  |  | 
+|  Sun 23  | All-Gen services at English 9:30am and Mandarin 11am | 
+|  Sat 29 @ 8:30am-12pm | Working Bee | 
+|  Sun 30  | NewGen Term 2 Commences | 
+|  Sun 30 @11am | Town Hall Meeting - New Space (see below) | 
+| **May**  |  | 
+|  Fri 5 @ 7:30pm | Day of Prayer |
+|  Sun 7 @ 2pm | Day of Prayer |
+|  Mon 8 | Dgroup starts |
+| **June**  |  | 
+|  Sat 3 | Sam Chan seminar |
+|  Sat 17 | EQUIP |
 
 
 ## General
