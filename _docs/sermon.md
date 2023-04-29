@@ -6,25 +6,48 @@ order: 1
 ## Bible Reading
 
 ### Prayer
-Thank you Father for making yourself known to us, showing us the way of salvation through faith in your Son. We ask you now to teach us through your word, so that we may be ready to serve you, for the glory of our Lord Jesus Christ. Amen.
+Heavenly Father, give us faith to receive your word, understanding to know what it means, and the will to put it into practice; through Jesus Christ our Lord. Amen.
 
 
-### Colossians 1:3-14 (NIRV)
+### 1 Samuel 1 (NIV)
 
-³ We always thank God, the Father of our Lord Jesus Christ, when we pray for you. ⁴ We thank him because we have heard about your faith in Christ Jesus. We have also heard that you love all God’s people. ⁵ Your faith and love are based on the hope you have. What you hope for is stored up for you in heaven. You have already heard about it. You were told about it when the true message was given to you. I’m talking about the good news ⁶ that has come to you. In the same way, the good news is bearing fruit. It is bearing fruit and growing all over the world. It has been doing that among you since the day you heard it. That is when you really understood God’s grace. ⁷ You learned the good news from Epaphras. He is dear to us. He serves Christ together with us. He faithfully works for Christ and for us among you. ⁸ He also told us about your love that comes from the Holy Spirit.
+¹ There was a certain man from Ramathaim, a Zuphite from the hill country of Ephraim, whose name was Elkanah son of Jeroham, the son of Elihu, the son of Tohu, the son of Zuph, an Ephraimite. ² He had two wives; one was called Hannah and the other Peninnah. Peninnah had children, but Hannah had none.
 
-⁹ That’s why we have not stopped praying for you. We have been praying for you since the day we heard about you. We keep asking God to fill you with the knowledge of what he wants. We pray he will give you the wisdom and understanding that the Spirit gives. ¹⁰ Then you will be able to lead a life that is worthy of the Lord. We pray that you will please him in every way. So we want you to bear fruit in every good thing you do. We pray that you will grow to know God better. ¹¹ We want you to be very strong, in keeping with his glorious power. We want you to be patient. We pray that you will never give up. ¹² We want you to give thanks with joy to the Father. He has made you fit to have what he will give to all his holy people. You will all receive a share in the kingdom of light. ¹³ He has saved us from the kingdom of darkness. He has brought us into the kingdom of the Son he loves. ¹⁴ Because of what the Son has done, we have been set free. Because of him, all our sins have been forgiven.
+³ Year after year this man went up from his town to worship and sacrifice to the Lord Almighty at Shiloh, where Hophni and Phinehas, the two sons of Eli, were priests of the Lord. ⁴ Whenever the day came for Elkanah to sacrifice, he would give portions of the meat to his wife Peninnah and to all her sons and daughters. ⁵ But to Hannah he gave a double portion because he loved her, and the Lord had closed her womb. ⁶ Because the Lord had closed Hannah’s womb, her rival kept provoking her in order to irritate her. ⁷ This went on year after year. Whenever Hannah went up to the house of the Lord, her rival provoked her till she wept and would not eat. ⁸ Her husband Elkanah would say to her, “Hannah, why are you weeping? Why don’t you eat? Why are you downhearted? Don’t I mean more to you than ten sons?”
+
+⁹ Once when they had finished eating and drinking in Shiloh, Hannah stood up. Now Eli the priest was sitting on his chair by the doorpost of the Lord’s house. ¹⁰ In her deep anguish Hannah prayed to the Lord, weeping bitterly. ¹¹ And she made a vow, saying, “Lord Almighty, if you will only look on your servant’s misery and remember me, and not forget your servant but give her a son, then I will give him to the Lord for all the days of his life, and no razor will ever be used on his head.”
+
+¹² As she kept on praying to the Lord, Eli observed her mouth. ¹³ Hannah was praying in her heart, and her lips were moving but her voice was not heard. Eli thought she was drunk ¹⁴ and said to her, “How long are you going to stay drunk? Put away your wine.”
+
+¹⁵ “Not so, my lord,” Hannah replied, “I am a woman who is deeply troubled. I have not been drinking wine or beer; I was pouring out my soul to the Lord. ¹⁶ Do not take your servant for a wicked woman; I have been praying here out of my great anguish and grief.”
+
+¹⁷ Eli answered, “Go in peace, and may the God of Israel grant you what you have asked of him.”
+
+¹⁸ She said, “May your servant find favor in your eyes.” Then she went her way and ate something, and her face was no longer downcast.
+
+¹⁹ Early the next morning they arose and worshiped before the Lord and then went back to their home at Ramah. Elkanah made love to his wife Hannah, and the Lord remembered her. ²⁰ So in the course of time Hannah became pregnant and gave birth to a son. She named him Samuel, saying, “Because I asked the Lord for him.”
+
+²¹ When her husband Elkanah went up with all his family to offer the annual sacrifice to the Lord and to fulfill his vow, ²² Hannah did not go. She said to her husband, “After the boy is weaned, I will take him and present him before the Lord, and he will live there always.” 
+
+²³ “Do what seems best to you,” her husband Elkanah told her. “Stay here until you have weaned him; only may the Lord make good his word.” So the woman stayed at home and nursed her son until she had weaned him.
+
+²⁴ After he was weaned, she took the boy with her, young as he was, along with a three-year-old bull, an ephah of flour and a skin of wine, and brought him to the house of the Lord at Shiloh. ²⁵ When the bull had been sacrificed, they brought the boy to Eli, ²⁶ and she said to him, “Pardon me, my lord. As surely as you live, I am the woman who stood here beside you praying to the Lord. ²⁷ I prayed for this child, and the Lord has granted me what I asked of him. ²⁸ So now I give him to the Lord. For his whole life he will be given over to the Lord.” And he worshiped the Lord there.
+
 
 
 
 ## Sermon Outline
-### Growth is the goal 
 
-1. Before you get to who you are now
-2. Growing Out
-3. Growing Deep 
-4. Growing Up
-5. Thanksgiving and praying for each other 
+Helps from the Son of David 
+
+Israel’s misery 
+
+Hannah’s misery 
+
+Hannah’s prayer 
+
+Hannah’s boast 
+
 
 
 ## Q&A
