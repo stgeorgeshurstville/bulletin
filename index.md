@@ -3,7 +3,7 @@ title: Welcome
 ---
 
 ### Sermon Series:
-## A Growing Church 
+## A king after God's own heart: 1 Samuel
 
 ![Screen Shot 2023-04-21 at 5 21 24 pm](https://user-images.githubusercontent.com/119166299/233568707-543eacc2-1ff0-4126-84e1-b5ca51776130.png)
 
