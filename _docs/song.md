@@ -10,9 +10,9 @@ order: 2
 4. Rejoice the Lord is King
 
 ## 4pm 
-1. Your Word
-2. Only a Holy God
-3. Surrender All
-4. Be Thou my Vision
+1.
+2. 
+3. 
+4. 
 
 Check out the church spotify playlist [here](https://open.spotify.com/playlist/3gh0ZKXkJBDbNEnZqJJDXj?si=0908aa3f87544643)
