@@ -8,8 +8,6 @@ order: 4
 | Dates | Events |
 | ----------- | ----------- | 
 | **A P R I L**    | 
-|  Sun 23  | All-Gen services at English 9:30am and Mandarin 11am | 
-|  Sat 29 @ 8:30am-12pm | Working Bee | 
 |  Sun 30  | NewGen Term 2 Commences | 
 |  Sun 30 @11am | Town Hall Meeting - New Space (see below) | 
 | **M A Y**  |  | 
@@ -22,31 +20,17 @@ order: 4
 
 
 ## General
-- **More to Life:** Please speak to Rev. Lam (alan.lam@stgeorgeshurstville.org.au) for more information. 
-- **Water Harvesting System:** There are over 500 students in Nyamusi Primary School Tanzania. Most are poor, can't afford food and lack nutrition. 
-
-  In partnership with the Anglican Diocese of Rorya Tanzania and ARDFA, we are seeking to transform the lives of people living in poverty and demonstrate God's love. We are seeking to raise $7500 (out of a total of $15000 which will be supplemented from our mission budget) over the Easter period (7-23 April) to build a water harvesting system so that children have safe drinking water, the school can grow crops and they can be more self sufficient. 
-
-  Please place and direct your donations to the mission account below
-  
-  | BSB | Acc No. |
-  | ----------- | ----------- | 
-  | 032055 | 494673 | 
-  
-  
-
-  If you would like a tax deductible receipt, please email: mission@stgeorgeshurstville.org.au
-- **Local High School Scripture:** You can sign up for prayer updates [here](https://www.hurstvillesre.com/become-a-supporter.) You can partner financially by giving to the following account: 
-
-  | Acc Name | Christian Education Board for Hurstville High Schools |
-  | ----------- | ----------- | 
-  | BSB | 124001 | 
-  | Account Number | 22801395 | 
-  | Description | Your Name  | 
-
-- **New Space**
-
-  ![Screen Shot 2023-04-21 at 5 28 22 pm](https://user-images.githubusercontent.com/119166299/233571253-33e3e9ea-0c00-4b75-b178-63d6c1390afe.png)
+- **More to Life & Baptism:** Please speak to Rev. Lam (alan.lam@stgeorgeshurstville.org.au) for more information. There’ll be sessions (5 weeks of 1 hour each) on Sundays 11am, Fridays 8pm and Sundays 5:30pm (depending on number of participants). Optional baptism course (2 weeks of 1 hour) after. 
+- **Water Harvesting System:** We were seeking to raise $7500 to build a water harvesting system for the students in Nyamusi Primary School Tanzania. We praise God that $8534 have been raised.
+- **Day of Prayer:** Day of Prayer: Friday 5 May 7:30pm and Sunday 7 May 2pm. More details to come. 
+- **New Space** Town hall meeting after service next week 30/4 Sunday 11am. We’re aiming to move to 124 Forest Rd on **21 May 2023.**
+![Screen Shot 2023-04-21 at 5 28 22 pm](https://user-images.githubusercontent.com/119166299/233571253-33e3e9ea-0c00-4b75-b178-63d6c1390afe.png)
+- **Commencement of Ministries:**
+a. NewGen: Term 2 will resume in on 30 April. 
+b. Youth: Fridays 5:3-7:30pm. Afternoon Club from 4pm.  
+c. English Classes: Wed 10am-12pm. 
+d. Discipleship Groups: Term 2 starts on the week of Mon the 8th of May. 
+- **Working Bee:** Thank you for those who were part of the working bee yesterday. 
 
 
 ## What’s Next?
