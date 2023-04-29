@@ -15,12 +15,12 @@ The book of Samuel is part of Jesus’ back story. Knowing this story will help 
     The book is set in the time of the Judges and is full of the type of twists and turns that we would find in a great Hollywood blockbuster- political intrigue, family turmoil, sex, betrayal etc. The book is about the monarchy. But this too is not the main theme. The key question of the book is: how will God keep His promise to save His people and bless the nations, and reverse the Curse of the Fall. God’s plan has to do with David and the promise about his Son. God will bring His kingdom on earth through the means of a covenant. As the story of Samuel unfolds, we get deeper insight into who our God is, how He works, and who we are.
 
     If you have done so, please consider reading through 1 and 2 Samuel.] 
-
-Please read Judges 21:25 : 
+    
+    Please read Judges 21:25 : 
 
 2. What is the context of the book of Samuel? 
-
-Please read 1 Samuel 1 and 2: 
+   
+   Please read 1 Samuel 1 and 2: 
 
 3. What happened? Who are the characters, what are they like, what happened, what stood out to you? (How is this story similar to other stories in the Bible so far?) 
 
