@@ -4,10 +4,10 @@ order: 2
 ---
 
 ## 9:30am 
-1. Let Your Kingdom Come
-2. As The Deer
-3. In Christ Alone
-4. Jesus Strong And Kind
+1. All Creatures of Our God and King
+2. An Can It Be
+3. How Deep The Father's Love For Us
+4. Rejoice the Lord is King
 
 ## 4pm 
 1. Your Word
