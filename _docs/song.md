@@ -11,9 +11,9 @@ order: 2
 
 ## 4pm 
 
-1.
-2. 
-3. 
-4. 
+1. All Creatures of Our God and King
+2. Hear me lord
+3. Yet not I but through Christ in me
+4. Before the throne of God Above
 
 Check out the church spotify playlist [here](https://open.spotify.com/playlist/3gh0ZKXkJBDbNEnZqJJDXj?si=0908aa3f87544643)
