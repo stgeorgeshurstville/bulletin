@@ -27,10 +27,10 @@ order: 4
 - **New Space** Town hall meeting after service next week 30/4 Sunday 11am. We’re aiming to move to 124 Forest Rd on **21 May 2023.**
 ![Screen Shot 2023-04-21 at 5 28 22 pm](https://user-images.githubusercontent.com/119166299/233571253-33e3e9ea-0c00-4b75-b178-63d6c1390afe.png)
 - **Commencement of Ministries:**
-   a. NewGen: Term 2 will resume in on 30 April. 
-   b. Youth: Fridays 5:3-7:30pm. Afternoon Club from 4pm.  
-   c. English Classes: Wed 10am-12pm. 
-   d. Discipleship Groups: Term 2 starts on the week of Mon the 8th of May. 
+   - NewGen: Term 2 will resume in on 30 April. 
+   - Youth: Fridays 5:3-7:30pm. Afternoon Club from 4pm.  
+   - English Classes: Wed 10am-12pm. 
+   - Discipleship Groups: Term 2 starts on the week of Mon the 8th of May. 
 - **Working Bee:** Thank you for those who were part of the working bee yesterday. 
 
 
