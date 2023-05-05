@@ -6,56 +6,36 @@ order: 3
 ## Sunday Prayer Points
 
 - **Lord’s Prayer:** Our Father in heaven, hallowed be your name, your kingdom come, your will be done on earth as in heaven. Give us today our daily bread. Forgive us our sins as we forgive those who sin against us. Lead us not into temptation, but deliver us from evil. For the kingdom, the power, and the glory are yours now and forever.
-- **Collect**: Almighty God, you have given your only Son to be for us both a sacrifice for sin and also an example of godly life; give us grace that we may always thankfully receive the immeasurable benefit of his sacrifice, and also daily endeavour to follow in the blessed steps of his most holy life; who now lives and reigns with you and the Holy Spirit, one God, for evermore. Amen.
+- **Collect**: Almighty God, you alone can order the unruly wills and passions of sinful men: grant to your people that they may love what you command and desire what you promise, that so, among the many and varied changes of the world, our hearts may surely there be fixed where true joys are to be found; through Jesus Christ our Lord. Amen.
 - **Church Mission “Make Disciples,Love neighbours, Glorify God”:** Our gracious Father, thank you for the privilege of calling us to join in your mission. Thank you that under you what we do makes a difference in the world. We pray therefore that you will save those around us and to transform them into the likeness of Jesus. Please use us to make disciples of the nations, love our neighbours. Please Father, glorify yourself, through our labour in your Son. We pray that we will not be consumers but contributors to the ministries that you have called us to. 
-
-- **Church Sermon:** “Our gracious Lord and heavenly Father, 
-Our heart rejoices in you; you have given strength to our Jesus Christ and exalted him by his Resurrection, 
-in Him you have given us victory over sin, the world and the Enemy. 
-We lift our voices to you before your enemies, for we delight in your salvation. 
-There is no one holy like the Lord; there is no one besides you; there is no Rock like our God. 
-Forgive us when we speak proudly or with arrogance, forgive us when we forget that  
-you know and will judge our deeds. 
-We praise you that you are the God of the strong and weak, the rich and the poor, 
-That you will humble the great ones in the world, and bless the poor and the meek. 
-You are the one who closes wombs and opens them. 
-You give and you take. You bring death and make alive. 
-For the foundations of the earth are yours; upon them you have set the world. 
-You will guard the feet of his saints, but the wicked will be silenced in darkness. 
-Help us not to boast in strength and power, but in you and the Gospel of your son, your power for salvation for all those who believe. 
+- **Church Sermon:** Our gracious Lord and heavenly Father, our heart breaks when we see prominent Christians fall. We grieve at those who have suffered and continue to suffer as a result of their actions and our inaction. Often, we, your church, have been complicit and have contributed to the evil and suffering. We are ashamed of the failures that dishonour your Name and cause the world to blaspheme against you. Thank you that Jesus is what we could not be. Thank you that Jesus died for our sins and shame. Thank you that Jesus faithfully makes your name known. Thank you that Jesus glorifies you with his obedience. Thank you that Jesus is our great high priest.  Thank you for making us into a chosen people, a royal priesthood, a holy nation, a people belonging to you, that we  may declare your praises. Please help us to live such good lives among the pagans that, though they accuse us of doing wrong, they may see our good deeds and glorify you on the day you visit us. Amen. 
 
 
  
 
 ## Weekly Prayer Points
 
-- **New School Commencing**
-- **Ministries Re-Commencing** 
-- **Those struggling with infertility and in difficult marriages and family situations:** 
-We pray for those who long to be moms, long to have children, and yet are not able to do so.
-Father of mercies, give us comfort in our sadness, trust in you despite unfulfilled longings,
-and joy in knowing that you never stop loving us or having our best in mind. We pray these things to you as our Father, who loved us before the world began, and will love us forevermore.
-In Jesus’ name, amen!
-
-Lord Jesus, 
-
-We come before your throne of grace today bringing marriages and families with us. We pray for those in difficult family situations and marriages, those who are discouraged, disconnected, despairing, broken. Yet your Word reminds us that your grace is sufficient. Your love for us in Jesus is better than life. Your love is enough to satisfy our deepest longings and thirst. Your Spirit is able to change us and giving us hope for what is to come. 
-
-Jesus free us from our sin so that we can love our spouse and our family in all circumstances.Protect us from the Evil one and rescue us from ourselves. Show us how to care for one another in ways that bring your glory. Bring hope to the hopeless, conviction to the foolish, nourishment to the famished, grace to the betrayed, and repentance to the betrayers. Help us to abide in you, as you abide in us. Amen. 
-
 - Others can be found [here](https://stgeorgeshurstville.org.au/prayer)
 
 
 ## Mission Partners
 
-- You can go [here](https://stgeorgeshurstville.org.au/mission-partners) for more information on how to pray, support and give 
+- **Compassion:** Jesus came to seek and to save the lost. You tell us that true religion is to visit orphans and widows in their affliction. May Compassion Australia seek to release children from poverty in Jesus’ name. May we do what we can to love children and their families so that they will mature physically, mentally, socially and most importantly spiritually. May we prayerfully invest in the lives of the children in Sumba Indonesia and see a whole region won and living for God. 
+- **Persecuted Christians:** We thank you for sending Jesus who is sovereign and came to save the world by sacrificing himself. Please give patience and perseverance to those who are being persecuted for the faith. May they be an model and example of what it means to have a calling in life and a confidence for the future. May they seek to do the will of you rather than themselves. May there be justice. If this isn’t achieved, may they keep looking to you as the judge and respond with love rather than revenge. You can sign up for more prayer points and updates of persecuted Christians from Open Doors (https://vom.com.au/pray-for-the-persecuted-church/) and Voice of the Martyrs (https://vom.com.au/prayer/). 
+- You can go [here](https://stgeorgeshurstville.org.au/mission-partners) for more information on how to pray, support and give. 
 
 ## Regular Prayer Points
 
-- **Moore College:** We thank you for providing stewards to equip your saints for the work of ministry. Praise God for using Moore Theological College to encourage Christians to be more like Jesus and share about Him in Sydney and the world. Pray that God will keep the board, faculty and students godly, prayerful and other people centred. May the seed sown during the [Moore College Missions](https://moore.edu.au/missions) bear much fruit. You can find more prayer points [here](https://moore.edu.au/support-moore/prayer-points/)
+- **World:** We pray that you will lead the nations of the world in the ways of righteousness and peace. Please guide our rulers in wisdom and justice. May there be tranquillity so that we can live godly and holy lives and people can come to the knowledge of the truth. May we submit to those you’ve placed in authority and ultimately to your reign and rule. May people live and long for the new world to come rather than seek to gain the world and forfeit our souls. 
 
-- **Anglicare:** God of Life Giving Creation, You call us to act justly, to love mercy, to walk humbly with you. Enable Anglicare to meet human need through loving service and to build communities of resilience, hope and justice. Encourage us to work in mutual partnership to effect positive change. Empower the people we serve to reach their full potential, especially those who experience disadvantage and injustice. Guide us in our advocacy for social justice and strengthen our determination to respond with compassion. Remind us to care for ourselves and each other as we face the challenges of our work, and as we seek reconciliation, healing and community transformation. May you use Anglicare to see Jesus Christ honoured, lives enriched and communities strengthened. All this we pray in the name of Jesus Christ, our servant leader and friend. Amen. You can download the 2023 Anglicare Prayer Diary [here](www.anglicare.org.au/about-us/ministry-partnerships/prayer-diary/)
+- **Redevelopment:** Our Gracious God and Heavenly Father, You know our needs. You have richly provided and we know that you will continue to provide what we need for the mission that you have called us to. May our faithful stewardship bear witness to the love of Jesus Christ in our lives. We pray this in the name of the one who is building us into a spiritual house for a holy priesthood and to offer up spiritual sacrifices acceptable to you.
 
-- **Anglican Aid:** Heavenly Father, whose will it is that all people be saved, and come to a knowledge of the truth, and whose will it is that we care for the poor, needy, widows, orphans and refugees. We pray for the work of Anglican Aid. We pray for your grace to fulfil every good work that you have prepared for us in advance to do as we anticipate the triumphant return of our King and Saviour, in whose name we pray. You can sign up for more prayer points [here] (https://anglicanaid.org.au/get-involved/pray/). You can grab a copy of their newsletter (Grace News) in the Foyer.  
+- **Sunday Services:** Thank you heavenly Father for our ascended King. Thank you for the gifts of apostles, evangelists, pastors, teachers, service leaders, musicians and all those who serve us. We pray that you will use their service for the building up of the church, that we may reach unity in the faith and in the knowledge of your Son and become mature. We ask this for Bible readers, service leaders, musicians, welcomers and other volunteers. 
 
-- **Volunteers:** Everlasting God, we give thanks for the many volunteers who have been faithfully serving in different ministries at church. Please strengthen and sustain them with patience and understanding that they may love and care for your people. Please grant that together they may follow Jesus Christ, offer you their given gifts and talents, and build up the church, the body of Christ. Father God, please encourage those who haven’t served in any ministry yet to come forward in faith and use their spiritual gifts to serve you and your people .
+- **Staff and Parish Council:** We praise you for the leaders you’ve appointed over us. May they love and care for the church of God which you obtained with your own blood. May they prayerfully set forth the life giving word through their lives and teaching. Clothe them with holiness, zeal and servant heartedness. We pray for our wardens and parish councillors, may they have wisdom, insight and passion to see our church family be spiritually transformed for your glory. Please use them to help us stay focused and accountable with the resources you’ve given us. 
+
+- **English Congregations:** May we have Jesus as the centre of our lives in 2023. May God use our programs and plans to see us deepen our trust, have a personal relationship with God and have a faith that is public. 
+
+
+- **Families:** We remember the families of our church community. We pray that despite the busyness, you will be an ever presence and comfort to them. Please help kids and their families to set the right priorities, the discipline to say ‘no’. Please be with those who feel stressed and challenged, that you will provide timely help in their needs. We thank God for all those who are part of the English congregations of this church - Wednesday, 930am and 4pm. We pray that as we seek to minister to one another in 2022, that you will mercifully cause us to grow in our knowledge of your love, that we will grow in our love for you, for one another and to our neighbours. May our love for and devotion to you be our greatest desire. We bow our knees before you the Father from whom every family is named. Bless our homes. Help parents and spiritual uncles and aunties to impart the knowledge of you and of your love; and children to respond with love and obedience. May our homes be blessed with peace, truth and joy. We praise you, God of love and the creator of the universe, for making us male and female, and giving us the gift of each other. We pray for those who, like our Lord Jesus Christ, are unmarried; either by external factors, their own decision and/or devotion to you. Lord, we praise you for the new family you have created, the household of all who believe in your Son. Father, help us to love one another in deep and meaningful friendships that no one may feel alone or without the joy of companionship. Deepen our trust in your provision for all our needs so that we may live in contentment until we all come to your eternal kingdom; through Jesus Christ our Lord. 
+
