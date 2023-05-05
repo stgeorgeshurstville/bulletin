@@ -10,7 +10,7 @@ order: 4
 | **M A Y**  |  | 
 |  Sun 7 @ 2pm | Day of Prayer |
 |  Mon 8 | Dgroup starts |
-|  Sun 21 | Moving to New Space |
+|  Sun 21 | Moving to Additional Space (9:30am) |
 | **J U N E**  |  | 
 |  Sat 3 | Sam Chan seminar |
 |  Sat 17 | EQUIP |
@@ -25,7 +25,7 @@ order: 4
    - c. English Classes: Wed 10am-12pm. 
    - d. Discipleship Groups: Term 2 starts on the week of Mon the 8th of May. 
 
-- **Additional Space** We’re aiming to move to 124 Forest Rd on **21 May 2023.**
+- **Additional Space:** We’re aiming to move to 124 Forest Rd on **21 May 2023.**
 ![Screen Shot 2023-04-21 at 5 28 22 pm](https://user-images.githubusercontent.com/119166299/233571253-33e3e9ea-0c00-4b75-b178-63d6c1390afe.png)
 - **Coffee Cart:** We are serving baristas coffee after 9:30am church today. Order your coffee at the sign-in area. $3 (small) $4 (large). Why not buy coffee for someone you don’t know?
 
