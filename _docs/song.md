@@ -1,5 +1,5 @@
 ---
-title: Song
+title: Songs
 order: 2
 ---
 
@@ -12,8 +12,8 @@ order: 2
 ## 4pm 
 
 1. All Creatures of Our God and King
-2. Hear me Lord
-3. Yet not I but through Christ in me
-4. Before the Throne of God Above
+2. Only A Holy God
+3. Rock of Ages
+4. Once For All
 
 Check out the church spotify playlist [here](https://open.spotify.com/playlist/3gh0ZKXkJBDbNEnZqJJDXj?si=0908aa3f87544643)
