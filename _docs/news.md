@@ -7,11 +7,7 @@ order: 4
 
 | Dates | Events |
 | ----------- | ----------- | 
-| **A P R I L**    | 
-|  Sun 30  | NewGen Term 2 Commences | 
-|  Sun 30 @11am | Town Hall Meeting - New Space (see below) | 
 | **M A Y**  |  | 
-|  Fri 5 @ 7:30pm | Day of Prayer |
 |  Sun 7 @ 2pm | Day of Prayer |
 |  Mon 8 | Dgroup starts |
 |  Sun 21 | Moving to New Space |
@@ -22,17 +18,16 @@ order: 4
 
 ## General
 - **More to Life & Baptism:** Please speak to Rev. Lam (alan.lam@stgeorgeshurstville.org.au) for more information. There’ll be sessions (5 weeks of 1 hour each) on Sundays 11am, Fridays 8pm and Sundays 5:30pm (depending on number of participants). Optional baptism course (2 weeks of 1 hour) after. 
-- **Water Harvesting System:** We were seeking to raise $7500 to build a water harvesting system for the students in Nyamusi Primary School Tanzania. We praise God that $8534 have been raised.
-- **Day of Prayer:** Day of Prayer: Friday 5 May 7:30pm and Sunday 7 May 2pm. More details to come. 
-- **New Space** Town hall meeting after service next week 30/4 Sunday 11am. We’re aiming to move to 124 Forest Rd on **21 May 2023.**
-![Screen Shot 2023-04-21 at 5 28 22 pm](https://user-images.githubusercontent.com/119166299/233571253-33e3e9ea-0c00-4b75-b178-63d6c1390afe.png)
-- **Commencement of Ministries:**
-   - NewGen: Term 2 will resume in on 30 April. 
-   - Youth: Fridays 5:3-7:30pm. Afternoon Club from 4pm.  
-   - English Classes: Wed 10am-12pm. 
-   - Discipleship Groups: Term 2 starts on the week of Mon the 8th of May. 
-- **Working Bee:** Thank you for those who were part of the working bee yesterday. 
+- **Growing Out Seminar with Dr. Sam Chan:**  Saturday 3 June 9:15am-2:15pm. We'll be trained on how we can make meaningful connections with non-Christians and share the gospel.
+- **Commencement of Ministries:** 
+   - a. NewGen: Term 2 will resume in on 30 April. 
+   - b. Youth: Fridays 5:3-7:30pm. Afternoon Club from 4pm.  
+   - c. English Classes: Wed 10am-12pm. 
+   - d. Discipleship Groups: Term 2 starts on the week of Mon the 8th of May. 
 
+- **Additional Space** We’re aiming to move to 124 Forest Rd on **21 May 2023.**
+![Screen Shot 2023-04-21 at 5 28 22 pm](https://user-images.githubusercontent.com/119166299/233571253-33e3e9ea-0c00-4b75-b178-63d6c1390afe.png)
+- **Coffee Cart:** We are serving baristas coffee after 9:30am church today. Order your coffee at the sign-in area. $3 (small) $4 (large). Why not buy coffee for someone you don’t know?
 
 ## What’s Next?
 - **New?** We’d love to meet you and introduce you to our church. Please speak to one of the pastors for a time to chat. 
