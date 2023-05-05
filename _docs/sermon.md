@@ -6,47 +6,54 @@ order: 1
 ## Bible Reading
 
 ### Prayer
-Heavenly Father, give us faith to receive your word, understanding to know what it means, and the will to put it into practice; through Jesus Christ our Lord. Amen.
+Almighty God, we thank you for the gift of your holy word. May it be a lantern to our feet, a light to our paths, and strength to our lives. Take us and use us to love and serve all people in the power of the Holy Spirit and in the name of your Son Jesus Christ our Lord. Amen.
 
 
-### 1 Samuel 1 (NIV)
+### 1 Samuel 2:11-36 (NIV)
 
-¹ There was a certain man from Ramathaim, a Zuphite from the hill country of Ephraim, whose name was Elkanah son of Jeroham, the son of Elihu, the son of Tohu, the son of Zuph, an Ephraimite. ² He had two wives; one was called Hannah and the other Peninnah. Peninnah had children, but Hannah had none.
+¹¹ Then Elkanah went home to Ramah, but the boy ministered before the Lord under Eli the priest.
 
-³ Year after year this man went up from his town to worship and sacrifice to the Lord Almighty at Shiloh, where Hophni and Phinehas, the two sons of Eli, were priests of the Lord. ⁴ Whenever the day came for Elkanah to sacrifice, he would give portions of the meat to his wife Peninnah and to all her sons and daughters. ⁵ But to Hannah he gave a double portion because he loved her, and the Lord had closed her womb. ⁶ Because the Lord had closed Hannah’s womb, her rival kept provoking her in order to irritate her. ⁷ This went on year after year. Whenever Hannah went up to the house of the Lord, her rival provoked her till she wept and would not eat. ⁸ Her husband Elkanah would say to her, “Hannah, why are you weeping? Why don’t you eat? Why are you downhearted? Don’t I mean more to you than ten sons?”
+**Eli’s Wicked Sons**
 
-⁹ Once when they had finished eating and drinking in Shiloh, Hannah stood up. Now Eli the priest was sitting on his chair by the doorpost of the Lord’s house. ¹⁰ In her deep anguish Hannah prayed to the Lord, weeping bitterly. ¹¹ And she made a vow, saying, “Lord Almighty, if you will only look on your servant’s misery and remember me, and not forget your servant but give her a son, then I will give him to the Lord for all the days of his life, and no razor will ever be used on his head.”
+¹² Eli’s sons were scoundrels; they had no regard for the Lord. ¹³ Now it was the practice of the priests that, whenever any of the people offered a sacrifice, the priest’s servant would come with a three-pronged fork in his hand while the meat was being boiled ¹⁴ and would plunge the fork into the pan or kettle or caldron or pot. Whatever the fork brought up the priest would take for himself. This is how they treated all the Israelites who came to Shiloh. ¹⁵ But even before the fat was burned, the priest’s servant would come and say to the person who was sacrificing, “Give the priest some meat to roast; he won’t accept boiled meat from you, but only raw.”
 
-¹² As she kept on praying to the Lord, Eli observed her mouth. ¹³ Hannah was praying in her heart, and her lips were moving but her voice was not heard. Eli thought she was drunk ¹⁴ and said to her, “How long are you going to stay drunk? Put away your wine.”
+¹⁶ If the person said to him, “Let the fat be burned first, and then take whatever you want,” the servant would answer, “No, hand it over now; if you don’t, I’ll take it by force.”
 
-¹⁵ “Not so, my lord,” Hannah replied, “I am a woman who is deeply troubled. I have not been drinking wine or beer; I was pouring out my soul to the Lord. ¹⁶ Do not take your servant for a wicked woman; I have been praying here out of my great anguish and grief.”
+¹⁷ This sin of the young men was very great in the Lord’s sight, for they were treating the Lord’s offering with contempt.
 
-¹⁷ Eli answered, “Go in peace, and may the God of Israel grant you what you have asked of him.”
+¹⁸ But Samuel was ministering before the Lord—a boy wearing a linen ephod. ¹⁹ Each year his mother made him a little robe and took it to him when she went up with her husband to offer the annual sacrifice. ²⁰ Eli would bless Elkanah and his wife, saying, “May the Lord give you children by this woman to take the place of the one she prayed for and gave to the Lord.” Then they would go home. ²¹ And the Lord was gracious to Hannah; she gave birth to three sons and two daughters. Meanwhile, the boy Samuel grew up in the presence of the Lord.
 
-¹⁸ She said, “May your servant find favor in your eyes.” Then she went her way and ate something, and her face was no longer downcast.
+²² Now Eli, who was very old, heard about everything his sons were doing to all Israel and how they slept with the women who served at the entrance to the tent of meeting. ²³ So he said to them, “Why do you do such things? I hear from all the people about these wicked deeds of yours. ²⁴ No, my sons; the report I hear spreading among the Lord’s people is not good. ²⁵ If one person sins against another, God may mediate for the offender; but if anyone sins against the Lord, who will intercede for them?” His sons, however, did not listen to their father’s rebuke, for it was the Lord’s will to put them to death.
 
-¹⁹ Early the next morning they arose and worshiped before the Lord and then went back to their home at Ramah. Elkanah made love to his wife Hannah, and the Lord remembered her. ²⁰ So in the course of time Hannah became pregnant and gave birth to a son. She named him Samuel, saying, “Because I asked the Lord for him.”
+²⁶ And the boy Samuel continued to grow in stature and in favor with the Lord and with people.
 
-²¹ When her husband Elkanah went up with all his family to offer the annual sacrifice to the Lord and to fulfill his vow, ²² Hannah did not go. She said to her husband, “After the boy is weaned, I will take him and present him before the Lord, and he will live there always.” 
+**Prophecy Against the House of Eli**
 
-²³ “Do what seems best to you,” her husband Elkanah told her. “Stay here until you have weaned him; only may the Lord make good his word.” So the woman stayed at home and nursed her son until she had weaned him.
+²⁷ Now a man of God came to Eli and said to him, “This is what the Lord says: ‘Did I not clearly reveal myself to your ancestor’s family when they were in Egypt under Pharaoh? ²⁸ I chose your ancestor out of all the tribes of Israel to be my priest, to go up to my altar, to burn incense, and to wear an ephod in my presence. I also gave your ancestor’s family all the food offerings presented by the Israelites. ²⁹ Why do you scorn my sacrifice and offering that I prescribed for my dwelling? Why do you honor your sons more than me by fattening yourselves on the choice parts of every offering made by my people Israel?’
 
-²⁴ After he was weaned, she took the boy with her, young as he was, along with a three-year-old bull, an ephah of flour and a skin of wine, and brought him to the house of the Lord at Shiloh. ²⁵ When the bull had been sacrificed, they brought the boy to Eli, ²⁶ and she said to him, “Pardon me, my lord. As surely as you live, I am the woman who stood here beside you praying to the Lord. ²⁷ I prayed for this child, and the Lord has granted me what I asked of him. ²⁸ So now I give him to the Lord. For his whole life he will be given over to the Lord.” And he worshiped the Lord there.
+³⁰ “Therefore the Lord, the God of Israel, declares: ‘I promised that members of your family would minister before me forever.’ But now the Lord declares: ‘Far be it from me! Those who honor me I will honor, but those who despise me will be disdained. ³¹ The time is coming when I will cut short your strength and the strength of your priestly house, so that no one in it will reach old age, ³² and you will see distress in my dwelling. Although good will be done to Israel, no one in your family line will ever reach old age. ³³ Every one of you that I do not cut off from serving at my altar I will spare only to destroy your sight and sap your strength, and all your descendants will die in the prime of life.
+
+³⁴ “‘And what happens to your two sons, Hophni and Phinehas, will be a sign to you—they will both die on the same day. ³⁵ I will raise up for myself a faithful priest, who will do according to what is in my heart and mind. I will firmly establish his priestly house, and they will minister before my anointed one always. ³⁶ Then everyone left in your family line will come and bow down before him for a piece of silver and a loaf of bread and plead, “Appoint me to some priestly office so I can have food to eat.”’”
+
+
 
 
 
 
 ## Sermon Outline
 
-Helps from the Son of David 
+Misrepresenting God 
 
-Israel’s misery 
+Unfit for purpose 
 
-Hannah’s misery 
+Conclusions 
+    
+  - Romans 1:18-21
+  
+  - A priest fit for purpose 
+  
+  - New testament priests 1 Peter 2:9-12 
 
-Hannah’s prayer 
-
-Hannah’s boast 
 
 
 
