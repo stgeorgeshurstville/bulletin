@@ -11,7 +11,7 @@ order: 2
 
 ## 4pm 
 
-1. All Creatures of Our God and King
+1. Water Without Price
 2. Only A Holy God
 3. Rock of Ages
 4. Once For All
