@@ -18,7 +18,9 @@ order: 4
 
 ## General
 - **More to Life & Baptism:** Please speak to Rev. Lam (alan.lam@stgeorgeshurstville.org.au) for more information. There’ll be sessions (5 weeks of 1 hour each) on Sundays 11am, Fridays 8pm and Sundays 5:30pm (depending on number of participants). Optional baptism course (2 weeks of 1 hour) after. 
-- **Growing Out Seminar with Dr. Sam Chan:**  Saturday 3 June 9:15am-2:15pm. We'll be trained on how we can make meaningful connections with non-Christians and share the gospel.
+- **Growing Out Seminar with Dr. Sam Chan:**  Saturday 3 June 9:15am-2:15pm. We'll be trained on how we can make meaningful connections with non-Christians and share the gospel. 
+
+   ![SamChanSeminar](https://raw.githubusercontent.com/stgeorgeshurstville/bulletin/main/images/SamChanSeminar.png)
 - **Commencement of Ministries:** 
    - a. NewGen: Term 2 will resume in on 30 April. 
    - b. Youth: Fridays 5:3-7:30pm. Afternoon Club from 4pm.  
