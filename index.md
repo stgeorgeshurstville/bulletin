@@ -6,6 +6,7 @@ title: Welcome
 ## A king after God's own heart: 1 Samuel
 
 ![1Samuel](https://raw.githubusercontent.com/stgeorgeshurstville/bulletin/main/images/1Samuel.png)
+
 ---
 #### Declare this with a shout of joy, proclaim it, send it forth to the end of the earth: say, 'The Lord has set his people free.' 
  
