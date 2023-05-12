@@ -6,35 +6,44 @@ order: 1
 ## Bible Reading
 
 ### Prayer
-Almighty God, we thank you for the gift of your holy word. May it be a lantern to our feet, a light to our paths, and strength to our lives. Take us and use us to love and serve all people in the power of the Holy Spirit and in the name of your Son Jesus Christ our Lord. Amen.
+Gracious Lord, you have caused all holy scriptures to be written for our learning: help us so to hear them, read, mark, learn, and inwardly digest them, that, encouraged and supported by your holy Word, we may embrace and always hold fast the joyful hope of everlasting life, which you have given us in our Saviour Jesus Christ. Amen.
 
 
-### 1 Samuel 2:11-36 (NIV)
+### 1 Samuel 3:1-4:1a (NIV)
 
-¹¹ Then Elkanah went home to Ramah, but the boy ministered before the Lord under Eli the priest.
+The boy Samuel ministered before the Lord under Eli. In those days the word of the Lord was rare; there were not many visions.
 
-**Eli’s Wicked Sons**
+² One night Eli, whose eyes were becoming so weak that he could barely see, was lying down in his usual place. ³ The lamp of God had not yet gone out, and Samuel was lying down in the house of the Lord, where the ark of God was. ⁴ Then the Lord called Samuel.
 
-¹² Eli’s sons were scoundrels; they had no regard for the Lord. ¹³ Now it was the practice of the priests that, whenever any of the people offered a sacrifice, the priest’s servant would come with a three-pronged fork in his hand while the meat was being boiled ¹⁴ and would plunge the fork into the pan or kettle or caldron or pot. Whatever the fork brought up the priest would take for himself. This is how they treated all the Israelites who came to Shiloh. ¹⁵ But even before the fat was burned, the priest’s servant would come and say to the person who was sacrificing, “Give the priest some meat to roast; he won’t accept boiled meat from you, but only raw.”
+Samuel answered, “Here I am.” ⁵ And he ran to Eli and said, “Here I am; you called me.”
 
-¹⁶ If the person said to him, “Let the fat be burned first, and then take whatever you want,” the servant would answer, “No, hand it over now; if you don’t, I’ll take it by force.”
+But Eli said, “I did not call; go back and lie down.” So he went and lay down.
 
-¹⁷ This sin of the young men was very great in the Lord’s sight, for they were treating the Lord’s offering with contempt.
+⁶ Again the Lord called, “Samuel!” And Samuel got up and went to Eli and said, “Here I am; you called me.”
 
-¹⁸ But Samuel was ministering before the Lord—a boy wearing a linen ephod. ¹⁹ Each year his mother made him a little robe and took it to him when she went up with her husband to offer the annual sacrifice. ²⁰ Eli would bless Elkanah and his wife, saying, “May the Lord give you children by this woman to take the place of the one she prayed for and gave to the Lord.” Then they would go home. ²¹ And the Lord was gracious to Hannah; she gave birth to three sons and two daughters. Meanwhile, the boy Samuel grew up in the presence of the Lord.
+“My son,” Eli said, “I did not call; go back and lie down.”
 
-²² Now Eli, who was very old, heard about everything his sons were doing to all Israel and how they slept with the women who served at the entrance to the tent of meeting. ²³ So he said to them, “Why do you do such things? I hear from all the people about these wicked deeds of yours. ²⁴ No, my sons; the report I hear spreading among the Lord’s people is not good. ²⁵ If one person sins against another, God may mediate for the offender; but if anyone sins against the Lord, who will intercede for them?” His sons, however, did not listen to their father’s rebuke, for it was the Lord’s will to put them to death.
+⁷ Now Samuel did not yet know the Lord: The word of the Lord had not yet been revealed to him.
 
-²⁶ And the boy Samuel continued to grow in stature and in favor with the Lord and with people.
+⁸ A third time the Lord called, “Samuel!” And Samuel got up and went to Eli and said, “Here I am; you called me.”
 
-**Prophecy Against the House of Eli**
+Then Eli realized that the Lord was calling the boy. ⁹ So Eli told Samuel, “Go and lie down, and if he calls you, say, ‘Speak, Lord, for your servant is listening.’” So Samuel went and lay down in his place.
 
-²⁷ Now a man of God came to Eli and said to him, “This is what the Lord says: ‘Did I not clearly reveal myself to your ancestor’s family when they were in Egypt under Pharaoh? ²⁸ I chose your ancestor out of all the tribes of Israel to be my priest, to go up to my altar, to burn incense, and to wear an ephod in my presence. I also gave your ancestor’s family all the food offerings presented by the Israelites. ²⁹ Why do you scorn my sacrifice and offering that I prescribed for my dwelling? Why do you honor your sons more than me by fattening yourselves on the choice parts of every offering made by my people Israel?’
+¹⁰ The Lord came and stood there, calling as at the other times, “Samuel! Samuel!”
 
-³⁰ “Therefore the Lord, the God of Israel, declares: ‘I promised that members of your family would minister before me forever.’ But now the Lord declares: ‘Far be it from me! Those who honor me I will honor, but those who despise me will be disdained. ³¹ The time is coming when I will cut short your strength and the strength of your priestly house, so that no one in it will reach old age, ³² and you will see distress in my dwelling. Although good will be done to Israel, no one in your family line will ever reach old age. ³³ Every one of you that I do not cut off from serving at my altar I will spare only to destroy your sight and sap your strength, and all your descendants will die in the prime of life.
+Then Samuel said, “Speak, for your servant is listening.”
 
-³⁴ “‘And what happens to your two sons, Hophni and Phinehas, will be a sign to you—they will both die on the same day. ³⁵ I will raise up for myself a faithful priest, who will do according to what is in my heart and mind. I will firmly establish his priestly house, and they will minister before my anointed one always. ³⁶ Then everyone left in your family line will come and bow down before him for a piece of silver and a loaf of bread and plead, “Appoint me to some priestly office so I can have food to eat.”’”
+¹¹ And the Lord said to Samuel: “See, I am about to do something in Israel that will make the ears of everyone who hears about it tingle. ¹² At that time I will carry out against Eli everything I spoke against his family—from beginning to end. ¹³ For I told him that I would judge his family forever because of the sin he knew about; his sons blasphemed God, and he failed to restrain them. ¹⁴ Therefore I swore to the house of Eli, ‘The guilt of Eli’s house will never be atoned for by sacrifice or offering.’”
 
+¹⁵ Samuel lay down until morning and then opened the doors of the house of the Lord. He was afraid to tell Eli the vision, ¹⁶ but Eli called him and said, “Samuel, my son.”
+
+Samuel answered, “Here I am.”
+
+¹⁷ “What was it he said to you?” Eli asked. “Do not hide it from me. May God deal with you, be it ever so severely, if you hide from me anything he told you.” ¹⁸ So Samuel told him everything, hiding nothing from him. Then Eli said, “He is the Lord; let him do what is good in his eyes.”
+
+¹⁹ The Lord was with Samuel as he grew up, and he let none of Samuel’s words fall to the ground. ²⁰ And all Israel from Dan to Beersheba recognized that Samuel was attested as a prophet of the Lord. ²¹ The Lord continued to appear at Shiloh, and there he revealed himself to Samuel through his word.
+
+¹ And Samuel’s word came to all Israel.
 
 
 
@@ -42,17 +51,7 @@ Almighty God, we thank you for the gift of your holy word. May it be a lantern t
 
 ## Sermon Outline
 
-Misrepresenting God 
-
-Unfit for purpose 
-
-Conclusions 
-    
-  - Romans 1:18-21
-  
-  - A priest fit for purpose 
-  
-  - New testament priests 1 Peter 2:9-12 
+### When God Speaks
 
 
 
