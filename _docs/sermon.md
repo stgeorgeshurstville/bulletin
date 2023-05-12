@@ -51,7 +51,7 @@ Samuel answered, “Here I am.”
 
 ## Sermon Outline
 
-### When God Speaks
+#### When God Speaks
 
 
 
