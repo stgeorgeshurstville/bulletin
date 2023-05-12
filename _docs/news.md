@@ -10,7 +10,7 @@ order: 4
 | **M A Y**  |  | 
 |  Sun 21 | Moving to Additional Space (9:30am) |
 | **J U N E**  |  | 
-|  Sat 3 @9:15am - 2:15pm | Sam Chan Growing Out Seminar |
+|  Sat 3 @9:15am - 2:15pm | [Sam Chan Growing Out Seminar](https://stgeorgeshurstville.org.au/growing-out-conference) |
 |  Sat 17 | EQUIP |
 
 
