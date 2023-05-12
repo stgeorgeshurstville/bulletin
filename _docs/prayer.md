@@ -14,7 +14,7 @@ order: 3
 
 ## Weekly Prayer Points
 - **Mother’s/Women’s Day**: Heavenly Father, we thank you for the way you have made us relational creatures, and for the blessing of families. We thank you for the gift of mothers, and for the significant role they play not only in families, but in communities as well. We pray for those who might long to have this role but for whatever reason have not received this opportunity. We also pray for those who are mothers but who are mothers alone as a result of death, separation or divorce. Please comfort all these women in any grief they may experience this Mother's Day. Help them to keep casting their cares onto you. May we find our identity, significance and joy in Jesus. Please guard them from despair and bitterness and instead, please redeem their situations, helping them to use their disposition to nurture those you have placed around them. We thank you for the blessing of being part of your family, and for the significant role all women can play as spiritual mothers within our church families and communities.
-- ** Additional Space** (124 Forest Road).
+- **Additional Space** (124 Forest Road).
 - Others can be found [here](https://stgeorgeshurstville.org.au/prayer)
 
 
