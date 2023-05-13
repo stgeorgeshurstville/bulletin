@@ -53,7 +53,10 @@ Samuel answered, “Here I am.”
 
 ### When God Speaks
 
-
+1.     The word was rare.
+2.     The word is good. 
+3.     The word was spoken through Samuel. 
+4.     The word is spoken through us. 
 
 
 ## Q&A
