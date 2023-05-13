@@ -11,11 +11,12 @@ order: 4
 |  Sun 21 | Moving to Additional Space (9:30am) |
 | **J U N E**  |  | 
 |  Sat 3 @9:15am - 2:15pm | [Sam Chan Growing Out Seminar](https://stgeorgeshurstville.org.au/growing-out-conference) |
-|  Sat 17 | EQUIP |
+|  Sat 17 @9:30am - 4pm | [EQUIP](https://stgeorgeshurstville.org.au/equip23) |
 
 
 ## General
 - **More to Life & Baptism:** Please speak to Rev. Lam (alan.lam@stgeorgeshurstville.org.au) for more information. There’ll be sessions (5 weeks of 1 hour each) on Sundays 11am, Fridays 8pm and Sundays 5:30pm (depending on number of participants). Optional baptism course (2 weeks of 1 hour) after. 
+- **Equip women 23**: Sat 17th June 9:30am-4pm. Come and join sisters across all ages as we dig into the book of Haggai together. Register for conference and lunch [here]( https://stgeorgeshurstville.org.au/equip23)
 - **Mother's Day**
 - **Growing Out Seminar with Dr. Sam Chan:** We'll be trained on how we can make meaningful connections with non-Christians and share the gospel. Please register [here](https://stgeorgeshurstville.org.au/growing-out-conference) for catering purposes by 30th May. 
 
