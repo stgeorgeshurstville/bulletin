@@ -6,58 +6,61 @@ order: 1
 ## Bible Reading
 
 ### Prayer
-Gracious Lord, you have caused all holy scriptures to be written for our learning: help us so to hear them, read, mark, learn, and inwardly digest them, that, encouraged and supported by your holy Word, we may embrace and always hold fast the joyful hope of everlasting life, which you have given us in our Saviour Jesus Christ. Amen.
+Heavenly Father, give us faith to receive your word, understanding to know what it means, and the will to put it into practice; through Jesus Christ our Lord.  **Amen**.
 
+### 1 Samuel 4-5 (NIV)
 
-### 1 Samuel 3:1-4:1a (NIV)
+**The Philistines Capture the Ark**
 
-The boy Samuel ministered before the Lord under Eli. In those days the word of the Lord was rare; there were not many visions.
+Now the Israelites went out to fight against the Philistines. The Israelites camped at Ebenezer, and the Philistines at Aphek. ² The Philistines deployed their forces to meet Israel, and as the battle spread, Israel was defeated by the Philistines, who killed about four thousand of them on the battlefield. ³ When the soldiers returned to camp, the elders of Israel asked, “Why did the Lord bring defeat on us today before the Philistines? Let us bring the ark of the Lord’s covenant from Shiloh, so that he may go with us and save us from the hand of our enemies.”
 
-² One night Eli, whose eyes were becoming so weak that he could barely see, was lying down in his usual place. ³ The lamp of God had not yet gone out, and Samuel was lying down in the house of the Lord, where the ark of God was. ⁴ Then the Lord called Samuel.
+⁴ So the people sent men to Shiloh, and they brought back the ark of the covenant of the Lord Almighty, who is enthroned between the cherubim. And Eli’s two sons, Hophni and Phinehas, were there with the ark of the covenant of God.
 
-Samuel answered, “Here I am.” ⁵ And he ran to Eli and said, “Here I am; you called me.”
+⁵ When the ark of the Lord’s covenant came into the camp, all Israel raised such a great shout that the ground shook. ⁶ Hearing the uproar, the Philistines asked, “What’s all this shouting in the Hebrew camp?”
 
-But Eli said, “I did not call; go back and lie down.” So he went and lay down.
+When they learned that the ark of the Lord had come into the camp, ⁷ the Philistines were afraid. “A god has come into the camp,” they said. “Oh no! Nothing like this has happened before. ⁸ We’re doomed! Who will deliver us from the hand of these mighty gods? They are the gods who struck the Egyptians with all kinds of plagues in the wilderness. ⁹ Be strong, Philistines! Be men, or you will be subject to the Hebrews, as they have been to you. Be men, and fight!”
 
-⁶ Again the Lord called, “Samuel!” And Samuel got up and went to Eli and said, “Here I am; you called me.”
+¹⁰ So the Philistines fought, and the Israelites were defeated and every man fled to his tent. The slaughter was very great; Israel lost thirty thousand foot soldiers. ¹¹ The ark of God was captured, and Eli’s two sons, Hophni and Phinehas, died.
 
-“My son,” Eli said, “I did not call; go back and lie down.”
+**Death of Eli**
 
-⁷ Now Samuel did not yet know the Lord: The word of the Lord had not yet been revealed to him.
+¹² That same day a Benjamite ran from the battle line and went to Shiloh with his clothes torn and dust on his head. ¹³ When he arrived, there was Eli sitting on his chair by the side of the road, watching, because his heart feared for the ark of God. When the man entered the town and told what had happened, the whole town sent up a cry.
 
-⁸ A third time the Lord called, “Samuel!” And Samuel got up and went to Eli and said, “Here I am; you called me.”
+¹⁴ Eli heard the outcry and asked, “What is the meaning of this uproar?”
 
-Then Eli realized that the Lord was calling the boy. ⁹ So Eli told Samuel, “Go and lie down, and if he calls you, say, ‘Speak, Lord, for your servant is listening.’” So Samuel went and lay down in his place.
+The man hurried over to Eli, ¹⁵ who was ninety-eight years old and whose eyes had failed so that he could not see. ¹⁶ He told Eli, “I have just come from the battle line; I fled from it this very day.”
 
-¹⁰ The Lord came and stood there, calling as at the other times, “Samuel! Samuel!”
+Eli asked, “What happened, my son?”
 
-Then Samuel said, “Speak, for your servant is listening.”
+¹⁷ The man who brought the news replied, “Israel fled before the Philistines, and the army has suffered heavy losses. Also your two sons, Hophni and Phinehas, are dead, and the ark of God has been captured.”
 
-¹¹ And the Lord said to Samuel: “See, I am about to do something in Israel that will make the ears of everyone who hears about it tingle. ¹² At that time I will carry out against Eli everything I spoke against his family—from beginning to end. ¹³ For I told him that I would judge his family forever because of the sin he knew about; his sons blasphemed God, and he failed to restrain them. ¹⁴ Therefore I swore to the house of Eli, ‘The guilt of Eli’s house will never be atoned for by sacrifice or offering.’”
+¹⁸ When he mentioned the ark of God, Eli fell backward off his chair by the side of the gate. His neck was broken and he died, for he was an old man, and he was heavy. He had led Israel forty years.
 
-¹⁵ Samuel lay down until morning and then opened the doors of the house of the Lord. He was afraid to tell Eli the vision, ¹⁶ but Eli called him and said, “Samuel, my son.”
+¹⁹ His daughter-in-law, the wife of Phinehas, was pregnant and near the time of delivery. When she heard the news that the ark of God had been captured and that her father-in-law and her husband were dead, she went into labor and gave birth, but was overcome by her labor pains. ²⁰ As she was dying, the women attending her said, “Don’t despair; you have given birth to a son.” But she did not respond or pay any attention.
 
-Samuel answered, “Here I am.”
+²¹ She named the boy Ichabod, saying, “The Glory has departed from Israel”—because of the capture of the ark of God and the deaths of her father-in-law and her husband. ²² She said, “The Glory has departed from Israel, for the ark of God has been captured.”
 
-¹⁷ “What was it he said to you?” Eli asked. “Do not hide it from me. May God deal with you, be it ever so severely, if you hide from me anything he told you.” ¹⁸ So Samuel told him everything, hiding nothing from him. Then Eli said, “He is the Lord; let him do what is good in his eyes.”
+**The Ark in Ashdod and Ekron**
 
-¹⁹ The Lord was with Samuel as he grew up, and he let none of Samuel’s words fall to the ground. ²⁰ And all Israel from Dan to Beersheba recognized that Samuel was attested as a prophet of the Lord. ²¹ The Lord continued to appear at Shiloh, and there he revealed himself to Samuel through his word.
+¹ After the Philistines had captured the ark of God, they took it from Ebenezer to Ashdod. ² Then they carried the ark into Dagon’s temple and set it beside Dagon. ³ When the people of Ashdod rose early the next day, there was Dagon, fallen on his face on the ground before the ark of the Lord! They took Dagon and put him back in his place. ⁴ But the following morning when they rose, there was Dagon, fallen on his face on the ground before the ark of the Lord! His head and hands had been broken off and were lying on the threshold; only his body remained. ⁵ That is why to this day neither the priests of Dagon nor any others who enter Dagon’s temple at Ashdod step on the threshold.
 
-¹ And Samuel’s word came to all Israel.
+⁶ The Lord’s hand was heavy on the people of Ashdod and its vicinity; he brought devastation on them and afflicted them with tumors. ⁷ When the people of Ashdod saw what was happening, they said, “The ark of the god of Israel must not stay here with us, because his hand is heavy on us and on Dagon our god.” ⁸ So they called together all the rulers of the Philistines and asked them, “What shall we do with the ark of the god of Israel?”
 
+They answered, “Have the ark of the god of Israel moved to Gath.” So they moved the ark of the God of Israel.
 
+⁹ But after they had moved it, the Lord’s hand was against that city, throwing it into a great panic. He afflicted the people of the city, both young and old, with an outbreak of tumors. ¹⁰ So they sent the ark of God to Ekron.
 
+As the ark of God was entering Ekron, the people of Ekron cried out, “They have brought the ark of the god of Israel around to us to kill us and our people.” ¹¹ So they called together all the rulers of the Philistines and said, “Send the ark of the god of Israel away; let it go back to its own place, or it will kill us and our people.” For death had filled the city with panic; God’s hand was very heavy on it. ¹² Those who did not die were afflicted with tumors, and the outcry of the city went up to heaven.
 
 
 ## Sermon Outline
 
 ### When God Speaks
 
-1. The word was rare.
-2. The word is good. 
-3. The word was spoken through Samuel. 
-4. The word is spoken through us. 
-
+1. When God loses 
+2. Israel v the world
+3. God v gods
+4. Conclusions 
 
 ## Q&A
 Got questions or comments? Send them [here](https://tinyurl.com/SGHACQuestionsAnswers)
