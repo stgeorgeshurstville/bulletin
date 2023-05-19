@@ -20,20 +20,20 @@ Idolatry is folly and superstition, turn your trust to the Lord in Jesus and obe
     - Eli and Phinehas’ widow 
     - You as the reader 
 
-Please read 1 Samuel 5. What happened? What happened to: 
-- The Ark
-- Dagon
-- The Philistines 
+- Please read 1 Samuel 5. What happened? What happened to: 
+  - The Ark
+  - Dagon
+  - The Philistines 
 
-Brian suggests that the opposite of faith is superstition. Do you agree? Why/why not? 
+- Brian suggests that the opposite of faith is superstition. Do you agree? Why/why not? 
 
-Is God for us or against us? (c.f. Joshua 5:13–15) What does ‘neither’ for you mean? 
+- Is God for us or against us? (c.f. Joshua 5:13–15) What does ‘neither’ for you mean? 
 
-What have you learned about: 
-God
-How He works (and God loosing) 
-Idolatry 
-How people relate to God 
+- What have you learned about: 
+  - God
+  - How He works (and God loosing) 
+  - Idolatry 
+  - How people relate to God 
 
 
 
