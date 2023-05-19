@@ -15,16 +15,13 @@ order: 4
 
 
 ## General
-- **More to Life & Baptism:** Please speak to Rev. Lam (alan.lam@stgeorgeshurstville.org.au) for more information. There’ll be sessions (5 weeks of 1 hour each) on Sundays 11am, Fridays 8pm and Sundays 5:30pm (depending on number of participants). Optional baptism course (2 weeks of 1 hour) after. 
 - **Equip women 23**: Sat 17th June 9:30am-4pm. Come and join sisters across all ages as we dig into the book of Haggai together. Register for conference and lunch [here]( https://stgeorgeshurstville.org.au/equip23)
-- **Mother's Day**
 - **Growing Out Seminar with Dr. Sam Chan:** We'll be trained on how we can make meaningful connections with non-Christians and share the gospel. Please register [here](https://stgeorgeshurstville.org.au/growing-out-conference) for catering purposes by 30th May. 
 
    ![SamChanSeminar](https://raw.githubusercontent.com/stgeorgeshurstville/bulletin/main/images/SamChanSeminar.png)
 
 - **Additional Space:** We’re aiming to move to 124 Forest Rd on **21 May 2023.**
 ![Screen Shot 2023-04-21 at 5 28 22 pm](https://user-images.githubusercontent.com/119166299/233571253-33e3e9ea-0c00-4b75-b178-63d6c1390afe.png)
-- **Coffee Cart:** We are serving baristas coffee after 9:30am church today. Order your coffee at the sign-in area. $3 (small) $4 (large). Why not buy coffee for someone you don’t know?
 - **Anglican Church News:** The latest edition of the Southern Cross is now available. You can get in touch with what's happening in the wider Anglican Church community [here](https://sydneyanglicans.net/about/southerncross)
 
 ## What’s Next?
