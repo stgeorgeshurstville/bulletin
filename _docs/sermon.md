@@ -58,8 +58,8 @@ As the ark of God was entering Ekron, the people of Ekron cried out, “They hav
 ### When God Speaks
 
 1. When God loses 
-2. Israel v the world
-3. God v gods
+2. Israel vs the world
+3. God vs gods
 4. Conclusions 
 
 ## Q&A
