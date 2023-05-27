@@ -48,10 +48,10 @@ Then Samuel said to the Israelites, “Everyone go back to your own town.”
 
 ### When God Speaks
 
-1. When God loses 
-2. Israel vs the world
-3. God vs gods
-4. Conclusions 
+1. We want to feel safe  
+2. God’s salvation 
+3. A strange request 
+4. An active faith  
 
 ## Q&A
 Got questions or comments? Send them [here](https://tinyurl.com/SGHACQuestionsAnswers)
