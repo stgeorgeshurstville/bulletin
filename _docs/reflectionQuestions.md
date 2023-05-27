@@ -4,36 +4,22 @@ order: 6
 ---
 
 ### Big Idea 
-Idolatry is folly and superstition, turn your trust to the Lord in Jesus and obey him.   
-
+Rid ourselves of our idol and turn to our saviour wholeheartedly and worship Him alone by active trust and obedience to Jesus.  
 
 
 ### Questions
 
-- Can you give examples/incidents of how God has lost? How have they affected you and others? 
-- What is the Ark of the covenant of God and why was it important to the Isrealites? (Exodus 25:1-22; Joshua 3 and 6)
-- Please read 1 Samuel 4:2-22 What happened? 
-  - What do you think of the elders’ response to the defeat to the skirmish (v.3)? 
-  - What are the different reactions to the Ark and what happened to it in this account? And what do these reactions tell you about the underlying thinking? Is the thinking right?
-    - The Israelites 
-    - The Philistines 
-    - Eli and Phinehas’ widow 
-    - You as the reader 
-
-- Please read 1 Samuel 5. What happened? What happened to: 
-  - The Ark
-  - Dagon
-  - The Philistines 
-
-- Brian suggests that the opposite of faith is superstition. Do you agree? Why/why not? 
-
-- Is God for us or against us? (c.f. Joshua 5:13–15) What does ‘neither’ for you mean? 
-
-- What have you learned about: 
-  - God
-  - How He works (and God loosing) 
-  - Idolatry 
-  - How people relate to God 
+1. ‘Because God is for us, we will be safe.’ Discuss. Please read 1 Samuel 7:2-17
+2. What happened? 
+ - Why were the Israelites crying out to the Lord? 
+ - What did Samuel tell them to do? What does it mean to get rid of idols and serve the Lord alone? 
+ - What happened when the Philistines attacked the Israelites at Mizpah? 
+ - What have you noticed about how the Lord saved them? Please read 1 Samuel 8
+3. What happened?
+ - What do you observe about the elder’s request in v.5? What makes it both reasonable and irrational? 
+ - The Lord saw it as sin/rebellion/rejection of Him as king vv.7-8. How was this request a rejection of Lord as king? 
+ - Put the warning to Israel in your own word please  vv.10-18. 
+ - What happened at the end? 
 
 
 
