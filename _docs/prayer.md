@@ -6,9 +6,9 @@ order: 3
 ## Sunday Prayer Points
 
 - **Lord’s Prayer:** Our Father in heaven, hallowed be your name, your kingdom come, your will be done on earth as in heaven. Give us today our daily bread. Forgive us our sins as we forgive those who sin against us. Lead us not into temptation, but deliver us from evil. For the kingdom, the power, and the glory are yours now and forever.
-- 
-- **Collect**: O God, the king of glory, you have exalted your only Son Jesus Christ with great triumph to your kingdom in heaven: leave us not desolate, but send your Holy Spirit to strengthen us, and exalt us to where our Saviour Christ has gone before, who lives and reigns with you and the Holy Spirit, one God, for evermore. Amen.
-- 
+
+- **Collect**: Almighty God, who taught the hearts of your faithful people by sending to them the light of your Holy Spirit: grant to us by the same Spirit to have a right judgment in all things and always to rejoice in his holy comfort; through the merits of Christ Jesus our Saviour, who lives and reigns with you and the Holy Spirit, one God, now and for ever Amen.
+
 - **Growing Out**:  Our gracious Father, thank you that the Gospel is the power of salvation to all people. Thank you that even now the just has the Gospel has come to us, it is bearing fruit and growing throughout the whole world. We pray that many in our generation will hear and truly understand you grace. Please help us to be godly in life, resilient in ministry, servant-hearted, Biblical in life, thought and ministry, and able to love and minister faithfully, compassionately and effectively in different and changing contexts, cooperating with one another, humble, wise, prayerful, reflective, energetic and effective. Please help us to take our faith in Jesus beyond the walls of the church into our workplace, school, where we live and where we holiday. Please help us to have a compassion for the lost like Jesus. Please help us to be willing to go into the world, to be interested in the lives of people we meet. Please give us opportunities to represent Jesus and to speak of Him. Please give us the words to say. Please save our neighbours through us.
 
 - **Church Sermon**: Come, thou Fount of every blessing; tune my heart to sing thy grace; Here I raise my Ebenezer; hither by thy help I’m come; and I hope, by thy good pleasure, safely to arrive at home. Prone to wander, Lord, I feel it, prone to leave the God I love; here’s my heart; O take and seal it; seal it for thy courts above.  Amen. 
