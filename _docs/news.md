@@ -16,7 +16,7 @@ order: 4
 
 ## General
 - **Growing in our Welcoming**: 
-![Our Mission; Make disciples, Love Neighbors Glorify God. Our Vision; Growing up, Growing Deep, Growing Out](https://raw.githubusercontent.com/stgeorgeshurstville/bulletin/blob/main/images/church%20stuff.png)
+![Our Mission; Make disciples](https://raw.githubusercontent.com/stgeorgeshurstville/bulletin/blob/main/images/church%20stuff.png)
 
 - **Equip women 23**: Sat 17th June 9:30am-4pm. Come and join sisters across all ages as we dig into the book of Haggai together. Register for conference and lunch [here]( https://stgeorgeshurstville.org.au/equip23)
 
