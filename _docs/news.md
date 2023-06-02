@@ -15,22 +15,20 @@ order: 4
 
 
 ## General
-- **Growing in our Welcoming**: ![here](https://github.com/stgeorgeshurstville/bulletin/blob/main/images/church%20stuff.png)
+- **Growing in our Welcoming**: 
+- ![here](https://github.com/stgeorgeshurstville/bulletin/blob/main/images/church%20stuff.png)
 
 - **Equip women 23**: Sat 17th June 9:30am-4pm. Come and join sisters across all ages as we dig into the book of Haggai together. Register for conference and lunch [here]( https://stgeorgeshurstville.org.au/equip23)
 
-- **Growing Out Seminar with Dr. Sam Chan:** Please register by Tuesday for catering purposes. Please register [here](https://stgeorgeshurstville.org.au/growing-out-conference) 
+- **Respect for Property:** The property, facilities and equipment have been entrusted to us by God for /his mission. During the week, we discovered that a vacuum cleaner in the Hall's cry room is missing, and the TV in that room has been vandalised. We wish to remind all users of the church facilities:  
+1. To use the facilities according to church policies, ie to only use them if you have the right to use them. 
+2. Ensure that children are properly supervised, and for adults to set a godly example for the children. 
+3. To leave the facilities and grounds better than you've found them.
+4. Otherwise please treat the church property and facilities with respect.
+
 
    ![SamChanSeminar](https://raw.githubusercontent.com/stgeorgeshurstville/bulletin/main/images/SamChanSeminar.png)
 
-- **Move to 124 Forest Rd** We’re extremely grateful for the smooth transition to 124 Forest Road. Thankful for God’s provision and ongoing leading. Thankful for the many people’s involvement to make it happen. Thankful for the sacrifice of the 930 English congregation. It has made a great difference to the kids and leaders in NewGen and opened up opportunities for Gospel.
-![Screen Shot 2023-04-21 at 5 28 22 pm](https://user-images.githubusercontent.com/119166299/233571253-33e3e9ea-0c00-4b75-b178-63d6c1390afe.png)
-
-- **Local High School Scripture:** You can sign up for prayer updates [here](https://stgeorgeshurstville.org.au/growing-out-conference)  You can partner financially by giving to the following account: 
-- Account Name: Christian Education Board for Hurstville High Schools 
-- BSB: 124001 
-- Account Number: 22801395 
-- Description: Your Name 
 
 
 ## What’s Next?
