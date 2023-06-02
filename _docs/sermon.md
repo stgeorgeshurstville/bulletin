@@ -31,7 +31,7 @@ Saul replied, “When I saw that the men were scattering, and that you did not c
 
 ## Sermon Outline
 
-## The Foolish Leader
+### The Foolish Leader
 
 1.  A leader who trusts and lives for himself. 
 2.  We are like Saul. 
