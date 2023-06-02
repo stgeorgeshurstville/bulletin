@@ -15,6 +15,8 @@ order: 4
 
 
 ## General
+- **Growing in our Welcoming**: Sat 17th June 9:30am-4pm. Come and join sisters across all ages as we dig into the book of Haggai together. Register for conference and lunch [here]( 
+
 - **Equip women 23**: Sat 17th June 9:30am-4pm. Come and join sisters across all ages as we dig into the book of Haggai together. Register for conference and lunch [here]( https://stgeorgeshurstville.org.au/equip23)
 
 - **Growing Out Seminar with Dr. Sam Chan:** Please register by Tuesday for catering purposes. Please register [here](https://stgeorgeshurstville.org.au/growing-out-conference) 
