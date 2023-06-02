@@ -27,9 +27,7 @@ order: 4
 3. To leave the facilities and grounds better than you've found them.
 4. Otherwise please treat the church property and facilities with respect.
 
-   ![damages]
-   (https://github.com/stgeorgeshurstville/bulletin/blob/main/images/whosetheculprit.png))
-
+![damages](https://raw.githubusercontent.com/stgeorgeshurstville/bulletin/main/images/whosetheculprit.png)
 
 
 ## What’s Next?
