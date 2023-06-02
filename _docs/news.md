@@ -16,7 +16,8 @@ order: 4
 
 ## General
 - **Growing in our Welcoming**: 
-![here](https://github.com/stgeorgeshurstville/bulletin/blob/main/images/church%20stuff.png)
+![here]
+(https://github.com/stgeorgeshurstville/bulletin/blob/main/images/church%20stuff.png)
 
 - **Equip women 23**: Sat 17th June 9:30am-4pm. Come and join sisters across all ages as we dig into the book of Haggai together. Register for conference and lunch [here]( https://stgeorgeshurstville.org.au/equip23)
 
@@ -26,7 +27,8 @@ order: 4
 3. To leave the facilities and grounds better than you've found them.
 4. Otherwise please treat the church property and facilities with respect.
 
-   ![damages](https://github.com/stgeorgeshurstville/bulletin/blob/main/images/whosetheculprit.png))
+   ![damages]
+   (https://github.com/stgeorgeshurstville/bulletin/blob/main/images/whosetheculprit.png))
 
 
 
