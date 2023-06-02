@@ -6,52 +6,35 @@ order: 1
 ## Bible Reading
 
 ### Prayer
-Gracious Lord, you have caused all holy scriptures to be written for our learning: help us so to hear them, read, mark, learn, and inwardly digest them, that, encouraged and supported by your holy Word, we may embrace and always hold fast the joyful hope of everlasting life, which you have given us in our Saviour Jesus Christ.  **Amen**.
+Lord make your word our rule, your Spirit our teacher, and your glory our supreme concern, for the sake of our Saviour, the Lord Jesus Christ. **Amen**.
 
-### 1 Samuel 7-8 (NIV)
+### 1 Samuel 13:1-15 (NIV)
+**Samuel Rebukes Saul**
 
-¹ So the men of Kiriath Jearim came and took up the ark of the Lord. They brought it to Abinadab’s house on the hill and consecrated Eleazar his son to guard the ark of the Lord. ² The ark remained at Kiriath Jearim a long time—twenty years in all.
+¹ Saul was thirty years old when he became king, and he reigned over Israel forty- two years.
 
-**Samuel Subdues the Philistines at Mizpah**
+² Saul chose three thousand men from Israel; two thousand were with him at Mikmash and in the hill country of Bethel, and a thousand were with Jonathan at Gibeah in Benjamin. The rest of the men he sent back to their homes.
 
-Then all the people of Israel turned back to the Lord. ³ So Samuel said to all the Israelites, “If you are returning to the Lord with all your hearts, then rid yourselves of the foreign gods and the Ashtoreths and commit yourselves to the Lord and serve him only, and he will deliver you out of the hand of the Philistines.” ⁴ So the Israelites put away their Baals and Ashtoreths, and served the Lord only.
+³ Jonathan attacked the Philistine outpost at Geba, and the Philistines heard about it. Then Saul had the trumpet blown throughout the land and said, “Let the Hebrews hear!” ⁴ So all Israel heard the news: “Saul has attacked the Philistine outpost, and now Israel has become obnoxious to the Philistines.” And the people were summoned to join Saul at Gilgal.
 
-⁵ Then Samuel said, “Assemble all Israel at Mizpah, and I will intercede with the Lord for you.” ⁶ When they had assembled at Mizpah, they drew water and poured it out before the Lord. On that day they fasted and there they confessed, “We have sinned against the Lord.” Now Samuel was serving as leader of Israel at Mizpah.
+⁵ The Philistines assembled to fight Israel, with three thousand chariots, six thousand charioteers, and soldiers as numerous as the sand on the seashore. They went up and camped at Mikmash, east of Beth Aven. ⁶ When the Israelites saw that their situation was critical and that their army was hard pressed, they hid in caves and thickets, among the rocks, and in pits and cisterns. ⁷ Some Hebrews even crossed the Jordan to the land of Gad and Gilead.
 
-⁷ When the Philistines heard that Israel had assembled at Mizpah, the rulers of the Philistines came up to attack them. When the Israelites heard of it, they were afraid because of the Philistines. ⁸ They said to Samuel, “Do not stop crying out to the Lord our God for us, that he may rescue us from the hand of the Philistines.” ⁹ Then Samuel took a suckling lamb and sacrificed it as a whole burnt offering to the Lord. He cried out to the Lord on Israel’s behalf, and the Lord answered him.
+Saul remained at Gilgal, and all the troops with him were quaking with fear. ⁸ He waited seven days, the time set by Samuel; but Samuel did not come to Gilgal, and Saul’s men began to scatter. ⁹ So he said, “Bring me the burnt offering and the fellowship offerings.” And Saul offered up the burnt offering. ¹⁰ Just as he finished making the offering, Samuel arrived, and Saul went out to greet him.
 
-¹⁰ While Samuel was sacrificing the burnt offering, the Philistines drew near to engage Israel in battle. But that day the Lord thundered with loud thunder against the Philistines and threw them into such a panic that they were routed before the Israelites. ¹¹ The men of Israel rushed out of Mizpah and pursued the Philistines, slaughtering them along the way to a point below Beth Kar.
+¹¹ “What have you done?” asked Samuel.
 
-¹² Then Samuel took a stone and set it up between Mizpah and Shen. He named it Ebenezer, saying, “Thus far the Lord has helped us.”
+Saul replied, “When I saw that the men were scattering, and that you did not come at the set time, and that the Philistines were assembling at Mikmash, ¹² I thought, ‘Now the Philistines will come down against me at Gilgal, and I have not sought the Lord’s favor.’ So I felt compelled to offer the burnt offering.”
 
-¹³ So the Philistines were subdued and they stopped invading Israel’s territory. Throughout Samuel’s lifetime, the hand of the Lord was against the Philistines. ¹⁴ The towns from Ekron to Gath that the Philistines had captured from Israel were restored to Israel, and Israel delivered the neighboring territory from the hands of the Philistines. And there was peace between Israel and the Amorites.
+¹³ “You have done a foolish thing,” Samuel said. “You have not kept the command the Lord your God gave you; if you had, he would have established your kingdom over Israel for all time. ¹⁴ But now your kingdom will not endure; the Lord has sought out a man after his own heart and appointed him ruler of his people, because you have not kept the Lord’s command.”
 
-¹⁵ Samuel continued as Israel’s leader all the days of his life. ¹⁶ From year to year he went on a circuit from Bethel to Gilgal to Mizpah, judging Israel in all those places. ¹⁷ But he always went back to Ramah, where his home was, and there he also held court for Israel. And he built an altar there to the Lord.
-
-**Israel Asks for a King**
-
-⁸ When Samuel grew old, he appointed his sons as Israel’s leaders. ² The name of his firstborn was Joel and the name of his second was Abijah, and they served at Beersheba. ³ But his sons did not follow his ways. They turned aside after dishonest gain and accepted bribes and perverted justice.
-
-⁴ So all the elders of Israel gathered together and came to Samuel at Ramah. ⁵ They said to him, “You are old, and your sons do not follow your ways; now appoint a king to lead us, such as all the other nations have.”
-
-⁶ But when they said, “Give us a king to lead us,” this displeased Samuel; so he prayed to the Lord. ⁷ And the Lord told him: “Listen to all that the people are saying to you; it is not you they have rejected, but they have rejected me as their king. ⁸ As they have done from the day I brought them up out of Egypt until this day, forsaking me and serving other gods, so they are doing to you. ⁹ Now listen to them; but warn them solemnly and let them know what the king who will reign over them will claim as his rights.”
-
-¹⁰ Samuel told all the words of the Lord to the people who were asking him for a king. ¹¹ He said, “This is what the king who will reign over you will claim as his rights: He will take your sons and make them serve with his chariots and horses, and they will run in front of his chariots. ¹² Some he will assign to be commanders of thousands and commanders of fifties, and others to plow his ground and reap his harvest, and still others to make weapons of war and equipment for his chariots. ¹³ He will take your daughters to be perfumers and cooks and bakers. ¹⁴ He will take the best of your fields and vineyards and olive groves and give them to his attendants. ¹⁵ He will take a tenth of your grain and of your vintage and give it to his officials and attendants. ¹⁶ Your male and female servants and the best of your cattle and donkeys he will take for his own use. ¹⁷ He will take a tenth of your flocks, and you yourselves will become his slaves. ¹⁸ When that day comes, you will cry out for relief from the king you have chosen, but the Lord will not answer you in that day.”
-
-¹⁹ But the people refused to listen to Samuel. “No!” they said. “We want a king over us. ²⁰ Then we will be like all the other nations, with a king to lead us and to go out before us and fight our battles.”
-
-²¹ When Samuel heard all that the people said, he repeated it before the Lord. ²² The Lord answered, “Listen to them and give them a king.”
-
-Then Samuel said to the Israelites, “Everyone go back to your own town.”
+¹⁵ Then Samuel left Gilgal and went up to Gibeah in Benjamin, and Saul counted the men who were with him. They numbered about six hundred.
 
 ## Sermon Outline
 
-### When God Speaks
-
-1. We want to feel safe  
-2. God’s salvation 
-3. A strange request 
-4. An active faith  
+1.  A leader who trusts and lives for himself. 
+2.  We are like Saul. 
+3.  We need someone after God’s heart. 
+4.  We all need to be after God’s heart.  
 
 ## Q&A
 Got questions or comments? Send them [here](https://tinyurl.com/SGHACQuestionsAnswers)
