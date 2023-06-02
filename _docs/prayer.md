@@ -21,7 +21,6 @@ order: 3
 - Others can be found [here](https://stgeorgeshurstville.org.au/prayer)
 
 ## Mission Partners
-
 - **Persecuted Christians**: We thank you for sending Jesus who is sovereign and came to save the world by sacrificing himself. Please give patience and perseverance to those who are being persecuted for the faith. May you be their refuge and strength. May they be a model and example of what it means to have a calling in life and a confidence for the future. May they seek to do the will of you rather than themselves. May there be justice. If this isn’t achieved, may they keep looking to you as the judge and respond with love rather than revenge. You can sign up for more prayer points and updates of persecuted Christians from [Open Doors](https://vom.com.au/pray-for-the-persecuted-church/) and [Voice of the Martyrs](https://vom.com.au/prayer/). 
 
 - **Compassion**:  Jesus came to seek and to save the lost. You tell us that true religion is to visit orphans and widows in their affliction. May Compassion Australia seek to release children from poverty in Jesus’ name. May we do what we can to love children and their families so that they will mature physically, mentally, socially and most importantly spiritually. May we prayerfully invest in the lives of the children in Sumba Indonesia and see a whole region won and living for God. 
