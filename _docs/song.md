@@ -4,14 +4,14 @@ order: 2
 ---
 
 ## 9:30am 
-1. Rock of Ages
+1. 
 2. What a Friend we have in Jesus
 3. Come Thou Fount
 4. Rejoice the Lord is King
 
 ## 4pm 
 
-1. Ancient of Days
+1. 
 2. Hear me, Lord
 3. Better By Far
 4. Be Thou My Vision
