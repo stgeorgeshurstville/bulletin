@@ -6,37 +6,59 @@ order: 1
 ## Bible Reading
 
 ### Prayer
-Lord make your word our rule, your Spirit our teacher, and your glory our supreme concern, for the sake of our Saviour, the Lord Jesus Christ. **Amen**.
+We thank you heavenly Father, for inspiring all Scripture by the Holy Spirit. Help us by your Spirit so to hear your holy word that we may be equipped for every good work, through Jesus Christ our Lord. **Amen**.
 
 ### 1 Samuel 13:1-15 (NIV)
-**Samuel Rebukes Saul**
+_The Lord Rejects Saul as King_
 
-¹ Saul was thirty years old when he became king, and he reigned over Israel forty- two years.
+¹ Samuel said to Saul, “I am the one the Lord sent to anoint you king over his people Israel; so listen now to the message from the Lord. ² This is what the Lord Almighty says: ‘I will punish the Amalekites for what they did to Israel when they waylaid them as they came up from Egypt. ³ Now go, attack the Amalekites and totally destroy all that belongs to them. Do not spare them; put to death men and women, children and infants, cattle and sheep, camels and donkeys.’”
 
-² Saul chose three thousand men from Israel; two thousand were with him at Mikmash and in the hill country of Bethel, and a thousand were with Jonathan at Gibeah in Benjamin. The rest of the men he sent back to their homes.
+⁴ So Saul summoned the men and mustered them at Telaim—two hundred thousand foot soldiers and ten thousand from Judah. ⁵ Saul went to the city of Amalek and set an ambush in the ravine. ⁶ Then he said to the Kenites, “Go away, leave the Amalekites so that I do not destroy you along with them; for you showed kindness to all the Israelites when they came up out of Egypt.” So the Kenites moved away from the Amalekites.
 
-³ Jonathan attacked the Philistine outpost at Geba, and the Philistines heard about it. Then Saul had the trumpet blown throughout the land and said, “Let the Hebrews hear!” ⁴ So all Israel heard the news: “Saul has attacked the Philistine outpost, and now Israel has become obnoxious to the Philistines.” And the people were summoned to join Saul at Gilgal.
+⁷ Then Saul attacked the Amalekites all the way from Havilah to Shur, near the eastern border of Egypt. ⁸ He took Agag king of the Amalekites alive, and all his people he totally destroyed with the sword. ⁹ But Saul and the army spared Agag and the best of the sheep and cattle, the fat calves and lambs—everything that was good. These they were unwilling to destroy completely, but everything that was despised and weak they totally destroyed.
 
-⁵ The Philistines assembled to fight Israel, with three thousand chariots, six thousand charioteers, and soldiers as numerous as the sand on the seashore. They went up and camped at Mikmash, east of Beth Aven. ⁶ When the Israelites saw that their situation was critical and that their army was hard pressed, they hid in caves and thickets, among the rocks, and in pits and cisterns. ⁷ Some Hebrews even crossed the Jordan to the land of Gad and Gilead.
+¹⁰ Then the word of the Lord came to Samuel: ¹¹ “I regret that I have made Saul king, because he has turned away from me and has not carried out my instructions.” Samuel was angry, and he cried out to the Lord all that night.
 
-Saul remained at Gilgal, and all the troops with him were quaking with fear. ⁸ He waited seven days, the time set by Samuel; but Samuel did not come to Gilgal, and Saul’s men began to scatter. ⁹ So he said, “Bring me the burnt offering and the fellowship offerings.” And Saul offered up the burnt offering. ¹⁰ Just as he finished making the offering, Samuel arrived, and Saul went out to greet him.
+¹² Early in the morning Samuel got up and went to meet Saul, but he was told, “Saul has gone to Carmel. There he has set up a monument in his own honor and has turned and gone on down to Gilgal.”
 
-¹¹ “What have you done?” asked Samuel.
+¹³ When Samuel reached him, Saul said, “The Lord bless you! I have carried out the Lord’s instructions.”
 
-Saul replied, “When I saw that the men were scattering, and that you did not come at the set time, and that the Philistines were assembling at Mikmash, ¹² I thought, ‘Now the Philistines will come down against me at Gilgal, and I have not sought the Lord’s favor.’ So I felt compelled to offer the burnt offering.”
+¹⁴ But Samuel said, “What then is this bleating of sheep in my ears? What is this lowing of cattle that I hear?”
 
-¹³ “You have done a foolish thing,” Samuel said. “You have not kept the command the Lord your God gave you; if you had, he would have established your kingdom over Israel for all time. ¹⁴ But now your kingdom will not endure; the Lord has sought out a man after his own heart and appointed him ruler of his people, because you have not kept the Lord’s command.”
+¹⁵ Saul answered, “The soldiers brought them from the Amalekites; they spared the best of the sheep and cattle to sacrifice to the Lord your God, but we totally destroyed the rest.”
 
-¹⁵ Then Samuel left Gilgal and went up to Gibeah in Benjamin, and Saul counted the men who were with him. They numbered about six hundred.
+¹⁶ “Enough!” Samuel said to Saul. “Let me tell you what the Lord said to me last night.”
+
+“Tell me,” Saul replied.
+
+¹⁷ Samuel said, “Although you were once small in your own eyes, did you not become the head of the tribes of Israel? The Lord anointed you king over Israel. ¹⁸ And he sent you on a mission, saying, ‘Go and completely destroy those wicked people, the Amalekites; wage war against them until you have wiped them out.’ ¹⁹ Why did you not obey the Lord? Why did you pounce on the plunder and do evil in the eyes of the Lord?”
+
+²⁰ “But I did obey the Lord,” Saul said. “I went on the mission the Lord assigned me. I completely destroyed the Amalekites and brought back Agag their king. ²¹ The soldiers took sheep and cattle from the plunder, the best of what was devoted to God, in order to sacrifice them to the Lord your God at Gilgal.”
+
+²² But Samuel replied: “Does the Lord delight in burnt offerings and sacrifices as much as in obeying the Lord? To obey is better than sacrifice, and to heed is better than the fat of rams. ²³ For rebellion is like the sin of divination,and arrogance like the evil of idolatry. Because you have rejected the word of the Lord, he has rejected you as king.”
+
+²⁴ Then Saul said to Samuel, “I have sinned. I violated the Lord’s command and your instructions. I was afraid of the men and so I gave in to them. ²⁵ Now I beg you, forgive my sin and come back with me, so that I may worship the Lord.”
+
+²⁶ But Samuel said to him, “I will not go back with you. You have rejected the word of the Lord, and the Lord has rejected you as king over Israel!”
+
+²⁷ As Samuel turned to leave, Saul caught hold of the hem of his robe, and it tore. ²⁸ Samuel said to him, “The Lord has torn the kingdom of Israel from you today and has given it to one of your neighbors—to one better than you. ²⁹ He who is the Glory of Israel does not lie or change his mind; for he is not a human being, that he should change his mind.”
+
+³⁰ Saul replied, “I have sinned. But please honor me before the elders of my people and before Israel; come back with me, so that I may worship the Lord your God.” ³¹ So Samuel went back with Saul, and Saul worshiped the Lord.
+
+³² Then Samuel said, “Bring me Agag king of the Amalekites.” Agag came to him in chains. And he thought, “Surely the bitterness of death is past.”
+
+³³ But Samuel said, “As your sword has made women childless, so will your mother be childless among women.” And Samuel put Agag to death before the Lord at Gilgal.
+
+³⁴ Then Samuel left for Ramah, but Saul went up to his home in Gibeah of Saul. ³⁵ Until the day Samuel died, he did not go to see Saul again, though Samuel mourned for him. And the Lord regretted that he had made Saul king over Israel.
+
 
 ## Sermon Outline
-
-### The Foolish Leader
-
-1.  A leader who trusts and lives for himself. 
-2.  We are like Saul. 
-3.  We need someone after God’s heart. 
-4.  We all need to be after God’s heart.  
+### The king who let the people down
+- A wishing well
+- Consequence
+- A leader who failed his people
+- 180
+- Father, not idol
 
 ## Q&A
 Got questions or comments? Send them [here](https://tinyurl.com/SGHACQuestionsAnswers)
