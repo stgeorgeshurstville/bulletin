@@ -8,7 +8,7 @@ order: 1
 ### Prayer
 We thank you heavenly Father, for inspiring all Scripture by the Holy Spirit. Help us by your Spirit so to hear your holy word that we may be equipped for every good work, through Jesus Christ our Lord. **Amen**.
 
-### 1 Samuel 13:1-15 (NIV)
+### 1 Samuel 15 (NIV)
 _The Lord Rejects Saul as King_
 
 ¹ Samuel said to Saul, “I am the one the Lord sent to anoint you king over his people Israel; so listen now to the message from the Lord. ² This is what the Lord Almighty says: ‘I will punish the Amalekites for what they did to Israel when they waylaid them as they came up from Egypt. ³ Now go, attack the Amalekites and totally destroy all that belongs to them. Do not spare them; put to death men and women, children and infants, cattle and sheep, camels and donkeys.’”
