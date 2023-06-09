@@ -3,10 +3,10 @@ title: Giving
 order: 5
 ---
 
-#### For you know the grace of our Lord Jesus Christ, that though he was rich, yet for your sake he became poor, so that you though his poverty might become rich.
+#### For you know the grace of our Lord Jesus Christ, that though he was rich, yet for your sake he became poor, so that you through his poverty might become rich.
 
 
-##### - 2 Corinthians 8:8-9 (NIV11)
+##### - 2 Corinthians 8:9 NIV11
 
 ---
 
