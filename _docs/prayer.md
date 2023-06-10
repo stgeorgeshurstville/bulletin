@@ -6,10 +6,9 @@ order: 3
 ## Sunday Prayer Points
 
 - **Lord’s Prayer:** Our Father in heaven, hallowed be your name, your kingdom come, your will be done on earth as in heaven. Give us today our daily bread. Forgive us our sins as we forgive those who sin against us. Lead us not into temptation, but deliver us from evil. For the kingdom, the power, and the glory are yours now and forever.
-
 - **Collect**: Lord God, the strength of all who put their trust in you: mercifully accept our prayers, and because through the weakness of our mortal nature we can do nothing good without you, grant us the help of your grace, that in keeping your commandments we may please you both in word and deed; through Jesus Christ our Lord. Amen.
-
 - **Growing up**: Heavenly Father, we trust your love, grace and acceptance, and that you created and saved us to live for your glory. We trust in your Son Jesus Christ as the saviour of the world, and your gospel as your power for salvation for all who believe. We trust in your Son Jesus Christ as the holy, loving, powerful and generous saviour, head, lord, and judge of St George’s. We trust you as the just judge of all people, and that you will bring glory to yourself through our church and in Christ Jesus. Forgive us in living for trivial happiness and false securities rather than holiness. We pray that we will die to sin every day and live for righteousness; that we will deny ourselves, take up our cross and follow Jesus every day. 
+- **Church Sermon**: Father, you are not a god of our imagination, not a dull idol or a wishing well but you are the one true living God. And you, O Father, desire obedience from us, obedience that can only come from a genuine relationship with you. Therefore because you are the one true living God and you desire obedience from us, we are sorry for all of the times that we have tried to pay you off, with sacrifices in the days of Saul, perhaps with church attendance, Bible reading, prayer or ministry in our days. We are sorry that we have done good things as if we are trying to do you a favour. Instead Father, cleanse our hearts, please continue to refine our hearts like gold through a furnace, help us to do all things not to pay you off, but out of joyful obedience. 
 
 
 ## Weekly Prayer Points
