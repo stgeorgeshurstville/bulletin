@@ -15,13 +15,19 @@ order: 4
 
 
 ## General
+- **Important news about Mandarin ministry**: After prayerful consideration and due process, we are thankful to be able to announce that pastor Elvin Hong has accepted the call to become the pastor of the Mandarin ministry. Pastor Hong will also be leading our leadership and ministry development of the church. He will commence on 18 July 2023. Pastor's Hong's church, Australian Asian Church, will be joining him to be part of the St George's family. This is a wonderful provision of God that we believe will create greater capacity for many opportunities Gospel ministry in the St George's area. Opportunity may well require change and sacrifice. Please pray for the many decisions ahead, and for pastor Elvin, his family, and our brothers and sisters at AAC (Australian Asian Church).
+- **Holiday Program**: at this stage, we plan to run the 930 all-gen program at 124 Forest Road. 
+- **Term Break**: 
+  - **NewGen**. 
+  - **Youth**: The last day for this term is Fri the 23rd of June. We’ll recommence in Term 3 on Fri the 21st of July. 
+  - **English classes**: The last day for this term is Wed the 28th of June. We’ll recommence in Term 3 on Wed the 19th of July.  
+  - **Discipleship Group**: The last day for this term is Sun the 2nd of July. Term 3 starts on the week of Monday the 24th of July. Some groups may be operating on a different schedule. Please speak to your leaders for more information and keep growing up, deep and out. 
+
 - **Growing in our Welcoming**: 
 
 ![Our Mission; Make disciples](https://github.com/stgeorgeshurstville/bulletin/blob/main/images/church%20stuff.png)
 
-- **Equip women 23**: Sat 17th June 9:30am-4pm. Come and join sisters across all ages as we dig into the book of Haggai together. Register for conference and lunch [here]( https://stgeorgeshurstville.org.au/equip23)
-- **Mission Partners**: We’ll be hearing from ARDFA (Anglican Relief and Development Fund Australia) and Aywan about high school scripture next week. 
-
+- **Chapel Cleaning**: Sunday 4pm will be cleaning the Chapel this month. Please volunteer to vacuum the floor, wipe the pews and take out the rubbish.
 
 
 ## What’s Next?
