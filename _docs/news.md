@@ -7,11 +7,14 @@ order: 4
 
 | Dates | Events |
 | ----------- | ----------- | 
-| **M A Y**  |  | 
-|  Sun 21 | Moving to Additional Space (9:30am) |
 | **J U N E**  |  | 
-|  Sat 3 @9:15am - 2:15pm | [Sam Chan Growing Out Seminar](https://stgeorgeshurstville.org.au/growing-out-conference) |
-|  Sat 17 @9:30am - 4pm | [EQUIP](https://stgeorgeshurstville.org.au/equip23) |
+|  Fri 23 | Last day of Youth |
+|  Wed 28 | Last day of English Classes |
+| **J U L Y**  |  | 
+|  Sun 2 | Last day of Dgroup |
+|  Wed 19 | English Classes commences |
+|  Fri 21 | Youth commences |
+|  Mon 24 | Dgroup commences |
 
 
 ## General
