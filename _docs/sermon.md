@@ -9,34 +9,71 @@ order: 1
 Lord make your word our rule, your Spirit our teacher, and your glory our supreme concern, for the sake of our Saviour, the Lord Jesus Christ. **Amen**.
 
 
-### 1 Samuel 16:1-13 (NIV)
-_Saul Anoints David_
+### 1 Samuel 17 (NIV)
+_David and Goliath_
 
-¹ The Lord said to Samuel, “How long will you mourn for Saul, since I have rejected him as king over Israel? Fill your horn with oil and be on your way; I am sending you to Jesse of Bethlehem. I have chosen one of his sons to be king.”
+¹⁷ Now the Philistines gathered their forces for war and assembled at Sokoh in Judah. They pitched camp at Ephes Dammim, between Sokoh and Azekah. ² Saul and the Israelites assembled and camped in the Valley of Elah and drew up their battle line to meet the Philistines. ³ The Philistines occupied one hill and the Israelites another, with the valley between them.
 
-² But Samuel said, “How can I go? If Saul hears about it, he will kill me.”
+⁴ A champion named Goliath, who was from Gath, came out of the Philistine camp. His height was six cubits and a span. ⁵ He had a bronze helmet on his head and wore a coat of scale armor of bronze weighing five thousand shekels ; ⁶ on his legs he wore bronze greaves, and a bronze javelin was slung on his back. ⁷ His spear shaft was like a weaver’s rod, and its iron point weighed six hundred shekels. His shield bearer went ahead of him.
 
-The Lord said, “Take a heifer with you and say, ‘I have come to sacrifice to the Lord.’ ³ Invite Jesse to the sacrifice, and I will show you what to do. You are to anoint for me the one I indicate.”
+⁸ Goliath stood and shouted to the ranks of Israel, “Why do you come out and line up for battle? Am I not a Philistine, and are you not the servants of Saul? Choose a man and have him come down to me. ⁹ If he is able to fight and kill me, we will become your subjects; but if I overcome him and kill him, you will become our subjects and serve us.” ¹⁰ Then the Philistine said, “This day I defy the armies of Israel! Give me a man and let us fight each other.” ¹¹ On hearing the Philistine’s words, Saul and all the Israelites were dismayed and terrified.
 
-⁴ Samuel did what the Lord said. When he arrived at Bethlehem, the elders of the town trembled when they met him. They asked, “Do you come in peace?”
+¹² Now David was the son of an Ephrathite named Jesse, who was from Bethlehem in Judah. Jesse had eight sons, and in Saul’s time he was very old. ¹³ Jesse’s three oldest sons had followed Saul to the war: The firstborn was Eliab; the second, Abinadab; and the third, Shammah. ¹⁴ David was the youngest. The three oldest followed Saul, ¹⁵ but David went back and forth from Saul to tend his father’s sheep at Bethlehem.
 
-⁵ Samuel replied, “Yes, in peace; I have come to sacrifice to the Lord. Consecrate yourselves and come to the sacrifice with me.” Then he consecrated Jesse and his sons and invited them to the sacrifice.
+¹⁶ For forty days the Philistine came forward every morning and evening and took his stand.
 
-⁶ When they arrived, Samuel saw Eliab and thought, “Surely the Lord’s anointed stands here before the Lord.”
+¹⁷ Now Jesse said to his son David, “Take this ephah of roasted grain and these ten loaves of bread for your brothers and hurry to their camp. ¹⁸ Take along these ten cheeses to the commander of their unit. See how your brothers are and bring back some assurance from them. ¹⁹ They are with Saul and all the men of Israel in the Valley of Elah, fighting against the Philistines.”
 
-⁷ But the Lord said to Samuel, “Do not consider his appearance or his height, for I have rejected him. The Lord does not look at the things people look at. People look at the outward appearance, but the Lord looks at the heart.”
+²⁰ Early in the morning David left the flock in the care of a shepherd, loaded up and set out, as Jesse had directed. He reached the camp as the army was going out to its battle positions, shouting the war cry. ²¹ Israel and the Philistines were drawing up their lines facing each other. ²² David left his things with the keeper of supplies, ran to the battle lines and asked his brothers how they were. ²³ As he was talking with them, Goliath, the Philistine champion from Gath, stepped out from his lines and shouted his usual defiance, and David heard it. ²⁴ Whenever the Israelites saw the man, they all fled from him in great fear.
 
-⁸ Then Jesse called Abinadab and had him pass in front of Samuel. But Samuel said, “The Lord has not chosen this one either.” ⁹ Jesse then had Shammah pass by, but Samuel said, “Nor has the Lord chosen this one.” ¹⁰ Jesse had seven of his sons pass before Samuel, but Samuel said to him, “The Lord has not chosen these.” ¹¹ So he asked Jesse, “Are these all the sons you have?”
+²⁵ Now the Israelites had been saying, “Do you see how this man keeps coming out? He comes out to defy Israel. The king will give great wealth to the man who kills him. He will also give him his daughter in marriage and will exempt his family from taxes in Israel.”
 
-“There is still the youngest,” Jesse answered. “He is tending the sheep.”
+²⁶ David asked the men standing near him, “What will be done for the man who kills this Philistine and removes this disgrace from Israel? Who is this uncircumcised Philistine that he should defy the armies of the living God?”
 
-Samuel said, “Send for him; we will not sit down until he arrives.”
+²⁷ They repeated to him what they had been saying and told him, “This is what will be done for the man who kills him.”
 
-¹² So he sent for him and had him brought in. He was glowing with health and had a fine appearance and handsome features.
+²⁸ When Eliab, David’s oldest brother, heard him speaking with the men, he burned with anger at him and asked, “Why have you come down here? And with whom did you leave those few sheep in the wilderness? I know how conceited you are and how wicked your heart is; you came down only to watch the battle.”
 
-Then the Lord said, “Rise and anoint him; this is the one.”
+²⁹ “Now what have I done?” said David. “Can’t I even speak?” ³⁰ He then turned away to someone else and brought up the same matter, and the men answered him as before. ³¹ What David said was overheard and reported to Saul, and Saul sent for him.
 
-¹³ So Samuel took the horn of oil and anointed him in the presence of his brothers, and from that day on the Spirit of the Lord came powerfully upon David. Samuel then went to Ramah.
+³² David said to Saul, “Let no one lose heart on account of this Philistine; your servant will go and fight him.”
+
+³³ Saul replied, “You are not able to go out against this Philistine and fight him; you are only a young man, and he has been a warrior from his youth.”
+
+³⁴ But David said to Saul, “Your servant has been keeping his father’s sheep. When a lion or a bear came and carried off a sheep from the flock, ³⁵ I went after it, struck it and rescued the sheep from its mouth. When it turned on me, I seized it by its hair, struck it and killed it. ³⁶ Your servant has killed both the lion and the bear; this uncircumcised Philistine will be like one of them, because he has defied the armies of the living God. ³⁷ The Lord who rescued me from the paw of the lion and the paw of the bear will rescue me from the hand of this Philistine.”
+
+Saul said to David, “Go, and the Lord be with you.”
+
+³⁸ Then Saul dressed David in his own tunic. He put a coat of armour on him and a bronze helmet on his head. ³⁹ David fastened on his sword over the tunic and tried walking around, because he was not used to them.
+
+“I cannot go in these,” he said to Saul, “because I am not used to them.” So he took them off. ⁴⁰ Then he took his staff in his hand, chose five smooth stones from the stream, put them in the pouch of his shepherd’s bag and, with his sling in his hand, approached the Philistine.
+
+⁴¹ Meanwhile, the Philistine, with his shield bearer in front of him, kept coming closer to David. ⁴² He looked David over and saw that he was little more than a boy, glowing with health and handsome, and he despised him. ⁴³ He said to David, “Am I a dog, that you come at me with sticks?” And the Philistine cursed David by his gods. ⁴⁴ “Come here,” he said, “and I’ll give your flesh to the birds and the wild animals!”
+
+⁴⁵ David said to the Philistine, “You come against me with sword and spear and javelin, but I come against you in the name of the Lord Almighty, the God of the armies of Israel, whom you have defied. ⁴⁶ This day the Lord will deliver you into my hands, and I’ll strike you down and cut off your head. This very day I will give the carcasses of the Philistine army to the birds and the wild animals, and the whole world will know that there is a God in Israel. ⁴⁷ All those gathered here will know that it is not by sword or spear that the Lord saves; for the battle is the Lord’s, and he will give all of you into our hands.”
+
+⁴⁸ As the Philistine moved closer to attack him, David ran quickly toward the battle line to meet him. ⁴⁹ Reaching into his bag and taking out a stone, he slung it and struck the Philistine on the forehead. The stone sank into his forehead, and he fell facedown on the ground.
+
+⁵⁰ So David triumphed over the Philistine with a sling and a stone; without a sword in his hand he struck down the Philistine and killed him.
+
+⁵¹ David ran and stood over him. He took hold of the Philistine’s sword and drew it from the sheath. After he killed him, he cut off his head with the sword.
+
+When the Philistines saw that their hero was dead, they turned and ran. ⁵² Then the men of Israel and Judah surged forward with a shout and pursued the Philistines to the entrance of Gath and to the gates of Ekron. Their dead were strewn along the Shaaraim road to Gath and Ekron. ⁵³ When the Israelites returned from chasing the Philistines, they plundered their camp.
+
+⁵⁴ David took the Philistine’s head and brought it to Jerusalem; he put the Philistine’s weapons in his own tent.
+
+⁵⁵ As Saul watched David going out to meet the Philistine, he said to Abner, commander of the army, “Abner, whose son is that young man?”
+
+Abner replied, “As surely as you live, Your Majesty, I don’t know.”
+
+⁵⁶ The king said, “Find out whose son this young man is.”
+
+⁵⁷ As soon as David returned from killing the Philistine, Abner took him and brought him before Saul, with David still holding the Philistine’s head.
+
+⁵⁸ “Whose son are you, young man?” Saul asked him.
+
+David said, “I am the son of your servant Jesse of Bethlehem.”
+
 
 ## Sermon Outline
 ### Seeing as God sees
