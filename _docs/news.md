@@ -27,8 +27,8 @@ order: 4
 - **Leave**: Brian will be on leave from 26 Jun to 9 July. And Alan will be on leave from 26 Jun to 17 July. Please direct all enquiries to the office.    
 
 **Growing in Our Welcoming:** 
-- Chapel Cleaning: Sunday 4pm will be cleaning the Chapel this month. Please volunteer to vacuum the floor, wipe the pews and take out the rubbish.
-- Away: Please contact the office for any inquiries or assistance. 
+- **Chapel Cleaning:** Sunday 4pm will be cleaning the Chapel this month. Please volunteer to vacuum the floor, wipe the pews and take out the rubbish.
+- **Away:**  Please contact the office for any inquiries or assistance. 
   - Pastor Brian will be away from 
   - Pastor Alan will be away from 26 June to 16 July. 
 
