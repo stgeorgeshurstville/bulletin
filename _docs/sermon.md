@@ -69,10 +69,10 @@ David said, “I am the son of your servant Jesse of Bethlehem.”
 
 ## Sermon Outline
 ### Seeing as God sees
-1.     The Battle
-2.     The Real Battle
-3.     Jesus’ Battle
-4.     Our Battle 
+1. The Battle
+2. The Real Battle
+3. Jesus’ Battle
+4. Our Battle 
 
 ## Q&A
 Got questions or comments? Send them [here](https://tinyurl.com/SGHACQuestionsAnswers)
