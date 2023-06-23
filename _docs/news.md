@@ -29,8 +29,8 @@ order: 4
 **Growing in Our Welcoming:** 
 - Chapel Cleaning: Sunday 4pm will be cleaning the Chapel this month. Please volunteer to vacuum the floor, wipe the pews and take out the rubbish.
 - Away: Please contact the office for any inquiries or assistance. 
-Pastor Brian will be away from 
-- Pastor Alan will be away from 26 June to 16 July. 
+  - Pastor Brian will be away from 
+  - Pastor Alan will be away from 26 June to 16 July. 
 
 - **Local High School Scripture:** You can sign up for prayer updates at https://www.hurstvillesre.com/become-a-supporter. You can partner financially by giving to the following account: 
   Account Name: Christian Education Board for Hurstville High Schools 
@@ -46,5 +46,5 @@ Pastor Brian will be away from
 **Ongoing Events** 
 - **Services in Different Languages:** Cantonese on Sat 3pm and Sun 9:30am, Mandarin Sun 11am and Nepalese Sun 5pm. 
 - **Morning Tea:**  Served after the 9:30am Service. We’d love for you to join us. We’ll be serving coffee.
-- **Dinner:**Please join us as we have dinner together after the 4pm Service.  
+- **Dinner:** Please join us as we have dinner together after the 4pm Service.  
 
