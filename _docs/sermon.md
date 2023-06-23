@@ -6,7 +6,8 @@ order: 1
 ## Bible Reading
 
 ### Prayer
-Lord make your word our rule, your Spirit our teacher, and your glory our supreme concern, for the sake of our Saviour, the Lord Jesus Christ. **Amen**.
+Prayer
+Thank you Father for making yourself known to us, showing us the way of salvation through faith in your Son. We ask you now to teach us through your word, so that we may be ready to serve you, for the glory of our Lord Jesus Christ. **Amen**. 
 
 
 ### 1 Samuel 17 (NIV)
