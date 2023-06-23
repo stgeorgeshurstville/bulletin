@@ -18,15 +18,7 @@ _David and Goliath_
 
 ⁸ Goliath stood and shouted to the ranks of Israel, “Why do you come out and line up for battle? Am I not a Philistine, and are you not the servants of Saul? Choose a man and have him come down to me. ⁹ If he is able to fight and kill me, we will become your subjects; but if I overcome him and kill him, you will become our subjects and serve us.” ¹⁰ Then the Philistine said, “This day I defy the armies of Israel! Give me a man and let us fight each other.” ¹¹ On hearing the Philistine’s words, Saul and all the Israelites were dismayed and terrified.
 
-¹² Now David was the son of an Ephrathite named Jesse, who was from Bethlehem in Judah. Jesse had eight sons, and in Saul’s time he was very old. ¹³ Jesse’s three oldest sons had followed Saul to the war: The firstborn was Eliab; the second, Abinadab; and the third, Shammah. ¹⁴ David was the youngest. The three oldest followed Saul, ¹⁵ but David went back and forth from Saul to tend his father’s sheep at Bethlehem.
-
-¹⁶ For forty days the Philistine came forward every morning and evening and took his stand.
-
-¹⁷ Now Jesse said to his son David, “Take this ephah of roasted grain and these ten loaves of bread for your brothers and hurry to their camp. ¹⁸ Take along these ten cheeses to the commander of their unit. See how your brothers are and bring back some assurance from them. ¹⁹ They are with Saul and all the men of Israel in the Valley of Elah, fighting against the Philistines.”
-
-²⁰ Early in the morning David left the flock in the care of a shepherd, loaded up and set out, as Jesse had directed. He reached the camp as the army was going out to its battle positions, shouting the war cry. ²¹ Israel and the Philistines were drawing up their lines facing each other. ²² David left his things with the keeper of supplies, ran to the battle lines and asked his brothers how they were. ²³ As he was talking with them, Goliath, the Philistine champion from Gath, stepped out from his lines and shouted his usual defiance, and David heard it. ²⁴ Whenever the Israelites saw the man, they all fled from him in great fear.
-
-²⁵ Now the Israelites had been saying, “Do you see how this man keeps coming out? He comes out to defy Israel. The king will give great wealth to the man who kills him. He will also give him his daughter in marriage and will exempt his family from taxes in Israel.”
+________________________________________________
 
 ²⁶ David asked the men standing near him, “What will be done for the man who kills this Philistine and removes this disgrace from Israel? Who is this uncircumcised Philistine that he should defy the armies of the living God?”
 
