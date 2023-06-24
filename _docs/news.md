@@ -41,7 +41,7 @@ order: 4
 **What’s Next?** 
 - **New?** We’d love to meet you and introduce you to our church. Please speak to one of the pastors for a time to chat. 
 - **Growing Together:** The best way to do this is to be part of a small group (Discipleship Group). More information [here](https://stgeorgeshurstville.org.au/discipleship-groups)
-- **Online Resources:** We are curating some resources on our website [here] (https://stgeorgeshurstville.org.au/lets-talk-about-christianity).  
+- **Online Resources:** We are curating some resources on our website [here](https://stgeorgeshurstville.org.au/lets-talk-about-christianity).  
 
 **Ongoing Events** 
 - **Services in Different Languages:** Cantonese on Sat 3pm and Sun 9:30am, Mandarin Sun 11am and Nepalese Sun 5pm. 
