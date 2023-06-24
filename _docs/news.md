@@ -32,7 +32,7 @@ order: 4
   - Pastor Brian will be away from 
   - Pastor Alan will be away from 26 June to 16 July. 
 
-- **Local High School Scripture:** You can sign up for prayer updates at https://www.hurstvillesre.com/become-a-supporter. You can partner financially by giving to the following account: 
+- **Local High School Scripture:** You can sign up for prayer updates [here]( https://www.hurstvillesre.com/become-a-supporter). You can partner financially by giving to the following account: 
   Account Name: Christian Education Board for Hurstville High Schools 
   BSB: 124001 
   Account Number: 22801395 
@@ -40,8 +40,8 @@ order: 4
 
 **What’s Next?** 
 - **New?** We’d love to meet you and introduce you to our church. Please speak to one of the pastors for a time to chat. 
-- **Growing Together:** The best way to do this is to be part of a small group (Discipleship Group). More information here: https://stgeorgeshurstville.org.au/discipleship-groups.
-- **Online Resources:** We are curating some resources on our website (https://stgeorgeshurstville.org.au/lets-talk-about-christianity).  
+- **Growing Together:** The best way to do this is to be part of a small group (Discipleship Group). More information [here](https://stgeorgeshurstville.org.au/discipleship-groups)
+- **Online Resources:** We are curating some resources on our website [here] (https://stgeorgeshurstville.org.au/lets-talk-about-christianity).  
 
 **Ongoing Events** 
 - **Services in Different Languages:** Cantonese on Sat 3pm and Sun 9:30am, Mandarin Sun 11am and Nepalese Sun 5pm. 
