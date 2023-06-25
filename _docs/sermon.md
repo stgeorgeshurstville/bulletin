@@ -53,22 +53,7 @@ Saul said to David, “Go, and the Lord be with you.”
 
 ⁵¹ David ran and stood over him. He took hold of the Philistine’s sword and drew it from the sheath. After he killed him, he cut off his head with the sword.
 
-When the Philistines saw that their hero was dead, they turned and ran. ⁵² Then the men of Israel and Judah surged forward with a shout and pursued the Philistines to the entrance of Gath and to the gates of Ekron. Their dead were strewn along the Shaaraim road to Gath and Ekron. ⁵³ When the Israelites returned from chasing the Philistines, they plundered their camp.
-
-⁵⁴ David took the Philistine’s head and brought it to Jerusalem; he put the Philistine’s weapons in his own tent.
-
-⁵⁵ As Saul watched David going out to meet the Philistine, he said to Abner, commander of the army, “Abner, whose son is that young man?”
-
-Abner replied, “As surely as you live, Your Majesty, I don’t know.”
-
-⁵⁶ The king said, “Find out whose son this young man is.”
-
-⁵⁷ As soon as David returned from killing the Philistine, Abner took him and brought him before Saul, with David still holding the Philistine’s head.
-
-⁵⁸ “Whose son are you, young man?” Saul asked him.
-
-David said, “I am the son of your servant Jesse of Bethlehem.”
-
+When the Philistines saw that their hero was dead, they turned and ran. 
 
 ## Sermon Outline
 ### Seeing as God sees
