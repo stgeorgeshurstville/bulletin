@@ -22,6 +22,7 @@ _David and Goliath_
 ________________________________________________
 25 Now the Israelites had been saying, “Do you see how this man keeps coming out? He comes out to defy Israel. The king will give great wealth to the man who kills him. He will also give him his daughter in marriage and will exempt his family from taxes in Israel.””
 ‭
+
 ²⁶ David asked the men standing near him, “What will be done for the man who kills this Philistine and removes this disgrace from Israel? Who is this uncircumcised Philistine that he should defy the armies of the living God?”
 
 ²⁷ They repeated to him what they had been saying and told him, “This is what will be done for the man who kills him.”
