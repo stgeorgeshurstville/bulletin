@@ -29,7 +29,7 @@ order: 4
 **Growing in Our Welcoming:** 
 - **Chapel Cleaning:** Sunday 4pm will be cleaning the Chapel this month. Please volunteer to vacuum the floor, wipe the pews and take out the rubbish.
 - **Away:**  Please contact the office for any inquiries or assistance. 
-  - Pastor Brian will be away from 
+  - Pastor Brian will be away from 26 June to 9 July
   - Pastor Alan will be away from 26 June to 16 July. 
 
 - **Local High School Scripture:** You can sign up for prayer updates [here]( https://www.hurstvillesre.com/become-a-supporter). You can partner financially by giving to the following account: 
