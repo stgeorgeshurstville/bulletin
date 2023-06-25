@@ -20,8 +20,7 @@ _David and Goliath_
 ⁸ Goliath stood and shouted to the ranks of Israel, “Why do you come out and line up for battle? Am I not a Philistine, and are you not the servants of Saul? Choose a man and have him come down to me. ⁹ If he is able to fight and kill me, we will become your subjects; but if I overcome him and kill him, you will become our subjects and serve us.” ¹⁰ Then the Philistine said, “This day I defy the armies of Israel! Give me a man and let us fight each other.” ¹¹ On hearing the Philistine’s words, Saul and all the Israelites were dismayed and terrified.
 
 ________________________________________________
-25 Now the Israelites had been saying, “Do you see how this man keeps coming out? He comes out to defy Israel. The king will give great wealth to the man who kills him. He will also give him his daughter in marriage and will exempt his family from taxes in Israel.””
-‭
+²⁵ Now the Israelites had been saying, “Do you see how this man keeps coming out? He comes out to defy Israel. The king will give great wealth to the man who kills him. He will also give him his daughter in marriage and will exempt his family from taxes in Israel.”
 
 ²⁶ David asked the men standing near him, “What will be done for the man who kills this Philistine and removes this disgrace from Israel? Who is this uncircumcised Philistine that he should defy the armies of the living God?”
 
