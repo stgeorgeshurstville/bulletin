@@ -6,7 +6,8 @@ title: Welcome
 ## Growing Up
 
 Jesus the precious one - treasuring Jesus above all
-[https://raw.githubusercontent.com/stgeorgeshurstville/bulletin/main/images/1Samuel.png]
+<img width="372" alt="Screenshot 2023-07-01 141205" src="https://github.com/stgeorgeshurstville/bulletin/assets/119166299/a444cf92-5e75-4bf0-98d4-a7c72d17cff3">
+
 
 ---
 #### God is in his holy habitation. God gives the desolate a home to dwell in; he gives power and strength to his people.
