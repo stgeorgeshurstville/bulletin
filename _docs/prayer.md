@@ -13,7 +13,7 @@ order: 3
 ## Weekly Prayer Points
 - **Pastor Elvin, his family and our brothers and sisters from AAC.**
 - **School Holidays**.  
-- Others can be found here: (https://stgeorgeshurstville.org.au/prayer) 
+- Others can be found (here):[https://stgeorgeshurstville.org.au/prayer] 
 
 ## Mission Partners
 - **Persecuted Christians:** We thank you for sending Jesus who is sovereign and came to save the world by sacrificing himself. Please give patience and perseverance to those who are being persecuted for the faith. May they be a model and example of what it means to have a calling in life and a confidence for the future. May they seek to do the will of you rather than themselves. May there be justice. If this isn’t achieved, may they keep looking to you as the judge and respond with love rather than revenge. You can sign up for more prayer points and updates of persecuted Christians from [Open Doors](https://vom.com.au/pray-for-the-persecuted-church/) and the [Voice of the Martyrs](https://vom.com.au/prayer/)
