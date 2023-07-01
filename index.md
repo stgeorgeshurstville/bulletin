@@ -5,7 +5,6 @@ title: Welcome
 ### Sermon Series:
 ## Growing Up
 
-Jesus the precious one - treasuring Jesus above all
 <img width="372" alt="Screenshot 2023-07-01 141205" src="https://github.com/stgeorgeshurstville/bulletin/assets/119166299/a444cf92-5e75-4bf0-98d4-a7c72d17cff3">
 
 
