@@ -16,15 +16,15 @@ order: 4
 
 ## General
 - *From Rev. Brian Tung:* We are very much looking forward to the brothers and sisters from AAC joining us in July. There are several important things that I'd like you to prayerfully consider:
-  1. The most important reason for the decision to join together is the Gospel mission. Both pastor Elvin and I are convinced that we can undertake the mission more effectively together. 
-  2. The joining together of two churches is complicated. It is like joining together of 2 families, not to remain two families living in one house, but to become a new family. Brothers and sister of AAC are equal members of the new family. 
-  3. Some practical things will help to settle our brothers and sisters from AAC: 
+1. The most important reason for the decision to join together is the Gospel mission. Both pastor Elvin and I are convinced that we can undertake the mission more effectively together. 
+2. The joining together of two churches is complicated. It is like joining together of 2 families, not to remain two families living in one house, but to become a new family. Brothers and sister of AAC are equal members of the new family. 
+3. Some practical things will help to settle our brothers and sisters from AAC: 
     - Wear our name tags. 
     - Introduce ourselves.
     - Introduce them to our friends. 
     - Exercise hospitality.
     -  Minister together.  
-  4. The joining together of the two churches will give us new opportunities for the Gospel. One of these opportunities is the possible starting a second Mandarin congregation on Sunday afternoon at 4pm. and the decision whether to start this congregation will need to be made as soon as possible. 
+4. The joining together of the two churches will give us new opportunities for the Gospel. One of these opportunities is the possible starting a second Mandarin congregation on Sunday afternoon at 4pm. and the decision whether to start this congregation will need to be made as soon as possible. 
 - A second congregation will mean that we can reach more Mandarin speaking people with the Gospel. It will also give us the opportunity to break the 'ceiling' of the current congregation allowing the Mandarin ministry to grow to the next level of 200. 
 - However, a second congregation will need a 'critical' mass of about 40-50 members. That is, about 20-30 St George's members willing to commit to the new congregation. 
 - It will also need a team of volunteers for ministries, including a new children ministry at 4pm. 
