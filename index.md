@@ -5,8 +5,8 @@ title: Welcome
 ### Sermon Series:
 ## Growing Up
 
-[Jesus the precious one - treasuring Jesus above all]
-(https://raw.githubusercontent.com/stgeorgeshurstville/bulletin/main/images/1Samuel.png)
+(Jesus the precious one - treasuring Jesus above all)
+[https://raw.githubusercontent.com/stgeorgeshurstville/bulletin/main/images/1Samuel.png]
 
 ---
 #### God is in his holy habitation. God gives the desolate a home to dwell in; he gives power and strength to his people.
