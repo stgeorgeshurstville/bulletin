@@ -7,9 +7,6 @@ order: 4
 
 | Dates | Events |
 | ----------- | ----------- | 
-| **J U N E**  |  | 
-|  Fri 23 | Last day of Youth |
-|  Wed 28 | Last day of English Classes |
 | **J U L Y**  |  | 
 |  Sun 2 | Last day of Dgroup |
 |  Wed 19 | English Classes commences |
@@ -18,7 +15,23 @@ order: 4
 
 
 ## General
-- **Important news about Mandarin ministry**: After prayerful consideration and due process, we are thankful to be able to announce that pastor Elvin Hong has accepted the call to become the pastor of the Mandarin ministry. Pastor Hong will also be leading our leadership and ministry development of the church. He will commence on 18 July 2023. Pastor's Hong's church, Australian Asian Church, will be joining him to be part of the St George's family. This is a wonderful provision of God that we believe will create greater capacity for many opportunities Gospel ministry in the St George's area. Opportunity may well require change and sacrifice. Please pray for the many decisions ahead, and for pastor Elvin, his family, and our brothers and sisters at AAC (Australian Asian Church).
+- *From Rev. Brian Tung:* We are very much looking forward to the brothers and sisters from AAC joining us in July. There are several important things that I'd like you to prayerfully consider:
+  1. The most important reason for the decision to join together is the Gospel mission. Both pastor Elvin and I are convinced that we can undertake the mission more effectively together. 
+  2. The joining together of two churches is complicated. It is like joining together of 2 families, not to remain two families living in one house, but to become a new family. Brothers and sister of AAC are equal members of the new family. 
+  3. Some practical things will help to settle our brothers and sisters from AAC: 
+    - Wear our name tags. 
+    - Introduce ourselves.
+    - Introduce them to our friends. 
+    - Exercise hospitality.
+    -  Minister together.  
+  4. The joining together of the two churches will give us new opportunities for the Gospel. One of these opportunities is the possible starting a second Mandarin congregation on Sunday afternoon at 4pm. and the decision whether to start this congregation will need to be made as soon as possible. 
+- A second congregation will mean that we can reach more Mandarin speaking people with the Gospel. It will also give us the opportunity to break the 'ceiling' of the current congregation allowing the Mandarin ministry to grow to the next level of 200. 
+- However, a second congregation will need a 'critical' mass of about 40-50 members. That is, about 20-30 St George's members willing to commit to the new congregation. 
+- It will also need a team of volunteers for ministries, including a new children ministry at 4pm. 
+- Lastly, it will mean that others will need to step up and step in to ministry positions in the existing services. 
+This is a wonderful God-given mission opportunity. 
+If you would like to find out more or might be interested in being part of the next congregation, please contact Brian,  Elvin or Carol.
+
 - **Holiday Program**: at this stage, we plan to run the 930 all-gen program at 124 Forest Road. 
 - **Term Break**: 
   - NewGen: last day of term is Sun 25/6. Everyone is welcomed to join our All-Gen services on 2/7, 9/7, 16/7 and we will return for Term 3 on Sun 23/7.
