@@ -39,7 +39,7 @@ If you would like to find out more or might be interested in being part of the n
     - English classes: We’ll recommence in Term 3 on Wed the 19th of July.  
     - Discipleship Groups: The last day for this term is Sun the 2nd of July. Term 3 starts on the week of Monday the 24th of July. Some groups may be operating on a different schedule. Please speak to your leaders for more information and keep growing up, deep and out. 
 - **Growing in Our Welcoming**:
- <img width="236" alt="Screenshot 2023-07-01 134203" src="https://github.com/stgeorgeshurstville/bulletin/assets/119166299/b540ac1c-0ba4-481e-90a5-5464939f7e4c">
+     <img width="236" alt="Screenshot 2023-07-01 134203" src="https://github.com/stgeorgeshurstville/bulletin/assets/119166299/b540ac1c-0ba4-481e-90a5-5464939f7e4c">
 - **Away**: Please contact the office for any inquiries or assistance. 
     - Pastor Brian is away from 26 June to 9 July.
     - Pastor Alan is  away from 26 June to 16 July. 
