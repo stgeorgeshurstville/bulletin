@@ -6,7 +6,6 @@ order: 1
 ## Bible Reading
 
 ### Prayer
-Prayer
 Thank you Father for making yourself known to us, showing us the way of salvation through faith in your Son. We ask you now to teach us through your word, so that we may be ready to serve you, for the glory of our Lord Jesus Christ.  **Amen**. 
 
 
