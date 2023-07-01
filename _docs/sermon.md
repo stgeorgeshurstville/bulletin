@@ -24,10 +24,10 @@ a daughter-in-law against her mother-in-law—
 
 
 ## Sermon Outline
-Is Jesus number One?
-What does God think? 
-What did the disciples think? 
-What do we think?
+- Is Jesus number One?
+- What does God think? 
+- What did the disciples think? 
+- What do we think?
 
 
 ## Q&A
