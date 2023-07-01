@@ -24,6 +24,7 @@ a daughter-in-law against her mother-in-law—
 
 
 ## Sermon Outline
+### Jesus the precious one - treasuring Jesus above all.
 - Is Jesus number One?
 - What does God think? 
 - What did the disciples think? 
