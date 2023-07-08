@@ -3,7 +3,7 @@ title: Reflection Questions
 order: 6
 ---
 
-### Big Idea: Followers of Jesus must continuously feed on his word.
+## Big Idea: Followers of Jesus must continuously feed on his word.
 
 
 ### Questions:
