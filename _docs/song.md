@@ -4,10 +4,10 @@ order: 2
 ---
 
 ## 9:30am 
-1. 
-2. 
-3. 
-4. 
+1. Yet Not I But Through Christ In Me
+2. It was Finished upon that Cross
+3. Because He Lives
+4. In Christ Alone
 
 ## 4pm 
 1. This is Amazing Grace
