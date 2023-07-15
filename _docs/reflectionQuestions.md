@@ -3,13 +3,12 @@ title: Reflection Questions
 order: 6
 ---
 
-## Big Idea: Followers of Jesus must continuously feed on his word.
+## Big Idea: Every Christian is a missionary from Jesus into the World so that everyone will have the love of God. 
 
 
 ### Questions:
-1. How long is it since you were regularly reading the Bible effectively?
-2. What are some of the factors that make reading the Bible regularly difficult for you?
-3. What is one strategy that you could adopt that would help you read the Bible more often?
+1. What is your mission in life? 
+2. What is Jesus’ mission for you? Where is Jesus sending you? What is he sending you to do? And how will you do this (think of all the contexts that you’re in)?  
 
 
 
