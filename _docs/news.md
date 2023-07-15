@@ -8,7 +8,6 @@ order: 4
 | Dates | Events |
 | ----------- | ----------- | 
 | **J U L Y**  |  | 
-|  Sun 2 | Last day of Dgroup |
 |  Wed 19 | English Classes commences |
 |  Fri 21 | Youth commences |
 |  Mon 24 | Dgroup commences |
@@ -35,7 +34,7 @@ If you would like to find out more or might be interested in being part of the n
 - **School Holiday Sundays:** Everyone is welcomed to join our All-Gen services at 9:30 Eng and 11am Mandarin during the school holidays on 2/7, 9/7, 16/7. We will be running the 930 all-gen program at 124 Forest Road. 
 - **Term Break:** 
     - NewGen: We will return for Term 3 on Sun 23/7.
-    - Youth:. We’ll recommence in Term 3 on Fri the 21st of July. 
+    - Youth: We’ll recommence in Term 3 on Fri the 21st of July. 
     - English classes: We’ll recommence in Term 3 on Wed the 19th of July.  
     - Discipleship Groups: The last day for this term is Sun the 2nd of July. Term 3 starts on the week of Monday the 24th of July. Some groups may be operating on a different schedule. Please speak to your leaders for more information and keep growing up, deep and out. 
 - **Growing in Our Welcoming**:
