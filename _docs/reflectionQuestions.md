@@ -3,7 +3,8 @@ title: Reflection Questions
 order: 6
 ---
 
-### Big Idea: Every Christian is a missionary from Jesus into the World so that everyone will have the love of God. 
+### Big Idea:
+Every Christian is a missionary from Jesus into the World so that everyone will have the love of God. 
 
 
 ### Questions:
