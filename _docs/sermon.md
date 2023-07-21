@@ -6,22 +6,33 @@ order: 1
 ## Bible Reading
 
 ### Prayer
-Gracious God, your word is alive and active, sharper than any double-edged sword. Today, when we hear your voice, deliver us from hardness of heart. Help us to put away everything that keeps us from persevering in your way, for the sake of our Lord Jesus Christ.  **Amen**. 
+Heavenly Father, give us faith to receive your word, understanding to know what it means, and the will to put it into practice; through Jesus Christ our Lord. **Amen**. 
 
 
-### John 17:13-19 (NIRV)
+### 1 Corinthians 1:1-17 (NIV)
 
-¹³ “I am coming to you now. But I say these things while I am still in the world. I say them so that those you gave me can have the same joy that I have. ¹⁴ I have given them your word. The world has hated them. That’s because they are not part of the world any more than I am. ¹⁵ I do not pray that you will take them out of the world. I pray that you will keep them safe from the evil one. ¹⁶ They do not belong to the world, just as I do not belong to it. ¹⁷ Use the truth to make them holy. Your word is truth. ¹⁸ You sent me into the world. In the same way, I have sent them into the world. ¹⁹ I make myself holy for them so that they too can be made holy by the truth.
+¹ Paul, called to be an apostle of Christ Jesus by the will of God, and our brother Sosthenes,
 
+² To the church of God in Corinth, to those sanctified in Christ Jesus and called to be his holy people, together with all those everywhere who call on the name of our Lord Jesus Christ—their Lord and ours:
 
+³ Grace and peace to you from God our Father and the Lord Jesus Christ.
+
+**Thanksgiving**
+
+⁴ I always thank my God for you because of his grace given you in Christ Jesus. ⁵ For in him you have been enriched in every way—with all kinds of speech and with all knowledge— ⁶ God thus confirming our testimony about Christ among you. ⁷ Therefore you do not lack any spiritual gift as you eagerly wait for our Lord Jesus Christ to be revealed. ⁸ He will also keep you firm to the end, so that you will be blameless on the day of our Lord Jesus Christ. ⁹ God is faithful, who has called you into fellowship with his Son, Jesus Christ our Lord.
+
+**A Church Divided Over Leaders**
+
+¹⁰ I appeal to you, brothers and sisters, in the name of our Lord Jesus Christ, that all of you agree with one another in what you say and that there be no divisions among you, but that you be perfectly united in mind and thought. ¹¹ My brothers and sisters, some from Chloe’s household have informed me that there are quarrels among you. ¹² What I mean is this: One of you says, “I follow Paul”; another, “I follow Apollos”; another, “I follow Cephas ”; still another, “I follow Christ.”
+
+¹³ Is Christ divided? Was Paul crucified for you? Were you baptized in the name of Paul? ¹⁴ I thank God that I did not baptize any of you except Crispus and Gaius, ¹⁵ so no one can say that you were baptized in my name. ¹⁶ (Yes, I also baptized the household of Stephanas; beyond that, I don’t remember if I baptized anyone else.) ¹⁷ For Christ did not send me to baptize, but to preach the gospel—not with wisdom and eloquence, lest the cross of Christ be emptied of its power.
 
 ## Sermon Outline
-### Your mission should you choose to accept it....
-- What is your mission
-- Where is your mission 
-- What will you do on your mission? 
-- Why choose to accept your mission?  
-
+### Who are you?
+- Choosing a church
+- Unwavering confidence
+- Confronting the brutal reality
+- Living cross-eyed 
 
 
 ## Q&A
