@@ -16,7 +16,7 @@ We can confront the most brutal reality about church and ourselves because of th
   - Why does Paul see the church this way (vv.4-9)?
   - What does he do as a result of seeing the church this way?
   - Do you ‘always thank God’ for your church? What do you thank God for? What might make you unthankful for the church?
-  - 
+    
 - Because of Paul’s unwavering confidence in what God has done and is doing at Corinth, what does he do (vv.10-17)?
   - What is apparently the problem at Corinth? Does Paul just want Christians to avoid disagreement? What does he want Christian to do?
  
