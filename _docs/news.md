@@ -10,39 +10,30 @@ order: 4
 | **J U L Y**  |  | 
 |  Wed 19 | English Classes commences |
 |  Fri 21 | Youth commences |
+|  Sun 23 | NewGen commences |
 |  Mon 24 | Dgroup commences |
 
 
 ## General
-- **From Rev. Brian Tung:** We are very much looking forward to the brothers and sisters from AAC joining us in July. There are several important things that I'd like you to prayerfully consider:
-1. The most important reason for the decision to join together is the Gospel mission. Both pastor Elvin and I are convinced that we can undertake the mission more effectively together. 
-2. The joining together of two churches is complicated. It is like joining together of 2 families, not to remain two families living in one house, but to become a new family. Brothers and sister of AAC are equal members of the new family. 
-3. Some practical things will help to settle our brothers and sisters from AAC: 
-    - Wear our name tags. 
-    - Introduce ourselves.
-    - Introduce them to our friends. 
-    - Exercise hospitality.
-    -  Minister together.  
-4. The joining together of the two churches will give us new opportunities for the Gospel. One of these opportunities is the possible starting a second Mandarin congregation on Sunday afternoon at 4pm. and the decision whether to start this congregation will need to be made as soon as possible. 
-- A second congregation will mean that we can reach more Mandarin speaking people with the Gospel. It will also give us the opportunity to break the 'ceiling' of the current congregation allowing the Mandarin ministry to grow to the next level of 200. 
-- However, a second congregation will need a 'critical' mass of about 40-50 members. That is, about 20-30 St George's members willing to commit to the new congregation. 
-- It will also need a team of volunteers for ministries, including a new children ministry at 4pm. 
-- Lastly, it will mean that others will need to step up and step in to ministry positions in the existing services. 
-This is a wonderful God-given mission opportunity. 
-If you would like to find out more or might be interested in being part of the next congregation, please contact Brian,  Elvin or Carol.
+- **AAC/SGH merger: **
+1. Please be intentionally welcoming: identify,introduce, include. 
+2. Some practical changes: 
+    - There will be a combined 4pm service (Mandarin/English) to formally welcome AAC into SGH. All are welcomed to join.
+    - 4pm English congregation will meet in the church Hall and the New Life Nepalese Church will meet at 124 Forest Rd from today.
+    - The 4pm services will not be streamed, but the 930 English and 11am Mandarin services will be available on our website.
+    - Dinner will be served each week in the Hall after the 4pm services. Costs: $5. The deadline for the coming Sunday's order is the morning of the previous day (i.e. by Saturday 12pm). Please fill in this form: 
+- **Parking**: Our brothers and sisters at 11am are forced to double-park because of lack of car parking spaces. To serve them, please park off-site unless you have issues with mobility.  
 
-- **School Holiday Sundays:** Everyone is welcomed to join our All-Gen services at 9:30 Eng and 11am Mandarin during the school holidays on 2/7, 9/7, 16/7. We will be running the 930 all-gen program at 124 Forest Road. 
-- **Term Break:** 
-    - NewGen: We will return for Term 3 on Sun 23/7.
-    - Youth: We’ll recommence in Term 3 on Fri the 21st of July. 
-    - English classes: We’ll recommence in Term 3 on Wed the 19th of July.  
-    - Discipleship Groups: The last day for this term is Sun the 2nd of July. Term 3 starts on the week of Monday the 24th of July. Some groups may be operating on a different schedule. Please speak to your leaders for more information and keep growing up, deep and out. 
-- **Growing in Our Welcoming**:
-
+- **Growing in our welcoming:**
   <img width="236" alt="Screenshot 2023-07-01 134203" src="https://github.com/stgeorgeshurstville/bulletin/assets/119166299/b540ac1c-0ba4-481e-90a5-5464939f7e4c">
-- **Away**: Please contact the office for any inquiries or assistance. 
-    - Pastor Brian is away from 26 June to 9 July.
-    - Pastor Alan is  away from 26 June to 16 July. 
+
+- **Local High School Scripture**: You can sign up for prayer updates at [here](https://www.hurstvillesre.com/become-a-supporter). You can partner financially by giving to the following account: 
+| Account Name | Christian Education Board for Hurstville High Schools |
+| ----------- | ----------- | 
+| BSB | 124001 |
+| Account Number | 22801395 |
+| Description | Your Name |
+
 
 
 **What’s Next?** 
