@@ -8,14 +8,11 @@ We can confront the most brutal reality about church and ourselves because of th
 
 
 ### Questions:
-1. How do you choose a church (what happened? what criteria do you use?)
-
-
-2. Please read through Acts 18 and the whole of 1 Corinthians (at home). Paul wrote several letters to the church at Corinth. We know there were at least 4 and only 2 have been included into the Canon. Write down everything you can remember about the church at Corinth:
+- How do you choose a church (what happened? what criteria do you use?)
+- Please read through Acts 18 and the whole of 1 Corinthians (at home). Paul wrote several letters to the church at Corinth. We know there were at least 4 and only 2 have been included into the Canon. Write down everything you can remember about the church at Corinth:
   - Would you choose to be part of the Corinthian church? Why and why not? 
 
-
-3. How does Paul ‘see’ the Corinthian Church (v.2)? How does he describe them (what do these terms mean)? 
+- How does Paul ‘see’ the Corinthian Church (v.2)? How does he describe them (what do these terms mean)? 
 
  - Why does Paul see the church this way (vv.4-9)?  
 
