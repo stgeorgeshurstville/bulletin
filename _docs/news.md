@@ -15,16 +15,19 @@ order: 4
 
 
 ## General
-- **AAC/SGH merger: **
-1. Please be intentionally welcoming: identify,introduce, include. 
-2. Some practical changes: 
+
+- **AAC/SGH merger:**
+    1. Please be intentionally welcoming: identify,introduce, include. 
+    2. Some practical changes: 
     - There will be a combined 4pm service (Mandarin/English) to formally welcome AAC into SGH. All are welcomed to join.
     - 4pm English congregation will meet in the church Hall and the New Life Nepalese Church will meet at 124 Forest Rd from today.
     - The 4pm services will not be streamed, but the 930 English and 11am Mandarin services will be available on our website.
     - Dinner will be served each week in the Hall after the 4pm services. Costs: $5. The deadline for the coming Sunday's order is the morning of the previous day (i.e. by Saturday 12pm). Please fill in this form: 
+
 - **Parking**: Our brothers and sisters at 11am are forced to double-park because of lack of car parking spaces. To serve them, please park off-site unless you have issues with mobility.  
 
 - **Growing in our welcoming:**
+
   <img width="236" alt="Screenshot 2023-07-01 134203" src="https://github.com/stgeorgeshurstville/bulletin/assets/119166299/b540ac1c-0ba4-481e-90a5-5464939f7e4c">
 
 - **Local High School Scripture**: You can sign up for prayer updates at [here](https://www.hurstvillesre.com/become-a-supporter). You can partner financially by giving to the following account: 
