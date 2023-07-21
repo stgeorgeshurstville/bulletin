@@ -21,16 +21,15 @@ We can confront the most brutal reality about church and ourselves because of th
 
  - Do you ‘always thank God’ for your church? What do you thank God for? What might make you unthankful for the church? 
 
+4. Because of Paul’s unwavering confidence in what God has done and is doing at Corinth, what does he do (vv.10-17)? 
 
-Because of Paul’s unwavering confidence in what God has done and is doing at Corinth, what does he do (vv.10-17)? 
+ - What is apparently the problem at Corinth? Does Paul just want Christians to avoid disagreement? What does he want Christian to do? 
 
-What is apparently the problem at Corinth? Does Paul just want Christians to avoid disagreement? What does he want Christian to do? 
+5. What does it mean to see church, yourself and others and your relationship with them ‘cross-eyed’? 
 
-What does it mean to see church, yourself and others and your relationship with them ‘cross-eyed’? 
+ - What are some of the brutal realities of church? How does the Gospel help you to address them?  
 
-What are some of the brutal realities of church? How does the Gospel help you to address them?  
-
-How might the Gospel help you to be an active part of the church family? 
+ - How might the Gospel help you to be an active part of the church family? 
 
 
 
