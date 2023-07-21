@@ -4,7 +4,10 @@ order: 2
 ---
 
 ## 9:30am 
-TBC
+1. How Great is our God
+2. When I Survey the Wondrous Cross
+3. The Power of the Cross
+4. Thanksgiving
 
 ## 4pm 
 TBC
