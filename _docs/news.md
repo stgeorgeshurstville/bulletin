@@ -17,7 +17,7 @@ order: 4
 ## General
 
 - **AAC/SGH merger:**
-    1. Please be intentionally welcoming: identify,introduce, include. 
+    1. Please be intentionally welcoming: identify, introduce, include. 
     2. Some practical changes: 
         - There will be a combined 4pm service (Mandarin/English) to formally welcome AAC into SGH. All are welcomed to join.
         - 4pm English congregation will meet in the church Hall and the New Life Nepalese Church will meet at 124 Forest Rd from today.
@@ -30,12 +30,13 @@ order: 4
 
   <img width="236" alt="Screenshot 2023-07-01 134203" src="https://github.com/stgeorgeshurstville/bulletin/assets/119166299/b540ac1c-0ba4-481e-90a5-5464939f7e4c">
 
-- **Local High School Scripture**: You can sign up for prayer updates at [here](https://www.hurstvillesre.com/become-a-supporter). You can partner financially by giving to the following account: 
-| Account Name | Christian Education Board for Hurstville High Schools |
-| ----------- | ----------- | 
-| BSB | 124001 |
-| Account Number | 22801395 |
-| Description | Your Name |
+- **Local High School Scripture**: You can sign up for prayer updates at [here](https://www.hurstvillesre.com/become-a-supporter). You can partner financially by giving to the following account:
+  
+    | Account Name | Christian Education Board for Hurstville High Schools |
+    | ----------- | ----------- | 
+    | BSB | 124001 |
+    | Account Number | 22801395 |
+    | Description | Your Name |
 
 
 
