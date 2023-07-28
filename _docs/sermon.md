@@ -6,33 +6,27 @@ order: 1
 ## Bible Reading
 
 ### Prayer
-Heavenly Father, give us faith to receive your word, understanding to know what it means, and the will to put it into practice; through Jesus Christ our Lord. **Amen**. 
+Almighty God, we thank you for the gift of your holy word. May it be a lantern to our feet, a light to our paths, and strength to our lives. Take us and use us to love and serve all people in the power of the Holy Spirit and in the name of your Son Jesus Christ our Lord. **Amen**. 
 
 
 ### 1 Corinthians 1:1-17 (NIV)
 
-¹ Paul, called to be an apostle of Christ Jesus by the will of God, and our brother Sosthenes,
+**Christ Crucified Is God’s Power and Wisdom**
 
-² To the church of God in Corinth, to those sanctified in Christ Jesus and called to be his holy people, together with all those everywhere who call on the name of our Lord Jesus Christ—their Lord and ours:
+¹⁸ For the message of the cross is foolishness to those who are perishing, but to us who are being saved it is the power of God. ¹⁹ For it is written:
 
-³ Grace and peace to you from God our Father and the Lord Jesus Christ.
+“I will destroy the wisdom of the wise;
+the intelligence of the intelligent I will frustrate.”
+²⁰ Where is the wise person? Where is the teacher of the law? Where is the philosopher of this age? Has not God made foolish the wisdom of the world? ²¹ For since in the wisdom of God the world through its wisdom did not know him, God was pleased through the foolishness of what was preached to save those who believe. ²² Jews demand signs and Greeks look for wisdom, ²³ but we preach Christ crucified: a stumbling block to Jews and foolishness to Gentiles, ²⁴ but to those whom God has called, both Jews and Greeks, Christ the power of God and the wisdom of God. ²⁵ For the foolishness of God is wiser than human wisdom, and the weakness of God is stronger than human strength.
 
-**Thanksgiving**
+²⁶ Brothers and sisters, think of what you were when you were called. Not many of you were wise by human standards; not many were influential; not many were of noble birth. ²⁷ But God chose the foolish things of the world to shame the wise; God chose the weak things of the world to shame the strong. ²⁸ God chose the lowly things of this world and the despised things—and the things that are not—to nullify the things that are, ²⁹ so that no one may boast before him. ³⁰ It is because of him that you are in Christ Jesus, who has become for us wisdom from God—that is, our righteousness, holiness and redemption. ³¹ Therefore, as it is written: “Let the one who boasts boast in the Lord.”
 
-⁴ I always thank my God for you because of his grace given you in Christ Jesus. ⁵ For in him you have been enriched in every way—with all kinds of speech and with all knowledge— ⁶ God thus confirming our testimony about Christ among you. ⁷ Therefore you do not lack any spiritual gift as you eagerly wait for our Lord Jesus Christ to be revealed. ⁸ He will also keep you firm to the end, so that you will be blameless on the day of our Lord Jesus Christ. ⁹ God is faithful, who has called you into fellowship with his Son, Jesus Christ our Lord.
-
-**A Church Divided Over Leaders**
-
-¹⁰ I appeal to you, brothers and sisters, in the name of our Lord Jesus Christ, that all of you agree with one another in what you say and that there be no divisions among you, but that you be perfectly united in mind and thought. ¹¹ My brothers and sisters, some from Chloe’s household have informed me that there are quarrels among you. ¹² What I mean is this: One of you says, “I follow Paul”; another, “I follow Apollos”; another, “I follow Cephas ”; still another, “I follow Christ.”
-
-¹³ Is Christ divided? Was Paul crucified for you? Were you baptized in the name of Paul? ¹⁴ I thank God that I did not baptize any of you except Crispus and Gaius, ¹⁵ so no one can say that you were baptized in my name. ¹⁶ (Yes, I also baptized the household of Stephanas; beyond that, I don’t remember if I baptized anyone else.) ¹⁷ For Christ did not send me to baptize, but to preach the gospel—not with wisdom and eloquence, lest the cross of Christ be emptied of its power.
+² And so it was with me, brothers and sisters. When I came to you, I did not come with eloquence or human wisdom as I proclaimed to you the testimony about God. ² For I resolved to know nothing while I was with you except Jesus Christ and him crucified. ³ I came to you in weakness with great fear and trembling. ⁴ My message and my preaching were not with wise and persuasive words, but with a demonstration of the Spirit’s power, ⁵ so that your faith might not rest on human wisdom, but on God’s power.
 
 ## Sermon Outline
-### Who are you?
-- Choosing a church
-- Unwavering confidence
-- Confronting the brutal reality
-- Living cross-eyed 
+### The Wisdom of the Cross
+
+TBC
 
 
 ## Q&A
