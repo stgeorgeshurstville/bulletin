@@ -3,17 +3,6 @@ title: News
 order: 4
 ---
 
-## Upcoming Dates
-
-| Dates | Events |
-| ----------- | ----------- | 
-| **J U L Y**  |  | 
-|  Wed 19 | English Classes commences |
-|  Fri 21 | Youth commences |
-|  Sun 23 | NewGen commences |
-|  Mon 24 | Dgroup commences |
-
-
 ## General
 
 - **AAC/SGH merger:**
@@ -29,15 +18,6 @@ order: 4
 - **Growing in our welcoming:**
 
   <img width="236" alt="Screenshot 2023-07-01 134203" src="https://github.com/stgeorgeshurstville/bulletin/assets/119166299/b540ac1c-0ba4-481e-90a5-5464939f7e4c">
-
-- **Local High School Scripture**: You can sign up for prayer updates at [here](https://www.hurstvillesre.com/become-a-supporter). You can partner financially by giving to the following account:
-  
-    | Account Name | Christian Education Board for Hurstville High Schools |
-    | ----------- | ----------- | 
-    | BSB | 124001 |
-    | Account Number | 22801395 |
-    | Description | Your Name |
-
 
 
 **What’s Next?** 
