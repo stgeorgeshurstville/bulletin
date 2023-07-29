@@ -26,7 +26,15 @@ the intelligence of the intelligent I will frustrate.”
 ## Sermon Outline
 ### The Wisdom of the Cross
 
-TBC
+- The problem of division
+- How does Paul solve the problem of division?
+  - the key is the gospel
+  - Paul’s focus is the gospel not rituals. Why?
+    - foolishness to the perishing
+    - power of God to those being saved
+  - the Corinthians illustration
+- Why does God choose the nobodies in the world to be saved?
+
 
 
 ## Q&A
