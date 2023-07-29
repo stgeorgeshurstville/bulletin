@@ -8,7 +8,7 @@ order: 3
 - **Lord’s Prayer:** Our Father in heaven, hallowed be your name, your kingdom come, your will be done on earth as in heaven. Give us today our daily bread. Forgive us our sins as we forgive those who sin against us. Lead us not into temptation, but deliver us from evil. For the kingdom, the power, and the glory are yours now and forever.
 - **Collect**: Almighty God, whose never-failing providence governs all things in heaven and earth: we humbly ask you to put away from us all hurtful things, and to give us whatever may be profitable for us; through Jesus Christ our Lord. Amen.
 - **Mission**: Our gracious Father, thank you for the privilege of calling us to join in your mission. Thank you that under you what we do makes a difference in the world. We pray therefore that you will save those around us and to transform them into the likeness of Jesus. Please use us to make disciples of the nations, love our neighbours. Please Father, glorify yourself, through our labour in your Son. We pray that we will not be consumers but contributors to the ministries that you have called us to.
-- **Church Sermon:** TBC
+- **Church Sermon:** Our Good and Glorious God, you are wise and wonderful. We are sorry for when we trust and seek wisdom in worldly things like status, intellect, influence, titles and experience. We thank you for Jesus who is our wisdom, righteousness, sanctification and redemption. We thank you for using the foolish message of the cross to save sinners and shame the strong. May we always and only boast in God. 
 
 ## Weekly Prayer Points
 - **The amalgamation of AAC and SGH, especially that the Lord will raise the wokers for children ministry.**
