@@ -9,7 +9,7 @@ order: 1
 Almighty God, we thank you for the gift of your holy word. May it be a lantern to our feet, a light to our paths, and strength to our lives. Take us and use us to love and serve all people in the power of the Holy Spirit and in the name of your Son Jesus Christ our Lord. **Amen**. 
 
 
-### 1 Corinthians 1:1-17 (NIV)
+### 1 Corinthians 1:18-2:5 (NIV)
 
 **Christ Crucified Is God’s Power and Wisdom**
 
