@@ -4,7 +4,10 @@ order: 2
 ---
 
 ## 9:30am 
-TBC
+1. To God be the Glory
+2. Jerusalem
+3. Power of the Cross
+4. And Can It Be
 
 ## 4pm 
 1. Rock of Ages
