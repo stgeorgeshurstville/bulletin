@@ -13,7 +13,7 @@ Make Jesus and him crucified for everything that we do and say and live for.
 
 
 1.	Have you been tempted to feel that Christiniaty has nothing to offer. Please share your experience.
-Please read 1 Corinthians 2
+- Please read 1 Corinthians 2
 2.	In vv.1-5. Paul reminds the Corinthians of his ministry. ‘What’ is his ministry? How did he do it? And why? 
 3.	-The Gospel is wisdom. But not everyone ‘gets it’.
      -Who gets it and who doesn’t? What else does paul say about these two groups? 
