@@ -12,6 +12,7 @@ order: 2
 ## 4pm 
 1. Apostle’s Creed
 2. Hear our prayer
-3. Be thou my vision
+3. Nothing can I boast in 
+4. Be thou my vision
    
 Check out the church spotify playlist [here](https://open.spotify.com/playlist/3gh0ZKXkJBDbNEnZqJJDXj?si=0908aa3f87544643)
