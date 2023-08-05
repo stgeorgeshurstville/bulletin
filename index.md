@@ -8,9 +8,9 @@ title: Welcome
 ![Screenshot 2023-07-21 at 3 47 23 pm](https://github.com/stgeorgeshurstville/bulletin/assets/119166299/2d95947e-b2b1-44b5-a360-f1dd4a4d7efe)
 
 ---
-#### Jesus said: I tell you, whatever you ask in prayer, believe that you receive it, and you will.
+#### We put our trust in the steadfast love of the Lord; our heart shall rejoice in his salvation. We will sing to the Lord, because he has dealth bountifully with us. 
 
-##### Mark 11:24
+##### Psalms 13:5-6
 ---
 - We are gathering in person! For people who can’t gather in person, you can watch online [here](https://stgeorgeshurstville.org.au/sunday-english-online)
 - If you are a **guest**, please fill in this [survey](https://tinyurl.com/SGHACsurvey) so that we know how you found it and if there’s anything we can help with.
