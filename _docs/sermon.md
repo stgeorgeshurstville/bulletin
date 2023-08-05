@@ -33,7 +33,7 @@ so as to instruct him?”
 But we have the mind of Christ.
 
 ## Sermon Outline
-### 
+### Who do you boast in?
 
 -The Award goes to…..
 
