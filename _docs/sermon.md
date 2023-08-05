@@ -10,7 +10,7 @@ Heavenly Father, give us faith to receive your word, understanding to know what 
 **Amen.**
 
 
-### 1 Corinthians 2(NIV)
+### 1 Corinthians 2 (NIV)
 
 ² And so it was with me, brothers and sisters. When I came to you, I did not come with eloquence or human wisdom as I proclaimed to you the testimony about God. ² For I resolved to know nothing while I was with you except Jesus Christ and him crucified. ³ I came to you in weakness with great fear and trembling. ⁴ My message and my preaching were not with wise and persuasive words, but with a demonstration of the Spirit’s power, ⁵ so that your faith might not rest on human wisdom, but on God’s power.
 
@@ -33,16 +33,16 @@ so as to instruct him?”
 But we have the mind of Christ.
 
 ## Sermon Outline
-### The Wisdom of the Cross
+### 
 
-- The problem of division
-- How does Paul solve the problem of division?
-  - the key is the gospel
-  - Paul’s focus is the gospel not rituals. Why?
-    - foolishness to the perishing
-    - power of God to those being saved
-  - the Corinthians illustration
-- Why does God choose the nobodies in the world to be saved?
+-The Award goes to…..
+
+-You can do anything you want……
+
+-The big BUT…..
+
+-Conclusions 
+
 
 
 
