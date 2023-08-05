@@ -3,7 +3,7 @@ title: Prayer
 order: 3
 ---
 
-## Sunday Prayer Pointss
+## Sunday Prayer Points
 
 - **Lord’s Prayer:** Our Father in heaven, hallowed be your name, your kingdom come, your will be done on earth as in heaven. Give us today our daily bread. Forgive us our sins as we forgive those who sin against us. Lead us not into temptation, but deliver us from evil. For the kingdom, the power, and the glory are yours now and forever.
 - **Collect**: Grant us, Lord, we pray, the spirit to think and do always such things as are right, that we who cannot do anything that is good without you, may in your strength be able to live according to your will; through Jesus Christ our Lord. Amen.
