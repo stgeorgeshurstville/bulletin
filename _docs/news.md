@@ -19,7 +19,9 @@ order: 4
         - The 4pm services will not be streamed, but the 930 English and 11am Mandarin services will be available on our website.
         - Dinner will be served each week in the Hall after the 4pm services. Costs: $5. The deadline for a Sun dinner order is **Saturday 12pm**. Please place your order by filling this [form](https://tinyurl.com/sundinners)
 
-- **Parking**: Our brothers and sisters at 11am are forced to double-park because of lack of car parking spaces. To serve them, please park off-site unless you have issues with mobility.  
+- **Anglican Church News:**: The latest edition of the Southern Cross is now available. You can get in touch with what's happening in the wider Anglican Church community: https://sydneyanglicans.net/about/southerncross
+
+- **Coffee Cart:**: We are serving baristas coffee after 9:30am church today. Order your coffee at the sign-in area. $3 (small) $4 (large). Why not buy coffee for someone you don’t know?
 
 - **Growing in our welcoming:**
 
