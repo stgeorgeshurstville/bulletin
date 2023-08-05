@@ -6,22 +6,31 @@ order: 1
 ## Bible Reading
 
 ### Prayer
-Almighty God, we thank you for the gift of your holy word. May it be a lantern to our feet, a light to our paths, and strength to our lives. Take us and use us to love and serve all people in the power of the Holy Spirit and in the name of your Son Jesus Christ our Lord. **Amen**. 
+Heavenly Father, give us faith to receive your word, understanding to know what it means, and the will to put it into practice; through Jesus Christ our Lord. AmenHeavenly Father, give us faith to receive your word, understanding to know what it means, and the will to put it into practice; through Jesus Christ our Lord. 
+**Amen.**
 
 
-### 1 Corinthians 1:18-2:5 (NIV)
-
-**Christ Crucified Is God’s Power and Wisdom**
-
-¹⁸ For the message of the cross is foolishness to those who are perishing, but to us who are being saved it is the power of God. ¹⁹ For it is written:
-
-“I will destroy the wisdom of the wise;
-the intelligence of the intelligent I will frustrate.”
-²⁰ Where is the wise person? Where is the teacher of the law? Where is the philosopher of this age? Has not God made foolish the wisdom of the world? ²¹ For since in the wisdom of God the world through its wisdom did not know him, God was pleased through the foolishness of what was preached to save those who believe. ²² Jews demand signs and Greeks look for wisdom, ²³ but we preach Christ crucified: a stumbling block to Jews and foolishness to Gentiles, ²⁴ but to those whom God has called, both Jews and Greeks, Christ the power of God and the wisdom of God. ²⁵ For the foolishness of God is wiser than human wisdom, and the weakness of God is stronger than human strength.
-
-²⁶ Brothers and sisters, think of what you were when you were called. Not many of you were wise by human standards; not many were influential; not many were of noble birth. ²⁷ But God chose the foolish things of the world to shame the wise; God chose the weak things of the world to shame the strong. ²⁸ God chose the lowly things of this world and the despised things—and the things that are not—to nullify the things that are, ²⁹ so that no one may boast before him. ³⁰ It is because of him that you are in Christ Jesus, who has become for us wisdom from God—that is, our righteousness, holiness and redemption. ³¹ Therefore, as it is written: “Let the one who boasts boast in the Lord.”
+### 1 Corinthians 2(NIV)
 
 ² And so it was with me, brothers and sisters. When I came to you, I did not come with eloquence or human wisdom as I proclaimed to you the testimony about God. ² For I resolved to know nothing while I was with you except Jesus Christ and him crucified. ³ I came to you in weakness with great fear and trembling. ⁴ My message and my preaching were not with wise and persuasive words, but with a demonstration of the Spirit’s power, ⁵ so that your faith might not rest on human wisdom, but on God’s power.
+
+**God’s Wisdom Revealed by the Spirit**
+
+⁶ We do, however, speak a message of wisdom among the mature, but not the wisdom of this age or of the rulers of this age, who are coming to nothing. ⁷ No, we declare God’s wisdom, a mystery that has been hidden and that God destined for our glory before time began. ⁸ None of the rulers of this age understood it, for if they had, they would not have crucified the Lord of glory. ⁹ However, as it is written:
+
+“What no eye has seen,
+what no ear has heard,
+and what no human mind has conceived” —
+the things God has prepared for those who love him—
+
+¹⁰ these are the things God has revealed to us by his Spirit.
+
+The Spirit searches all things, even the deep things of God. ¹¹ For who knows a person’s thoughts except their own spirit within them? In the same way no one knows the thoughts of God except the Spirit of God. ¹² What we have received is not the spirit of the world, but the Spirit who is from God, so that we may understand what God has freely given us. ¹³ This is what we speak, not in words taught us by human wisdom but in words taught by the Spirit, explaining spiritual realities with Spirit-taught words. ¹⁴ The person without the Spirit does not accept the things that come from the Spirit of God but considers them foolishness, and cannot understand them because they are discerned only through the Spirit. ¹⁵ The person with the Spirit makes judgments about all things, but such a person is not subject to merely human judgments, ¹⁶ for,
+
+“Who has known the mind of the Lord
+so as to instruct him?” 
+
+But we have the mind of Christ.
 
 ## Sermon Outline
 ### The Wisdom of the Cross
