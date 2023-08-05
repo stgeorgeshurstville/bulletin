@@ -5,6 +5,12 @@ order: 4
 
 ## General
 
+- **NEW 4pm NewGen Children Ministry:**
+ Some practicalities to be aware of:
+    - The Family Spot (segment to help the whole church family and give us language to speak about Jesus to kids) will take place in the 4pm English Service each week except for the 1st week of each month where it will take place in the 4pm Mandarin Service instead.
+    - Parents will need to register and sign in their kids with one of the Kids Leaders when they arrive in service and sign out their kids from their group’s rooms.
+    - Toddlers Time/Creche (0-4 years old) will take place in the Playgroup Room and 4pm NewGen (Preschool-Year 6) will take place in the Seminar Room.
+
 - **AAC/SGH merger:**
     1. Please be intentionally welcoming: identify, introduce, include. 
     2. Some practical changes: 
