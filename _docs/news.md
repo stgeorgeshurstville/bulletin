@@ -36,5 +36,6 @@ order: 4
 ## Ongoing Events
 - **Services in Different Languages:** Cantonese on Sat 3pm and Sun 9:30am, Mandarin Sun 11am and Nepalese Sun 5pm. 
 - **Morning Tea:**  Served after the 9:30am Service. We’d love for you to join us. We’ll be serving coffee.
-- **Dinner:** Please join us as we have dinner together after the 4pm Service.  
+- **Dinner:** Join us as we have dinner in the Hall after the 4pm Service. Costs: $5. The deadline for the coming Sunday's order is the morning of the previous day (i.e. by Saturday 12pm noon). Please pre-order by filling in this form: https://tinyurl.com/sundinners 
+
 
