@@ -5,23 +5,19 @@ order: 6
 
 ### Big Idea: 
 
-Make Jesus and him crucified for everything that we do and say and live for. 
-
+We are servants of Christ and stewards of God’s mysteries. 
 
 
 ### Questions:
 
-
-1.	Have you been tempted to feel that Christiniaty has nothing to offer. Please share your experience.
-- Please read 1 Corinthians 2
-2.	In vv.1-5. Paul reminds the Corinthians of his ministry. ‘What’ is his ministry? How did he do it? And why? 
-3.	-The Gospel is wisdom. But not everyone ‘gets it’.
-     -Who gets it and who doesn’t? What else does paul say about these two groups? 
-     -Who are the ‘mature’? How did they comprehend that the Gospel is wisdom? 
-4.	In vv.10b-16 Paul explains who is involved in the mature understanding of the Gospel as wisdom. Who is involved and how? Why is this important?
-5.	-Are you aiming to be respectable or conforming to the Cross of Jesus?  
-     -What does it mean for you to have confidence in the Cross of Christ? 
-     -How could we make everything we do at church and by ourselves focused on knowing Jesus and him crucified? 
+1.     Why were there divisions in the Corinthian church? 
+2.     What would eating solid food look like?
+3.     How does Paul correct their thinking and behaviour? 
+4.     How are we to build well? 
+5.     What’s this fire (3:13)?
+6.     What is our reward (3:14)? 
+7.     How can we be infants in Christ like the Corinthians? 
+8.     What are we to do instead (especially 4:1-)? 
 
 
 ![Our Mission; Make disciples, Love Neighbors Glorify God. Our Vision; Growing up, Growing Deep, Growing Out](https://raw.githubusercontent.com/stgeorgeshurstville/bulletin/main/images/upload.JPG)
