@@ -10,7 +10,7 @@ order: 3
 - **Collect**: Our Father in heaven, hallowed be your name, your kingdom come, your will be done on earth as in heaven. Give us today our daily bread. Forgive us our sins as we forgive those who sin against us. Lead us not into temptation, but deliver us from evil. For the kingdom, the power, and the glory are yours now and forever.
   
 - **Growing Up**: Heavenly Father, we trust your love, grace and acceptance, and that you created and saved us to live for your glory. We trust in your Son Jesus Christ as the saviour of the world, and your gospel as your power for salvation for all who believe. We trust in your Son Jesus Christ as the holy, loving, powerful and generous saviour, head, lord, and judge of St George’s. We trust you as the just judge of all people, and that you will bring glory to yourself through our church and in Christ Jesus. Forgive us in living for trivial happiness and false securities rather than holiness. We pray that we will die to sin every day and live for righteousness; that we will deny ourselves, take up our cross and follow Jesus every day. 
-- 
+  
 - **Church Sermon:** We are sorry for when we are infants in Christ - when we are worldly and act in a human rather than in a spiritual manner. We are sorry for when we are jealous, selfish and sinful. We are sorry for when we are quarrelsome, divisive and discontent. May we know that we are saved and have all spiritual blessings in Christ. Help us to feed on solid food rather than milk. Help us to value God’s temple as we build others up in love and with the foolish message of the cross. May we be selfless servants of Christ and faithful stewards of God’s message. May we plant and water well as we trust and ask God to give the growth. 
 
 ## Weekly Prayer Points
