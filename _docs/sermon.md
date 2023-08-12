@@ -34,9 +34,9 @@ Gracious Lord, you have caused all holy scriptures to be written for our learnin
 
 1. The Corinthians are infants in Christ. 
 2. The Corinthians need to know that…
-  - a. God gives the growth. 
-  - b. We need to build with care. 
-  - c. We have everything. 
+     a. God gives the growth. 
+      b. We need to build with care. 
+       c. We have everything. 
 3. We are servants of Christ and stewards of God’s mysteries. 
 
 
