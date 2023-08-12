@@ -23,9 +23,7 @@ order: 4
 
 - **Building Fund:**: Your gifts to the building has been making a HUGE difference so far: it has enabled us to use 124 Forest Rd and to bless others with this facility. The latest is that we were able to tile the church hall with rubber mats to help improve the sound. The next project we’ll be doing is to repair the church roof. As many of you know the church roof has been leaking for some time and is causing damage to the inside of the church. The costs to repair the roof is around $12,000. Work is due to commence this week.  If you would like to give towards this project or the building fund generally, you can do so to this account: 
 
-- Projects Account:
-- BSB Number: 032-055
-- Account Number: 253052
+- Projects Account: BSB Number: 032-055 Account Number: 253052
   
 - **Coffee Cart:**: We are serving baristas coffee after 9:30am church today. Order your coffee at the sign-in area. $3 (small) $4 (large). Why not buy coffee for someone you don’t know?
 
