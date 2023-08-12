@@ -6,42 +6,38 @@ order: 1
 ## Bible Reading
 
 ### Prayer
-Heavenly Father, give us faith to receive your word, understanding to know what it means, and the will to put it into practice; through Jesus Christ our Lord. AmenHeavenly Father, give us faith to receive your word, understanding to know what it means, and the will to put it into practice; through Jesus Christ our Lord. 
+Gracious Lord, you have caused all holy scriptures to be written for our learning: help us so to hear them, read, mark, learn, and inwardly digest them, that, encouraged and supported by your holy Word, we may embrace and always hold fast the joyful hope of everlasting life, which you have given us in our Saviour Jesus Christ.
 **Amen.**
 
 
-### 1 Corinthians 2 (NIV)
+### 1 Corinthians 3:1-4:5 (NIV)
 
-² And so it was with me, brothers and sisters. When I came to you, I did not come with eloquence or human wisdom as I proclaimed to you the testimony about God. ² For I resolved to know nothing while I was with you except Jesus Christ and him crucified. ³ I came to you in weakness with great fear and trembling. ⁴ My message and my preaching were not with wise and persuasive words, but with a demonstration of the Spirit’s power, ⁵ so that your faith might not rest on human wisdom, but on God’s power.
+**The Church and Its Leaders**
 
-**God’s Wisdom Revealed by the Spirit**
+³ Brothers and sisters, I could not address you as people who live by the Spirit but as people who are still worldly—mere infants in Christ. ² I gave you milk, not solid food, for you were not yet ready for it. Indeed, you are still not ready. ³ You are still worldly. For since there is jealousy and quarreling among you, are you not worldly? Are you not acting like mere humans? ⁴ For when one says, “I follow Paul,” and another, “I follow Apollos,” are you not mere human beings?
 
-⁶ We do, however, speak a message of wisdom among the mature, but not the wisdom of this age or of the rulers of this age, who are coming to nothing. ⁷ No, we declare God’s wisdom, a mystery that has been hidden and that God destined for our glory before time began. ⁸ None of the rulers of this age understood it, for if they had, they would not have crucified the Lord of glory. ⁹ However, as it is written:
+⁵ What, after all, is Apollos? And what is Paul? Only servants, through whom you came to believe—as the Lord has assigned to each his task. ⁶ I planted the seed, Apollos watered it, but God has been making it grow. ⁷ So neither the one who plants nor the one who waters is anything, but only God, who makes things grow. ⁸ The one who plants and the one who waters have one purpose, and they will each be rewarded according to their own labor. ⁹ For we are co-workers in God’s service; you are God’s field, God’s building.
 
-“What no eye has seen,
-what no ear has heard,
-and what no human mind has conceived” —
-the things God has prepared for those who love him—
+¹⁰ By the grace God has given me, I laid a foundation as a wise builder, and someone else is building on it. But each one should build with care. ¹¹ For no one can lay any foundation other than the one already laid, which is Jesus Christ. ¹² If anyone builds on this foundation using gold, silver, costly stones, wood, hay or straw, ¹³ their work will be shown for what it is, because the Day will bring it to light. It will be revealed with fire, and the fire will test the quality of each person’s work. ¹⁴ If what has been built survives, the builder will receive a reward. ¹⁵ If it is burned up, the builder will suffer loss but yet will be saved—even though only as one escaping through the flames.
 
-¹⁰ these are the things God has revealed to us by his Spirit.
+¹⁶ Don’t you know that you yourselves are God’s temple and that God’s Spirit dwells in your midst? ¹⁷ If anyone destroys God’s temple, God will destroy that person; for God’s temple is sacred, and you together are that temple.
 
-The Spirit searches all things, even the deep things of God. ¹¹ For who knows a person’s thoughts except their own spirit within them? In the same way no one knows the thoughts of God except the Spirit of God. ¹² What we have received is not the spirit of the world, but the Spirit who is from God, so that we may understand what God has freely given us. ¹³ This is what we speak, not in words taught us by human wisdom but in words taught by the Spirit, explaining spiritual realities with Spirit-taught words. ¹⁴ The person without the Spirit does not accept the things that come from the Spirit of God but considers them foolishness, and cannot understand them because they are discerned only through the Spirit. ¹⁵ The person with the Spirit makes judgments about all things, but such a person is not subject to merely human judgments, ¹⁶ for,
+¹⁸ Do not deceive yourselves. If any of you think you are wise by the standards of this age, you should become “fools” so that you may become wise. ¹⁹ For the wisdom of this world is foolishness in God’s sight. As it is written: “He catches the wise in their craftiness” ; ²⁰ and again, “The Lord knows that the thoughts of the wise are futile.” ²¹ So then, no more boasting about human leaders! All things are yours, ²² whether Paul or Apollos or Cephas or the world or life or death or the present or the future—all are yours, ²³ and you are of Christ, and Christ is of God.
 
-“Who has known the mind of the Lord
-so as to instruct him?” 
+**The Nature of True Apostleship**
 
-But we have the mind of Christ.
+⁴ This, then, is how you ought to regard us: as servants of Christ and as those entrusted with the mysteries God has revealed. ² Now it is required that those who have been given a trust must prove faithful. ³ I care very little if I am judged by you or by any human court; indeed, I do not even judge myself. ⁴ My conscience is clear, but that does not make me innocent. It is the Lord who judges me. ⁵ Therefore judge nothing before the appointed time; wait until the Lord comes. He will bring to light what is hidden in darkness and will expose the motives of the heart. At that time each will receive their praise from God.
+
 
 ## Sermon Outline
-### Who do you boast in?
+### Who leads?
 
--The Award goes to…..
-
--You can do anything you want……
-
--The big BUT…..
-
--Conclusions 
+1. The Corinthians are infants in Christ. 
+2. The Corinthians need to know that…
+a. God gives the growth. 
+b. We need to build with care. 
+c. We have everything. 
+3. We are servants of Christ and stewards of God’s mysteries. 
 
 
 
