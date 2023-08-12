@@ -4,15 +4,15 @@ order: 2
 ---
 
 ## 9:30am 
-1. Holy Holy Holy!
-2. How Deep the Father’s Love for Us
-3. All Glory Be To Christ
-4. Take My Life & Let It Be
+1. How Great Is Our God / How Great Thou Art
+2. 
+3. Servants Of The Gospel
+4. Behold Our God
 
 ## 4pm 
-1. Apostle’s Creed
-2. Hear our Prayer
-3. Nothing Can I Boast In 
-4. Be Thou My Vision
+1. This Is Amazing Grace
+2. How Great Thou Art
+3. Be thou my vision
+4. Nothing can I boast in 
    
 Check out the church spotify playlist [here](https://open.spotify.com/playlist/3gh0ZKXkJBDbNEnZqJJDXj?si=0908aa3f87544643)
