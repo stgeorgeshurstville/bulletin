@@ -3,6 +3,12 @@ title: News
 order: 4
 ---
 
+## Upcoming Dates
+| Date | Event|
+|---|---|
+|AUG||
+|Aug 13 @1-2pm |Seminar|
+
 ## General
 
 - **NEW 4pm NewGen Children Ministry:**
@@ -19,7 +25,7 @@ order: 4
         - The 4pm services will not be streamed, but the 930 English and 11am Mandarin services will be available on our website.
         - Dinner will be served each week in the Hall after the 4pm services. Costs: $5. The deadline for a Sun dinner order is **Saturday 12pm**. Please place your order by filling this [form](https://tinyurl.com/sundinners)
 
-- **Berkeley Life Centre:**: We’ll hear from Berkeley Life Centre next week. They will run a training seminar (in English) about how to reach people in different demographics especially from lower socioeconomic backgrounds (Sunday 20th 1-2pm in the Seminar Room). We’ll also be visiting and partnering with Berkeley on the following Sat mornings (26 Aug, 23 Sep and 18 Nov). Please contact the mission subcommittee or Rev. Lam for more information. You can also find out more about how to partner with our mission partners here: https://stgeorgeshurstville.org.au/mission-partners
+- **Berkeley Life Centre:**: We’ll hear from Berkeley Life Centre next week. They will run a training seminar (in English) about how to reach people in different demographics especially from lower socioeconomic backgrounds (Sunday 20th 1-2pm in the Seminar Room). We’ll also be visiting and partnering with Berkeley on the following Sat mornings (26 Aug, 23 Sep and 18 Nov). Please contact the mission subcommittee or Rev. Lam for more information. You can also find out more about how to partner with our mission partners [here](https://stgeorgeshurstville.org.au/mission-partners)
 
 - **Building Fund:**: Your gifts to the building has been making a HUGE difference so far: it has enabled us to use 124 Forest Rd and to bless others with this facility. The latest is that we were able to tile the church hall with rubber mats to help improve the sound. The next project we’ll be doing is to repair the church roof. As many of you know the church roof has been leaking for some time and is causing damage to the inside of the church. The costs to repair the roof is around $12,000. Work is due to commence this week.  If you would like to give towards this project or the building fund generally, you can do so to this account: 
 
@@ -40,6 +46,6 @@ order: 4
 ## Ongoing Events
 - **Services in Different Languages:** Cantonese on Sat 3pm and Sun 9:30am, Mandarin Sun 11am and Nepalese Sun 5pm. 
 - **Morning Tea:**  Served after the 9:30am Service. We’d love for you to join us. We’ll be serving coffee.
-- **Dinner:** Join us as we have dinner in the Hall after the 4pm Service. Costs: $5. The deadline for the coming Sunday's order is the morning of the previous day (i.e. by Saturday 12pm noon). Please pre-order by filling in this form: https://tinyurl.com/sundinners 
+- **Dinner:** Join us as we have dinner in the Hall after the 4pm Service. Costs: $5. The deadline for the coming Sunday's order is the morning of the previous day (i.e. by Saturday 12pm noon). Please pre-order by filling in this [form](https://tinyurl.com/sundinners)
 
 
