@@ -3,16 +3,7 @@ title: News
 order: 4
 ---
 
-## Upcoming Dates
-| Date | Event|
-|---|---|
-|AUGUST||
-|SUN Aug 13 @1-2pm | Berkeley Life Centre Training Seminar|
-|SAT Aug 26|St Georges visits Berkeley Life Center |
-|SEPTEMBER||
-|SAT Sep 23|St Georges visits Berkeley Life Center|
-|OCTOBER||
-|SAT Oct 18|St Georges visits Berkeley Life Center |
+
 
 ## General
 
