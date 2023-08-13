@@ -7,7 +7,8 @@ order: 4
 | Date | Event|
 |---|---|
 |AUG||
-|Aug 13 @1-2pm |Seminar|
+|SUN Aug 13 @1-2pm | Berkeley Life Centre Training Seminar|
+|SAT Aug 26|St Georges visits Berkeley Life Center Visit |
 
 ## General
 
