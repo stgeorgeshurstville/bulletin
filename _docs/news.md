@@ -16,10 +16,10 @@ order: 4
 - **Archaeology Study**: Part of the car park will be blocked off from use this coming Tuesday and Thursday (and possibly Friday) for the archeology study.
 
 - **Berkeley Life Centre:**:
- - We’ll have a training seminar about how to reach people especially from lower socioeconomic backgrounds (20th Aug 1-2pm in the Seminar Room).
- - We’ll be visiting and partnering with Berkeley Life Centre on these Sat mornings (26 Aug, 23 Sep and 18 Nov). We'll be doing things like giving out food to the neighbourhood, helping out at the op shop, mowing people's lawns etc. A good opportunity to experience and see what they do as we share the gospel and serve the community.
- - As always, they'll appreciate any non-perishable food items which they can give to those who are finding it tough. You can bring these to the Rectory.
- - You can also find out more about how to partner with our mission partners [here](https://stgeorgeshurstville.org.au/mission-partners)
+  - We’ll have a training seminar about how to reach people especially from lower socioeconomic backgrounds (20th Aug 1-2pm in the Seminar Room).
+  - We’ll be visiting and partnering with Berkeley Life Centre on these Sat mornings (26 Aug, 23 Sep and 18 Nov). We'll be doing things like giving out food to the neighbourhood, helping out at the op shop, mowing people's lawns etc. A good opportunity to experience and see what they do as we share the gospel and serve the community.
+  - As always, they'll appreciate any non-perishable food items which they can give to those who are finding it tough. You can bring these to the Rectory.
+  - You can also find out more about how to partner with our mission partners [here](https://stgeorgeshurstville.org.au/mission-partners)
 
 - **Building Fund:**: Your gifts to the building has been making a HUGE difference so far: it has enabled us to use 124 Forest Rd and to bless others with this facility. The latest is that we were able to tile the church hall with rubber mats to help improve the sound. The next project we’ll be doing is to repair the church roof. As many of you know the church roof has been leaking for some time and is causing damage to the inside of the church. The costs to repair the roof is around $12,000. Work is due to commence this week.  If you would like to give towards this project or the building fund generally, you can do so to this account: 
 
@@ -47,7 +47,7 @@ order: 4
 - **Services in Different Languages:** Cantonese on Sat 3pm and Sun 9:30am, Mandarin Sun 11am and Nepalese Sun 5pm. 
 - **Morning Tea:**  Served after the 9:30am Service. We’d love for you to join us. We’ll be serving coffee.
 - **Meals**: Join us as we continue to encourage each other over lunch and dinner after our Services. The deadline for the coming Sunday's order is Saturday 12pm noon. Please pre-order by filling in these forms:
- - Lunch Order [here](https://tinyurl.com/sunlunches)
- - Dinner Order [here](https://tinyurl.com/sundinners)
+   - Lunch Order [here](https://tinyurl.com/sunlunches)
+   - Dinner Order [here](https://tinyurl.com/sundinners)
 
 
