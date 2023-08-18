@@ -6,7 +6,7 @@ order: 4
 ## Upcoming Dates
 
 | Date | Event |
-| --- | --- |
+| ----- | ----- |
 | **AUGUST** | |
 | SUN Aug 13 @1-2pm | Berkeley Life Centre Training Seminar |
 | SAT Aug 26 | St Georges visits Berkeley Life Center |
@@ -14,6 +14,14 @@ order: 4
 | SAT Sep 23 | St Georges visits Berkeley Life Center |
 | **OCTOBER** | |
 | SAT Oct 18 | St Georges visits Berkeley Life Center |
+
+
+
+|  | BSB No. | Account No. |
+| ----------- | ----------- | ----------- |
+| General Offertory | 032-055 | 135822 |
+| Missions | 032-055 |494673 |
+| Projects | 032-055 | 253052|
 
 ## General
 
