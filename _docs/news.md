@@ -4,6 +4,7 @@ order: 4
 ---
 
 ## Upcoming Dates
+
 | Date | Event |
 | --- | --- |
 | **AUGUST** | |
