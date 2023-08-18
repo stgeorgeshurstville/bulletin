@@ -13,7 +13,7 @@ Honour God together (as a church) by taking sin seriously.
 - Paul was addressing 3 problems in 1 Corinthians 5 and 6.
     - What were the problems?
     - Who had the problem and what were they to do?
-    - For a primer on Christian sexual ethics - please read https://www.christ2rculture.com/resources/Ministry-Blog/The-Gospel-and-Sex-by-Tim-Keller.pdf
+    - For a primer on Christian sexual ethics - please read this [article](https://www.christ2rculture.com/resources/Ministry-Blog/The-Gospel-and-Sex-by-Tim-Keller.pdf)
     - What is the Bible teaching on sex and how is this different to what our culture teaches?
 - How might we have a low view of: 
     - Sin 
