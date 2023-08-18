@@ -15,7 +15,7 @@ order: 4
 
 - **Archaeology Study**: Part of the car park will be blocked off from use this coming Tuesday and Thursday (and possibly Friday) for the archeology study.
 
-- **Berkeley Life Centre:**:
+- **Berkeley Life Centre:**
   - We’ll have a training seminar about how to reach people especially from lower socioeconomic backgrounds (20th Aug 1-2pm in the Seminar Room).
   - We’ll be visiting and partnering with Berkeley Life Centre on these Sat mornings (26 Aug, 23 Sep and 18 Nov). We'll be doing things like giving out food to the neighbourhood, helping out at the op shop, mowing people's lawns etc. A good opportunity to experience and see what they do as we share the gospel and serve the community.
   - As always, they'll appreciate any non-perishable food items which they can give to those who are finding it tough. You can bring these to the Rectory.
