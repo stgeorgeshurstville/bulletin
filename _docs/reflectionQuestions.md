@@ -27,7 +27,7 @@ Expert in the area Dr Marshall Ballantine-Jones will be running workshops (in En
 - for Parents on Fri 1st Sep 6:30-8pm; 
 - for Youths on Fri 15th Sep 5:30-7:30pm 
 - for Adults on Sun 17th Sep 1pm. 
-
+More details to follow 
 
 
 ![Our Mission; Make disciples, Love Neighbors Glorify God. Our Vision; Growing up, Growing Deep, Growing Out](https://raw.githubusercontent.com/stgeorgeshurstville/bulletin/main/images/upload.JPG)
