@@ -6,40 +6,44 @@ order: 1
 ## Bible Reading
 
 ### Prayer
-Gracious Lord, you have caused all holy scriptures to be written for our learning: help us so to hear them, read, mark, learn, and inwardly digest them, that, encouraged and supported by your holy Word, we may embrace and always hold fast the joyful hope of everlasting life, which you have given us in our Saviour Jesus Christ.
+Almighty God, we thank you for the gift of your holy word. May it be a lantern to our feet, a light to our paths, and strength to our lives. Take us and use us to love and serve all people in the power of the Holy Spirit and in the name of your Son Jesus Christ our Lord.
 **Amen.**
 
 
-### 1 Corinthians 3:1-4:5 (NIV)
+### 1 Corinthians 5-6 (NIV)
 
-**The Church and Its Leaders**
+**Dealing With a Case of Incest**
 
-³ Brothers and sisters, I could not address you as people who live by the Spirit but as people who are still worldly—mere infants in Christ. ² I gave you milk, not solid food, for you were not yet ready for it. Indeed, you are still not ready. ³ You are still worldly. For since there is jealousy and quarreling among you, are you not worldly? Are you not acting like mere humans? ⁴ For when one says, “I follow Paul,” and another, “I follow Apollos,” are you not mere human beings?
+⁵ It is actually reported that there is sexual immorality among you, and of a kind that even pagans do not tolerate: A man is sleeping with his father’s wife. ² And you are proud! Shouldn’t you rather have gone into mourning and have put out of your fellowship the man who has been doing this? ³ For my part, even though I am not physically present, I am with you in spirit. As one who is present with you in this way, I have already passed judgment in the name of our Lord Jesus on the one who has been doing this. ⁴ So when you are assembled and I am with you in spirit, and the power of our Lord Jesus is present, ⁵ hand this man over to Satan for the destruction of the flesh, so that his spirit may be saved on the day of the Lord.
 
-⁵ What, after all, is Apollos? And what is Paul? Only servants, through whom you came to believe—as the Lord has assigned to each his task. ⁶ I planted the seed, Apollos watered it, but God has been making it grow. ⁷ So neither the one who plants nor the one who waters is anything, but only God, who makes things grow. ⁸ The one who plants and the one who waters have one purpose, and they will each be rewarded according to their own labor. ⁹ For we are co-workers in God’s service; you are God’s field, God’s building.
+⁶ Your boasting is not good. Don’t you know that a little yeast leavens the whole batch of dough? ⁷ Get rid of the old yeast, so that you may be a new unleavened batch—as you really are. For Christ, our Passover lamb, has been sacrificed. ⁸ Therefore let us keep the Festival, not with the old bread leavened with malice and wickedness, but with the unleavened bread of sincerity and truth.
 
-¹⁰ By the grace God has given me, I laid a foundation as a wise builder, and someone else is building on it. But each one should build with care. ¹¹ For no one can lay any foundation other than the one already laid, which is Jesus Christ. ¹² If anyone builds on this foundation using gold, silver, costly stones, wood, hay or straw, ¹³ their work will be shown for what it is, because the Day will bring it to light. It will be revealed with fire, and the fire will test the quality of each person’s work. ¹⁴ If what has been built survives, the builder will receive a reward. ¹⁵ If it is burned up, the builder will suffer loss but yet will be saved—even though only as one escaping through the flames.
+⁹ I wrote to you in my letter not to associate with sexually immoral people— ¹⁰ not at all meaning the people of this world who are immoral, or the greedy and swindlers, or idolaters. In that case you would have to leave this world. ¹¹ But now I am writing to you that you must not associate with anyone who claims to be a brother or sister but is sexually immoral or greedy, an idolater or slanderer, a drunkard or swindler. Do not even eat with such people.
 
-¹⁶ Don’t you know that you yourselves are God’s temple and that God’s Spirit dwells in your midst? ¹⁷ If anyone destroys God’s temple, God will destroy that person; for God’s temple is sacred, and you together are that temple.
+¹² What business is it of mine to judge those outside the church? Are you not to judge those inside? ¹³ God will judge those outside. “Expel the wicked person from among you.” 
 
-¹⁸ Do not deceive yourselves. If any of you think you are wise by the standards of this age, you should become “fools” so that you may become wise. ¹⁹ For the wisdom of this world is foolishness in God’s sight. As it is written: “He catches the wise in their craftiness” ; ²⁰ and again, “The Lord knows that the thoughts of the wise are futile.” ²¹ So then, no more boasting about human leaders! All things are yours, ²² whether Paul or Apollos or Cephas or the world or life or death or the present or the future—all are yours, ²³ and you are of Christ, and Christ is of God.
+**Lawsuits Among Believers**
 
-**The Nature of True Apostleship**
+⁶ If any of you has a dispute with another, do you dare to take it before the ungodly for judgment instead of before the Lord’s people? ² Or do you not know that the Lord’s people will judge the world? And if you are to judge the world, are you not competent to judge trivial cases? ³ Do you not know that we will judge angels? How much more the things of this life! ⁴ Therefore, if you have disputes about such matters, do you ask for a ruling from those whose way of life is scorned in the church? ⁵ I say this to shame you. Is it possible that there is nobody among you wise enough to judge a dispute between believers? ⁶ But instead, one brother takes another to court—and this in front of unbelievers!
 
-⁴ This, then, is how you ought to regard us: as servants of Christ and as those entrusted with the mysteries God has revealed. ² Now it is required that those who have been given a trust must prove faithful. ³ I care very little if I am judged by you or by any human court; indeed, I do not even judge myself. ⁴ My conscience is clear, but that does not make me innocent. It is the Lord who judges me. ⁵ Therefore judge nothing before the appointed time; wait until the Lord comes. He will bring to light what is hidden in darkness and will expose the motives of the heart. At that time each will receive their praise from God.
+⁷ The very fact that you have lawsuits among you means you have been completely defeated already. Why not rather be wronged? Why not rather be cheated? ⁸ Instead, you yourselves cheat and do wrong, and you do this to your brothers and sisters. ⁹ Or do you not know that wrongdoers will not inherit the kingdom of God? Do not be deceived: Neither the sexually immoral nor idolaters nor adulterers nor men who have sex with men ¹⁰ nor thieves nor the greedy nor drunkards nor slanderers nor swindlers will inherit the kingdom of God. ¹¹ And that is what some of you were. But you were washed, you were sanctified, you were justified in the name of the Lord Jesus Christ and by the Spirit of our God.
+
+**Sexual Immorality**
+
+¹² “I have the right to do anything,” you say—but not everything is beneficial. “I have the right to do anything”—but I will not be mastered by anything. ¹³ You say, “Food for the stomach and the stomach for food, and God will destroy them both.” The body, however, is not meant for sexual immorality but for the Lord, and the Lord for the body. ¹⁴ By his power God raised the Lord from the dead, and he will raise us also. ¹⁵ Do you not know that your bodies are members of Christ himself? Shall I then take the members of Christ and unite them with a prostitute? Never! ¹⁶ Do you not know that he who unites himself with a prostitute is one with her in body? For it is said, “The two will become one flesh.” ¹⁷ But whoever is united with the Lord is one with him in spirit. 
+
+¹⁸ Flee from sexual immorality. All other sins a person commits are outside the body, but whoever sins sexually, sins against their own body. ¹⁹ Do you not know that your bodies are temples of the Holy Spirit, who is in you, whom you have received from God? You are not your own; ²⁰ you were bought at a price. Therefore honor God with your bodies.
 
 
 ## Sermon Outline
-### Who leads?
+### Living between the cross and the resurrection: Flee sexual immorality (and greed)
 
-1. The Corinthians are infants in Christ. 
-2. The Corinthians need to know that…
-     a. God gives the growth. 
-      b. We need to build with care. 
-       c. We have everything. 
-3. We are servants of Christ and stewards of God’s mysteries. 
-
-
+- Improving on beauty
+- The Corinthians Problems
+- A low view of sin
+- A low view of church
+- A low view of the Gospel
+- Conclusions 
 
 
 ## Q&A
