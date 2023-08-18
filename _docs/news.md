@@ -15,14 +15,6 @@ order: 4
 | **OCTOBER** | |
 | SAT Oct 18 | St Georges visits Berkeley Life Center |
 
-
-
-|  | BSB No. | Account No. |
-| ----------- | ----------- | ----------- |
-| General Offertory | 032-055 | 135822 |
-| Missions | 032-055 |494673 |
-| Projects | 032-055 | 253052|
-
 ## General
 
 - **NEW 4pm NewGen Children Ministry:**
