@@ -12,8 +12,8 @@ order: 4
 | SAT Aug 26 | St Georges visits Berkeley Life Center |
 | **SEPTEMBER** | |
 | SAT Sep 23 | St Georges visits Berkeley Life Center |
-| **OCTOBER** | |
-| SAT Oct 18 | St Georges visits Berkeley Life Center |
+| **NOVEMBER** | |
+| SAT Nov 18 | St Georges visits Berkeley Life Center |
 
 ## General
 
