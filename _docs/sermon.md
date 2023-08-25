@@ -10,40 +10,25 @@ Almighty God, we thank you for the gift of your holy word. May it be a lantern t
 **Amen.**
 
 
-### 1 Corinthians 5-6 (NIV)
+### 1 Corinthians 7:1-24
 
-**Dealing With a Case of Incest**
+**Concerning Married Life**
+¹ Now for the matters you wrote about: “It is good for a man not to have sexual relations with a woman.” ² But since sexual immorality is occurring, each man should have sexual relations with his own wife, and each woman with her own husband. ³ The husband should fulfill his marital duty to his wife, and likewise the wife to her husband. ⁴ The wife does not have authority over her own body but yields it to her husband. In the same way, the husband does not have authority over his own body but yields it to his wife. ⁵ Do not deprive each other except perhaps by mutual consent and for a time, so that you may devote yourselves to prayer. Then come together again so that Satan will not tempt you because of your lack of self-control. ⁶ I say this as a concession, not as a command. ⁷ I wish that all of you were as I am. But each of you has your own gift from God; one has this gift, another has that.
 
-⁵ It is actually reported that there is sexual immorality among you, and of a kind that even pagans do not tolerate: A man is sleeping with his father’s wife. ² And you are proud! Shouldn’t you rather have gone into mourning and have put out of your fellowship the man who has been doing this? ³ For my part, even though I am not physically present, I am with you in spirit. As one who is present with you in this way, I have already passed judgment in the name of our Lord Jesus on the one who has been doing this. ⁴ So when you are assembled and I am with you in spirit, and the power of our Lord Jesus is present, ⁵ hand this man over to Satan for the destruction of the flesh, so that his spirit may be saved on the day of the Lord.
+⁸ Now to the unmarried and the widows I say: It is good for them to stay unmarried, as I do. ⁹ But if they cannot control themselves, they should marry, for it is better to marry than to burn with passion.
 
-⁶ Your boasting is not good. Don’t you know that a little yeast leavens the whole batch of dough? ⁷ Get rid of the old yeast, so that you may be a new unleavened batch—as you really are. For Christ, our Passover lamb, has been sacrificed. ⁸ Therefore let us keep the Festival, not with the old bread leavened with malice and wickedness, but with the unleavened bread of sincerity and truth.
+¹⁰ To the married I give this command (not I, but the Lord): A wife must not separate from her husband. ¹¹ But if she does, she must remain unmarried or else be reconciled to her husband. And a husband must not divorce his wife.
 
-⁹ I wrote to you in my letter not to associate with sexually immoral people— ¹⁰ not at all meaning the people of this world who are immoral, or the greedy and swindlers, or idolaters. In that case you would have to leave this world. ¹¹ But now I am writing to you that you must not associate with anyone who claims to be a brother or sister but is sexually immoral or greedy, an idolater or slanderer, a drunkard or swindler. Do not even eat with such people.
+¹² To the rest I say this (I, not the Lord): If any brother has a wife who is not a believer and she is willing to live with him, he must not divorce her. ¹³ And if a woman has a husband who is not a believer and he is willing to live with her, she must not divorce him. ¹⁴ For the unbelieving husband has been sanctified through his wife, and the unbelieving wife has been sanctified through her believing husband. Otherwise your children would be unclean, but as it is, they are holy.
 
-¹² What business is it of mine to judge those outside the church? Are you not to judge those inside? ¹³ God will judge those outside. “Expel the wicked person from among you.” 
+¹⁵ But if the unbeliever leaves, let it be so. The brother or the sister is not bound in such circumstances; God has called us to live in peace. ¹⁶ How do you know, wife, whether you will save your husband? Or, how do you know, husband, whether you will save your wife?
 
-**Lawsuits Among Believers**
+**Concerning Change of Status**
+¹⁷ Nevertheless, each person should live as a believer in whatever situation the Lord has assigned to them, just as God has called them. This is the rule I lay down in all the churches. ¹⁸ Was a man already circumcised when he was called? He should not become uncircumcised. Was a man uncircumcised when he was called? He should not be circumcised. ¹⁹ Circumcision is nothing and uncircumcision is nothing. Keeping God’s commands is what counts. ²⁰ Each person should remain in the situation they were in when God called them.
 
-⁶ If any of you has a dispute with another, do you dare to take it before the ungodly for judgment instead of before the Lord’s people? ² Or do you not know that the Lord’s people will judge the world? And if you are to judge the world, are you not competent to judge trivial cases? ³ Do you not know that we will judge angels? How much more the things of this life! ⁴ Therefore, if you have disputes about such matters, do you ask for a ruling from those whose way of life is scorned in the church? ⁵ I say this to shame you. Is it possible that there is nobody among you wise enough to judge a dispute between believers? ⁶ But instead, one brother takes another to court—and this in front of unbelievers!
-
-⁷ The very fact that you have lawsuits among you means you have been completely defeated already. Why not rather be wronged? Why not rather be cheated? ⁸ Instead, you yourselves cheat and do wrong, and you do this to your brothers and sisters. ⁹ Or do you not know that wrongdoers will not inherit the kingdom of God? Do not be deceived: Neither the sexually immoral nor idolaters nor adulterers nor men who have sex with men ¹⁰ nor thieves nor the greedy nor drunkards nor slanderers nor swindlers will inherit the kingdom of God. ¹¹ And that is what some of you were. But you were washed, you were sanctified, you were justified in the name of the Lord Jesus Christ and by the Spirit of our God.
-
-**Sexual Immorality**
-
-¹² “I have the right to do anything,” you say—but not everything is beneficial. “I have the right to do anything”—but I will not be mastered by anything. ¹³ You say, “Food for the stomach and the stomach for food, and God will destroy them both.” The body, however, is not meant for sexual immorality but for the Lord, and the Lord for the body. ¹⁴ By his power God raised the Lord from the dead, and he will raise us also. ¹⁵ Do you not know that your bodies are members of Christ himself? Shall I then take the members of Christ and unite them with a prostitute? Never! ¹⁶ Do you not know that he who unites himself with a prostitute is one with her in body? For it is said, “The two will become one flesh.” ¹⁷ But whoever is united with the Lord is one with him in spirit. 
-
-¹⁸ Flee from sexual immorality. All other sins a person commits are outside the body, but whoever sins sexually, sins against their own body. ¹⁹ Do you not know that your bodies are temples of the Holy Spirit, who is in you, whom you have received from God? You are not your own; ²⁰ you were bought at a price. Therefore honor God with your bodies.
-
+²¹ Were you a slave when you were called? Don’t let it trouble you—although if you can gain your freedom, do so. ²² For the one who was a slave when called to faith in the Lord is the Lord’s freed person; similarly, the one who was free when called is Christ’s slave. ²³ You were bought at a price; do not become slaves of human beings. ²⁴ Brothers and sisters, each person, as responsible to God, should remain in the situation they were in when God called them.
 
 ## Sermon Outline
-### Living between the cross and the resurrection: Flee sexual immorality (and greed)
-
-- Improving on beauty
-- The Corinthians Problems
-- A low view of sin
-- A low view of church
-- A low view of the Gospel
-- Conclusions 
 
 
 ## Q&A
