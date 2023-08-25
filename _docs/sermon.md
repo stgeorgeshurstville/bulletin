@@ -2,7 +2,7 @@
 title: Sermon 
 order: 1
 ---
-### Glorify God with your bodies - marriage
+# Glorify God with your bodies - marriage
 
 ## Bible Reading
 
