@@ -4,14 +4,16 @@ order: 2
 ---
 
 ## 9:30am 
-1. Yet Not I but Through Christ in Me
-2. Servants Of The Gospel
-3. It Was Finished Upon That Cross
+1. Apostles’ Creed
+2. It Was Finished Upon That Cross
+3. 
+4. No Other Name
 
 
 ## 4pm 
-1. Apostles' Creed
-2. Surrender all
-3. We Belong to the Day
+1. On That Day
+2. We are one
+3. All I have is Christ
+4. Rejoice
    
 Check out the church spotify playlist [here](https://open.spotify.com/playlist/3gh0ZKXkJBDbNEnZqJJDXj?si=0908aa3f87544643)
