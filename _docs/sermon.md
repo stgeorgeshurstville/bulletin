@@ -2,8 +2,8 @@
 title: Sermon 
 order: 1
 ---
-# Glorify God with your bodies - marriage
 
+### Glorify God with your bodies - marriage
 ## Bible Reading
 
 ### Prayer
@@ -28,6 +28,7 @@ Almighty God, we thank you for the gift of your holy word. May it be a lantern t
 ¹⁷ Nevertheless, each person should live as a believer in whatever situation the Lord has assigned to them, just as God has called them. This is the rule I lay down in all the churches. ¹⁸ Was a man already circumcised when he was called? He should not become uncircumcised. Was a man uncircumcised when he was called? He should not be circumcised. ¹⁹ Circumcision is nothing and uncircumcision is nothing. Keeping God’s commands is what counts. ²⁰ Each person should remain in the situation they were in when God called them.
 
 ²¹ Were you a slave when you were called? Don’t let it trouble you—although if you can gain your freedom, do so. ²² For the one who was a slave when called to faith in the Lord is the Lord’s freed person; similarly, the one who was free when called is Christ’s slave. ²³ You were bought at a price; do not become slaves of human beings. ²⁴ Brothers and sisters, each person, as responsible to God, should remain in the situation they were in when God called them.
+
 
 ## Sermon Outline
 
