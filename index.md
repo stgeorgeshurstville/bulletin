@@ -2,17 +2,18 @@
 title: Welcome
 ---
 
-### Sermon Series:
+# Sermon Series:
 ## 1 Corinthians: To the Glory of God Alone 
-This Week - Deputation Mission Spot: Berkeley Life Centre
+### Glorify God with your bodies - marriage
 
 
 ![Screenshot 2023-07-21 at 3 47 23 pm](https://github.com/stgeorgeshurstville/bulletin/assets/119166299/2d95947e-b2b1-44b5-a360-f1dd4a4d7efe)
 
 ---
-#### All that you have done to us, Lord, you have done in true judgement; for we have sinned in all things and have not obeyed your commandments; give glory to your Name, O Lord, and deal with us in your forbearance. 
+#### Be gracious to me, O Lord, for to you do I cry all day long. You, O Lord, are good and forgiving, abounding in steadfast love to all who call on you. 
 
-##### Song of the Three Young Men 8,17,20,19 
+
+##### Psalm 86.3,5
 
 ---
 - We are gathering in person! For people who can’t gather in person, you can watch online [here](https://stgeorgeshurstville.org.au/sunday-english-online)
