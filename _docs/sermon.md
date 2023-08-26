@@ -14,6 +14,7 @@ Almighty God, we thank you for the gift of your holy word. May it be a lantern t
 ### 1 Corinthians 7:1-24
 
 **Concerning Married Life**
+
 ¹ Now for the matters you wrote about: “It is good for a man not to have sexual relations with a woman.” ² But since sexual immorality is occurring, each man should have sexual relations with his own wife, and each woman with her own husband. ³ The husband should fulfill his marital duty to his wife, and likewise the wife to her husband. ⁴ The wife does not have authority over her own body but yields it to her husband. In the same way, the husband does not have authority over his own body but yields it to his wife. ⁵ Do not deprive each other except perhaps by mutual consent and for a time, so that you may devote yourselves to prayer. Then come together again so that Satan will not tempt you because of your lack of self-control. ⁶ I say this as a concession, not as a command. ⁷ I wish that all of you were as I am. But each of you has your own gift from God; one has this gift, another has that.
 
 ⁸ Now to the unmarried and the widows I say: It is good for them to stay unmarried, as I do. ⁹ But if they cannot control themselves, they should marry, for it is better to marry than to burn with passion.
@@ -25,6 +26,7 @@ Almighty God, we thank you for the gift of your holy word. May it be a lantern t
 ¹⁵ But if the unbeliever leaves, let it be so. The brother or the sister is not bound in such circumstances; God has called us to live in peace. ¹⁶ How do you know, wife, whether you will save your husband? Or, how do you know, husband, whether you will save your wife?
 
 **Concerning Change of Status**
+
 ¹⁷ Nevertheless, each person should live as a believer in whatever situation the Lord has assigned to them, just as God has called them. This is the rule I lay down in all the churches. ¹⁸ Was a man already circumcised when he was called? He should not become uncircumcised. Was a man uncircumcised when he was called? He should not be circumcised. ¹⁹ Circumcision is nothing and uncircumcision is nothing. Keeping God’s commands is what counts. ²⁰ Each person should remain in the situation they were in when God called them.
 
 ²¹ Were you a slave when you were called? Don’t let it trouble you—although if you can gain your freedom, do so. ²² For the one who was a slave when called to faith in the Lord is the Lord’s freed person; similarly, the one who was free when called is Christ’s slave. ²³ You were bought at a price; do not become slaves of human beings. ²⁴ Brothers and sisters, each person, as responsible to God, should remain in the situation they were in when God called them.
