@@ -6,7 +6,7 @@ order: 2
 ## 9:30am 
 1. Apostles’ Creed
 2. It Was Finished Upon That Cross
-3. 
+3. All Glory be to Christ
 4. No Other Name
 
 
