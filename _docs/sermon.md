@@ -31,15 +31,15 @@ Almighty God, we thank you for the gift of your holy word. May it be a lantern t
 
 
 ## Sermon Outline
-1.The reality and the result (1 Cor 6:19-20 and 7:23).
-2.Be godly. 
-    a.Have sex. 
-    b.Stay with your spouse.
-3.Serve.  
-    a.Have sex to serve.
-    b.Marry to serve. 
-    c.Remain married to serve. 
-    d.Remain in your situation because you serve. 
+1. The reality and the result (1 Cor 6:19-20 and 7:23).
+2. Be godly. 
+    a. Have sex. 
+    b. Stay with your spouse.
+3. Serve.  
+    a. Have sex to serve.
+    b. Marry to serve. 
+    c. Remain married to serve. 
+    d. Remain in your situation because you serve. 
 
 
 ## Q&A
