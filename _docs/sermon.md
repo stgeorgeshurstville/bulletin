@@ -31,7 +31,7 @@ Almighty God, we thank you for the gift of your holy word. May it be a lantern t
 
 
 ## Sermon Outline
-1.The reality and the result (1 Cor 6:19-20 and 7:23). 
+1.The reality and the result (1 Cor 6:19-20 and 7:23).
 2.Be godly. 
     a.Have sex. 
     b.Stay with your spouse.
