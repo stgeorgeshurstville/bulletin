@@ -2,3 +2,7 @@
 title: Meal Orders 
 order: 6
 ---
+
+Join us as we continue to encourage each other over lunch and dinner after our Services. The deadline for the coming Sunday's order is Saturday 12pm noon. Please pre-order by filling in these forms:
+   - Lunch Order [here](https://tinyurl.com/sunlunches)
+   - Dinner Order [here](https://tinyurl.com/sundinners)
