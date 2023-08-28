@@ -7,11 +7,12 @@ order: 4
 
 | Date | Event |
 | ----- | ----- |
-| **AUGUST** | |
-| SUN Aug 13 @1-2pm | Berkeley Life Centre Training Seminar |
-| SAT Aug 26 | St Georges visits Berkeley Life Center |
 | **SEPTEMBER** | |
+| FRI Sep 15 6:30-8pm | Dr Rev. Marshall Ballantine-Jones Seminar for Parents |
+| SUN Sep 17 2-3:30pm | Dr Rev. Marshall Ballantine-Jones Seminar for Adults |
 | SAT Sep 23 | St Georges visits Berkeley Life Center |
+| **OCTOBER** | |
+| FRI Oct 20 5:30-7:30pm | Dr Rev. Marshall Ballantine-Jones Seminar for Youths |
 | **NOVEMBER** | |
 | SAT Nov 18 | St Georges visits Berkeley Life Center |
 
