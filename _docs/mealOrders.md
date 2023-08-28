@@ -1,6 +1,6 @@
 ---
 title: Meal Orders 
-order: 6
+order: 7
 ---
 
 Join us as we continue to encourage each other over lunch and dinner after our Services. The deadline for the coming Sunday's order is Saturday 12pm noon. Please pre-order by filling in these forms:
