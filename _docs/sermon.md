@@ -32,13 +32,14 @@ Heavenly Father, give us faith to receive your word, understanding to know what 
 2. More than just good advice
 
 3. Radical singleness
+
    Singleness is better
 
    Single = Celibate
 
-4. A strong ‘why’
+5. A strong ‘why’
 
-5. Next steps   
+6. Next steps   
 
 ## Q&A
 Got questions or comments? Send them [here](https://tinyurl.com/SGHACQuestionsAnswers)
