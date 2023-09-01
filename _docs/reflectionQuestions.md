@@ -18,9 +18,9 @@ God’s gift of singleness help us to look forward to the Kingdom and transforms
 3. What are the categories of ‘singles’ whom Paul is writing to? What doesn’t he call them ‘singles’? What does this tell you about how we understand singleness? 
 
 4. What does Paul say to:
-  The ‘virgins’ (who are the virgins?)
-  Those who are engaged
-  Widows 
+   The ‘virgins’ (who are the virgins?)
+   Those who are engaged
+   Widows 
 
 6. Unlike our culture, Paul priviledges singleness/chastity. Why? How does this critique our own views on marriage/singleness/celibacy/sexuality/sex? 
 
