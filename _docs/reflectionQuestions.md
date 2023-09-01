@@ -5,25 +5,43 @@ order: 6
 
 ### Big Idea: 
 
-We’ve been bought by God so be godly and serve. 
+God’s gift of singleness help us to look forward to the Kingdom and transforms our understanding of sexuality, ourselves and our relationships. Stoop making marriage/sex/relationship into our god. 
 
 
 
 ### Questions:
 
-1. What does the world think about sex, marriage, slavery and circumcision? 
-2. What does it mean to be bought (6:20, 7:24)? 
-3. What do we do as people who’ve been bought? 
-4. What does this look like for you? 
-5. Why where people saying that it’s good for a man not to have sexual relations with a woman? 
-6. What does it look like to be godly and serve in the context of marriage? 
-7. What does this look like for you as a husband or wife (or how can you encourage a husband and wife to do this)? 
-8. Why does Paul talk about separation and divorce (v10-)? 
-9. What does it mean for the unbelieving wife or husband to be holy? 
-10.What does it mean that the brother or sister is not bound (v15)? 
-11.What does it mean to be a slave of Jesus (v22)? 
-12.What does this look like for you? 
-13.Why is it better to be single? 
+1. What comes to mind when you hear the word ‘single’? 
+
+2. In vv.25-40, Paul speaks of judgement that are not commands from the Lord. IS he saying that he’s ‘just’ giving his opinion on things and we are free to ignore? Why/why not? What does this tell you about the nature of the Word of God? 
+
+3. What are the categories of ‘singles’ whom Paul is writing to? What doesn’t he call them ‘singles’? What does this tell you about how we understand singleness? 
+
+4. What does Paul say to:
+
+  The ‘virgins’ (who are the virgins?)
+
+  Those who are engaged
+
+  Widows 
+
+5. Unlike our culture, Paul priviledges singleness/chastity. Why? How does this critique our own views on marriage/singleness/celibacy/sexuality/sex? 
+
+There seems to be two main reasons given for Paul’s teaching on singleness - Jesus and time (the future). How do these two reasons inform Paul’s teaching? 
+
+Dani Treweed (who’s done her research on singleness - see her [book](https://www.amazon.com.au/Meaning-Singleness-Retrieving-Eschatological-Contemporary/dp/1514004852) and this [web resource](https://www.livingout.org/resources/search?search=singleness) argues that marriage and singleness both point us to the Word to come but in different ways. See this [interview](https://www.christianitytoday.com/ct/2023/mayjune/meaning-singleness-danielle-treweek-eschatology.html) for example. How might singleness points us to the world to come? 
+
+On a related topic of dating, you might like to listen to [this](https://ccl.moore.edu.au/resources/podcast-episode-069/). 
+
+6. How does the Gospel change our understanding of singleness and celibacy? 
+
+  If you‘re single, how can you live out the Gospel vision of singleness? Especially with the freedom you have. 
+  
+  Developing deep loving friendship is a way to express the Gospel vision of our life. How can we be doing this?  
+
+  How does the Gospel help you if yu;re struggling with your singleness? 
+  How can we as a community of Christians walk with one another as single and married people? 
+
 
 
 
