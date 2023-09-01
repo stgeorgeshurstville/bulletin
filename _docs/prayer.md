@@ -11,11 +11,11 @@ order: 3
 - **Mission:** Our gracious Father, thank you for the privilege of calling us to join in your mission. Thank you that under you what we do makes a difference in the world. We pray therefore that you will save those around us and to transform them into the likeness of Jesus. Please use us to make disciples of the nations, love our neighbours. Please Father, glorify yourself, through our labour in your Son. We pray that we will not be consumers but contributors to the ministries that you have called us to. 
 - **Church Sermon:** Gracious Father and Lord, O Lord, you have searched me and you know me. You created my inmost being; you knit me together in my mother’s womb. I praise you because I am fearfully and wonderfully made; your works are wonderful, I know that full well. 
 
-Sorry that we have often let our minds be conformed to the patterns of this world, and have made an idol of marriage, our happiness and fulfilment. Sorry for the way that we have disdained your gift of singleness and privileged marriage. Thank you for giving us the gift or marriage and the gift of singleness. Thank you that Jesus has redeemed both by His own body. Thank you that on the day of our Lord we will finally experience the Oneness with you and each other, through the marriage of the Lamb and us His people.  
+  Sorry that we have often let our minds be conformed to the patterns of this world, and have made an idol of marriage, our happiness and fulfilment. Sorry for the way that we have disdained your gift of singleness and privileged marriage. Thank you for giving us the gift or marriage and the gift of singleness. Thank you that Jesus has redeemed both by His own body. Thank you that on the day of our Lord we will finally experience the Oneness with you and each other, through the marriage of the Lamb and us His people.  
 
-Please help us to see ourselves and our gifts through the Gospel of Jesus. Please help us when we struggle in our marriage or in our singleness, to find contentment. Please help us to use the situations that you have put us in to point others to the sufficiency of Jesus and the world that is to come. 
+  Please help us to see ourselves and our gifts through the Gospel of Jesus. Please help us when we struggle in our marriage or in our singleness, to find contentment. Please help us to use the situations that you have put us in to point others to the sufficiency of Jesus and the world that is to come. 
 
-Search us, O God, and know our heart; test us and know our anxious thoughts. See if there is any offensive way in us, and lead us in the way everlasting. Amen. 
+  Search us, O God, and know our heart; test us and know our anxious thoughts. See if there is any offensive way in us, and lead us in the way everlasting. Amen. 
 
 
 ## Weekly Prayer Points
