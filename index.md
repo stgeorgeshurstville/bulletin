@@ -4,16 +4,16 @@ title: Welcome
 
 # Sermon Series:
 ## 1 Corinthians: To the Glory of God Alone 
-### Glorify God with your bodies - marriage
+### Glorify God with your bodies - Singleness
 
 
 ![Screenshot 2023-07-21 at 3 47 23 pm](https://github.com/stgeorgeshurstville/bulletin/assets/119166299/2d95947e-b2b1-44b5-a360-f1dd4a4d7efe)
 
 ---
-#### Be gracious to me, O Lord, for to you do I cry all day long. You, O Lord, are good and forgiving, abounding in steadfast love to all who call on you. 
+#### The sinner cries to God; Do not forsake me, O Lord. O my God, be not far from me, make haste to help me, O Lord, my salvation. 
 
 
-##### Psalm 86.3,5
+##### Psalm 38:21-22
 
 ---
 - We are gathering in person! For people who can’t gather in person, you can watch online [here](https://stgeorgeshurstville.org.au/sunday-english-online)
