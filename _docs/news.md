@@ -44,10 +44,10 @@ Our staff and volunteer leaders will be available during the session and afterwa
 If you need support as a result of the subject matter raised over the few weeks on love, sex and marriage please talk to one of the staff (Alan, Brian or Glorya at 930am and Cate at 4pm). 
 
 - **Singleness and Dating: Great resources:**
- - Single Minded ministry with great talks and other [resources](https://www.singleminded.community/) 
- - [Living Out](https://www.livingout.org/)  
- - [On dating](https://ccl.moore.edu.au/resources/podcast-episode-069/) 
- - [For Youths](https://youthworksmedia.net/products/teen-sex-by-the-book) 
+ - Single Minded ministry with great talks and other resources [here](https://www.singleminded.community/) 
+ - Living Out [here](https://www.livingout.org/)  
+ - On dating [here](https://ccl.moore.edu.au/resources/podcast-episode-069/) 
+ - For Youths [here](https://youthworksmedia.net/products/teen-sex-by-the-book) 
 
 - **Coffee Cart:** We are serving baristas coffee after 9:30am church today. Order your coffee at the sign-in area. $3 (small) $4 (large). Why not buy coffee for someone you don’t know?
 
@@ -60,7 +60,7 @@ If you need support as a result of the subject matter raised over the few weeks 
 
 ## What’s Next?
 - **New?** We’d love to meet you and introduce you to our church. Please speak to one of the pastors for a time to chat. 
-- **Growing Together:** The best way to do this is to be part of a small group (Discipleship Group). More information [here](https://stgeorgeshurstville.org.au/discipleship-groups)
+- **Growing Together:** The best way to do this is to be part of a small group (Discipleship Group). More information [here](https://stgeorgeshurstville.org.au/discipleship-groups).
 - **Online Resources:** We are curating some resources on our website [here](https://stgeorgeshurstville.org.au/lets-talk-about-christianity).  
 
 ## Ongoing Events
