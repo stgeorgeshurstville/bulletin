@@ -37,9 +37,9 @@ Heavenly Father, give us faith to receive your word, understanding to know what 
 
    Single = Celibate
 
-5. A strong ‘why’
+6. A strong ‘why’
 
-6. Next steps   
+7. Next steps   
 
 ## Q&A
 Got questions or comments? Send them [here](https://tinyurl.com/SGHACQuestionsAnswers)
