@@ -25,7 +25,7 @@ God’s gift of singleness help us to look forward to the Kingdom and transforms
 
    Widows 
 
-6. Unlike our culture, Paul priviledges singleness/chastity. Why? How does this critique our own views on marriage/singleness/celibacy/sexuality/sex? 
+5. Unlike our culture, Paul priviledges singleness/chastity. Why? How does this critique our own views on marriage/singleness/celibacy/sexuality/sex? 
 
 There seems to be two main reasons given for Paul’s teaching on singleness - Jesus and time (the future). How do these two reasons inform Paul’s teaching? 
 
