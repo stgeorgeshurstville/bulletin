@@ -4,10 +4,10 @@ order: 2
 ---
 
 ## 9:30am 
-1. Apostles’ Creed
-2. It Was Finished Upon That Cross
-3. All Glory be to Christ
-4. No Other Name
+1. Come, People of the Risen King
+2. Yet Not I But Through Christ In Me
+3. All I Have Is Christ
+4. In Christ Alone
 
 
 ## 4pm 
