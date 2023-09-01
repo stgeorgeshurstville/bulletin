@@ -44,10 +44,10 @@ Our staff and volunteer leaders will be available during the session and afterwa
 If you need support as a result of the subject matter raised over the few weeks on love, sex and marriage please talk to one of the staff (Alan, Brian or Glorya at 930am and Cate at 4pm). 
 
 - **Singleness and Dating: Great resources:**
- - Single Minded ministry with great talks and other resources [here](https://www.singleminded.community/) 
- - Living Out [here](https://www.livingout.org/)  
- - On dating [here](https://ccl.moore.edu.au/resources/podcast-episode-069/) 
- - For Youths [here](https://youthworksmedia.net/products/teen-sex-by-the-book) 
+ - Single Minded ministry with great talks and other resources [here](https://www.singleminded.community/). 
+ - Living Out [here](https://www.livingout.org/).  
+ - On dating [here](https://ccl.moore.edu.au/resources/podcast-episode-069/). 
+ - For Youths [here](https://youthworksmedia.net/products/teen-sex-by-the-book).
 
 - **Coffee Cart:** We are serving baristas coffee after 9:30am church today. Order your coffee at the sign-in area. $3 (small) $4 (large). Why not buy coffee for someone you don’t know?
 
