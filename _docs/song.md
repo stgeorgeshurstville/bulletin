@@ -11,9 +11,9 @@ order: 2
 
 
 ## 4pm 
-1. On That Day
-2. We are one
-3. All I have is Christ
-4. Rejoice
+1. Jesus, Strong and Kind
+2. No Other Name
+3. All Glory Be to Christ
+4. Let Your Kingdom Come
    
 Check out the church spotify playlist [here](https://open.spotify.com/playlist/3gh0ZKXkJBDbNEnZqJJDXj?si=0908aa3f87544643)
