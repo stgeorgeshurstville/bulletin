@@ -46,9 +46,9 @@ order: 4
 - **Baptism:** Baptism is an outward sign of an inward reality and God’s grace towards his people who’ve come to trust in Jesus. Please speak to Rev. Alan if you are interested to be baptised. The dates are 22nd Oct (baptism) and 12th Nov (baptism and confirmation). 
 
 - **Seminar:** The prevalence of ponorgraphy is as broad as the COVID pandemic and it’s just as harmful if not greater. We have invited the Rev. Dr Marshall Ballantine-Jones to help us. Dr Ballantine-Jones has researched on the impact of pornography on adolescents. There will be 3 public in-person sessions with Dr  Ballantine-Jones:
- - for Parents on Fri 15th Sep 6:30-8pm in the Seminar Room: 8 things every parent needs to know about pornography and social media. 
- - for Everyone on Sun 17th Sep 2-3:30pm in the Chapel.
- - for Youths on Fri 20th Oct 5:30-7:30pm in the Hall.
+  - for Parents on Fri 15th Sep 6:30-8pm in the Seminar Room: 8 things every parent needs to know about pornography and social media. 
+  - for Everyone on Sun 17th Sep 2-3:30pm in the Chapel.
+  - for Youths on Fri 20th Oct 5:30-7:30pm in the Hall.
 
 For those unable to attend the in-person sessions, the Sunday session will be streamed you can [access it here](https://stgeorgeshurstville.org.au/seminar). Pastor Elvin will also translate this session into Mandarin. 
  
@@ -58,10 +58,10 @@ Our staff and volunteer leaders will be available during the session and afterwa
 If you need support as a result of the subject matter raised over the few weeks on love, sex and marriage please talk to one of the staff (Alan, Brian or Glorya at 930am and Cate at 4pm). 
 
 - **Singleness and Dating: Great resources:**
- - Single Minded ministry with great talks and other resources [here](https://www.singleminded.community/). 
- - Living Out [here](https://www.livingout.org/).  
- - On dating [here](https://ccl.moore.edu.au/resources/podcast-episode-069/). 
- - For Youths [here](https://youthworksmedia.net/products/teen-sex-by-the-book).
+  - Single Minded ministry with great talks and other resources [here](https://www.singleminded.community/). 
+  - Living Out [here](https://www.livingout.org/).  
+  - On dating [here](https://ccl.moore.edu.au/resources/podcast-episode-069/). 
+  - For Youths [here](https://youthworksmedia.net/products/teen-sex-by-the-book).
 
 - **Coffee Cart:** We are serving baristas coffee after 9:30am church today. Order your coffee at the sign-in area. $3 (small) $4 (large). Why not buy coffee for someone you don’t know?
 
