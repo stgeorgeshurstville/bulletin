@@ -50,7 +50,7 @@ order: 4
   - for Everyone on Sun 17th Sep 2-3:30pm in the Chapel.
   - for Youths on Fri 20th Oct 5:30-7:30pm in the Hall.
 
-For those unable to attend the in-person sessions, the Sunday session will be streamed you can [access it here](https://stgeorgeshurstville.org.au/seminar). Pastor Elvin will also translate this session into Mandarin. 
+ For those unable to attend the in-person sessions, the Sunday session will be streamed you can [access it here](https://stgeorgeshurstville.org.au/seminar). Pastor Elvin will also translate this session into Mandarin. 
  
 Our staff and volunteer leaders will be available during the session and afterwards for ongoing support. 
 
