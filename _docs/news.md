@@ -50,9 +50,9 @@ order: 4
   - for Everyone on Sun 17th Sep 2-3:30pm in the Chapel.
   - for Youths on Fri 20th Oct 5:30-7:30pm in the Hall.
 
- For those unable to attend the in-person sessions, the Sunday session will be streamed you can [access it here](https://stgeorgeshurstville.org.au/seminar). Pastor Elvin will also translate this session into Mandarin. 
+  For those unable to attend the in-person sessions, the Sunday session will be streamed you can [access it here](https://stgeorgeshurstville.org.au/seminar). Pastor Elvin will also translate this session into Mandarin. 
  
-Our staff and volunteer leaders will be available during the session and afterwards for ongoing support. 
+  Our staff and volunteer leaders will be available during the session and afterwards for ongoing support. 
 
 - **Pastoral Care and Support:** Please read this article by Tim Keller for an overview of a [Christian sexual ethics](https://www.christ2rculture.com/resources/Ministry-Blog/The-Gospel-and-Sex-by-Tim-Keller.pdf) 
 If you need support as a result of the subject matter raised over the few weeks on love, sex and marriage please talk to one of the staff (Alan, Brian or Glorya at 930am and Cate at 4pm). 
