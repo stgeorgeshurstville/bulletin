@@ -8,13 +8,23 @@ order: 4
 | Date | Event |
 | ----- | ----- |
 | **SEPTEMBER** | |
-| SUN Sep 10 11am | Introduction Session (124 Forest Road) |
-| SUN Sep 10 5:30pm | Introduction Session (Seminar Room) |
-| FRI Sep 15 6:30-8pm | Dr Rev. Marshall Ballantine-Jones Seminar for Parents (Seminar Room) |
-| SUN Sep 17 2-3:30pm | Dr Rev. Marshall Ballantine-Jones Seminar for Adults (Chapel) |
+| SUN Sep 10 - 11am | Introduction Session (124 Forest Road) |
+| SUN Sep 10 - 5:30pm | Introduction Session (Seminar Room) |
+| FRI Sep 15 - 6:30-8pm | Dr Rev. Marshall Ballantine-Jones Seminar for Parents (Seminar Room) |
+| SUN Sep 17 - 11am | Life Session #1 (124 Forest Road) |
+| SUN Sep 17 - 2-3:30pm | Dr Rev. Marshall Ballantine-Jones Seminar for Adults (Chapel) |
+| SUN Sep 17 - 5:30pm | Life Session #1 (Seminar Room) |
 | SAT Sep 23 | St Georges visits Berkeley Life Center |
+| SUN Sep 24 - 11am | Life Session #2 (124 Forest Road) |
+| SUN Sep 24 - 5:30pm | Life Session #2 (Seminar Room) |
 | **OCTOBER** | |
-| FRI Oct 20 5:30-7:30pm | Dr Rev. Marshall Ballantine-Jones Seminar for Youths (Hall) |
+| SUN Oct 1 - 11am | Life Session #3 (124 Forest Road) |
+| SUN Oct 1 - 5:30pm | Life Session #3 (Seminar Room) |
+| SUN Oct 8 - 11am | Life Session #4 (124 Forest Road) |
+| SUN Oct 8 - 5:30pm | Life Session #4 (Seminar Room) |
+| SUN Oct 15 - 11am | Life Session #5 (124 Forest Road) |
+| SUN Oct 15 - 5:30pm | Life Session #5 (Seminar Room) |
+| FRI Oct 20 - 5:30-7:30pm | Dr Rev. Marshall Ballantine-Jones Seminar for Youths (Hall) |
 | SUN Oct 22 | Baptism |
 | **NOVEMBER** | |
 | SUN Nov 12 | Baptism and Confirmation |
