@@ -8,12 +8,16 @@ order: 4
 | Date | Event |
 | ----- | ----- |
 | **SEPTEMBER** | |
-| FRI Sep 15 6:30-8pm | Dr Rev. Marshall Ballantine-Jones Seminar for Parents |
-| SUN Sep 17 2-3:30pm | Dr Rev. Marshall Ballantine-Jones Seminar for Adults |
+| SUN Sep 10 11am | Introduction Session (124 Forest Road) |
+| SUN Sep 10 5:30pm | Introduction Session (Seminar Room) |
+| FRI Sep 15 6:30-8pm | Dr Rev. Marshall Ballantine-Jones Seminar for Parents (Seminar Room) |
+| SUN Sep 17 2-3:30pm | Dr Rev. Marshall Ballantine-Jones Seminar for Adults (Chapel) |
 | SAT Sep 23 | St Georges visits Berkeley Life Center |
 | **OCTOBER** | |
-| FRI Oct 20 5:30-7:30pm | Dr Rev. Marshall Ballantine-Jones Seminar for Youths |
+| FRI Oct 20 5:30-7:30pm | Dr Rev. Marshall Ballantine-Jones Seminar for Youths (Hall) |
+| SUN Oct 22 | Baptism |
 | **NOVEMBER** | |
+| SUN Nov 12 | Baptism and Confirmation |
 | SAT Nov 18 | St Georges visits Berkeley Life Center |
 
 ## General
@@ -23,7 +27,7 @@ order: 4
     - The Family Spot (segment to help the whole church family and give us language to speak about Jesus to kids) will take place in the 4pm English Service each week except for the 1st week of each month where it will take place in the 4pm Mandarin Service instead.
     - Parents will need to register and sign in their kids with one of the Kids Leaders when they arrive in service and sign out their kids from their group’s rooms.
     - Toddlers Time/Creche (0-4 years old) will take place in the Playgroup Room and 4pm NewGen (Preschool-Year 6) will take place in the Seminar Room.
-- **Life Quarterly Spring Edition:**  We're thrilled to announce that the latest edition of our church magazine is now published and available for your reading pleasure! You can read in both digital and hard copy formats. Dive into its pages to discover stories, insights, and updates from our church community. Happy reading!
+- **Life Quarterly Spring Edition:**  We're thrilled to announce that the latest edition of our [church magazine](https://stgeorgeshurstville.org.au/life) is now published and available for your reading pleasure! You can read in both digital and hard copy formats. Dive into its pages to discover stories, insights, and updates from our church community. Happy reading!
 
 - **Introduction:** If you are new or would like to find out more about our church, please come to our Introduction Session. It’ll be on Sunday 10th of Sep at 11am (124 Forest Road) and 5:30pm (Seminar Room).  
 
