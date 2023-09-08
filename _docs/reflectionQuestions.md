@@ -5,42 +5,40 @@ order: 6
 
 ### Big Idea: 
 
-God’s gift of singleness help us to look forward to the Kingdom and transforms our understanding of sexuality, ourselves and our relationships. Stoop making marriage/sex/relationship into our god. 
+Being known by God allows us to know what’s right and more importantly to love (which may involve giving up our rights)
 
 
 
 ### Questions:
 
-1. What comes to mind when you hear the word ‘single’? 
+1. What tricky situations have you been in where there doesn’t seem to be a clear right or wrong answer? 
 
-2. In vv.25-40, Paul speaks of judgement that are not commands from the Lord. IS he saying that he’s ‘just’ giving his opinion on things and we are free to ignore? Why/why not? What does this tell you about the nature of the Word of God? 
+2. What’s the difference between a Christian who as a weak conscience and one who has a strong conscience? 
 
-3. What are the categories of ‘singles’ whom Paul is writing to? What doesn’t he call them ‘singles’? What does this tell you about how we understand singleness? 
+3. Is knowledge good? 
 
-4. What does Paul say to:
+4. How can knowledge be bad? 
 
-   The ‘virgins’ (who are the virgins?)
+5. Have you ever used knowledge in an unloving way or to boast yourself up? 
 
-   Those who are engaged
+6. What’s so good about being known by God? 
 
-   Widows 
+7. When is an issue a core and central one (indisputable) where we must be united or a secondary and more superficial one (disputable) where we can differ? 
 
-5. Unlike our culture, Paul priviledges singleness/chastity. Why? How does this critique our own views on marriage/singleness/celibacy/sexuality/sex?
-   There seems to be two main reasons given for Paul’s teaching on singleness - Jesus and time (the future). How do these two reasons inform Paul’s teaching?
+8. What would you do in these situations? 
+   a. Your relative invites you to their wedding to celebrate and formalise their same sex relationship. 
+   b. Your Muslim friend invites you to celebrate the end of Ramadan with their family. 
+   c. Your Christian friend says that they don’t have to go to Church or small groups regularly.
+   d. Your Christian friend is planning to accept an accounting job for a gambling company. 
+   e. Your school is telling all students to wear purple and make a donation on Purple Day to support LGBTIQ+.
+   f. Your work is having a raffle to raise money to support transgenderism. 
+   g. Your aunt just passed away and her funeral will be done according to Buddhist rituals. 
+   h. Your friend’s bucks will involve visiting a strip club. 
+   i. Your non-Christian friend has a cigar and offers you one after the Church Service. 
 
-   Dani Treweed (who’s done her research on singleness - see her [book](https://www.amazon.com.au/Meaning-Singleness-Retrieving-Eschatological-Contemporary/dp/1514004852) and this [web resource](https://www.livingout.org/resources/search?search=singleness) argues that marriage and singleness both point us to the Word to come but in different ways. See this [interview](https://www.christianitytoday.com/ct/2023/mayjune/meaning-singleness-danielle-treweek-eschatology.html) for example. How might singleness points us to the world to come?
+9. What guides Paul’s decision to not eat food offered to idols? 
 
-   On a related topic of dating, you might like to listen to [this](https://ccl.moore.edu.au/resources/podcast-episode-069/). 
-
-7. How does the Gospel change our understanding of singleness and celibacy?
-
-   If you‘re single, how can you live out the Gospel vision of singleness? Especially with the freedom you have.
-
-   Developing deep loving friendship is a way to express the Gospel vision of our life. How can we be doing this?
-
-   How does the Gospel help you if yu;re struggling with your singleness?
-
-   How can we as a community of Christians walk with one another as single and married people? 
+10. What rights (privileges, freedom, opportunities, hobbies, lifestyle, choices etc.) do you cherish? How willing are you to give this up for others? What would it look like? 
 
 
 
