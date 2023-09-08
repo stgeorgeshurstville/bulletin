@@ -63,7 +63,6 @@ If you need support as a result of the subject matter raised over the few weeks 
   - On dating [here](https://ccl.moore.edu.au/resources/podcast-episode-069/). 
   - For Youths [here](https://youthworksmedia.net/products/teen-sex-by-the-book).
 
-- **Coffee Cart:** We are serving baristas coffee after 9:30am church today. Order your coffee at the sign-in area. $3 (small) $4 (large). Why not buy coffee for someone you don’t know?
 
 
 
