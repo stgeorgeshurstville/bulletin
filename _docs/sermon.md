@@ -11,7 +11,7 @@ Heavenly Father, give us faith to receive your word, understanding to know what 
 **Amen.**
 
 
-### 1 Corinthians 7:25-40
+### 1 Corinthians 8
 
 **Concerning Food Sacrificed to Idols**
 
