@@ -3,7 +3,7 @@ title: Sermon
 order: 1
 ---
 
-### Glorify God with your bodies - Singleness
+### Freedom to Love
 ## Bible Reading
 
 ### Prayer
@@ -13,33 +13,28 @@ Heavenly Father, give us faith to receive your word, understanding to know what 
 
 ### 1 Corinthians 7:25-40
 
-**Concerning the Unmarried**
+**Concerning Food Sacrificed to Idols**
 
-²⁵ Now about virgins: I have no command from the Lord, but I give a judgment as one who by the Lord’s mercy is trustworthy. ²⁶ Because of the present crisis, I think that it is good for a man to remain as he is. ²⁷ Are you pledged to a woman? Do not seek to be released. Are you free from such a commitment? Do not look for a wife. ²⁸ But if you do marry, you have not sinned; and if a virgin marries, she has not sinned. But those who marry will face many troubles in this life, and I want to spare you this.
+⁸ Now about food sacrificed to idols: We know that “We all possess knowledge.” But knowledge puffs up while love builds up. ² Those who think they know something do not yet know as they ought to know. ³ But whoever loves God is known by God. 
 
-²⁹ What I mean, brothers and sisters, is that the time is short. From now on those who have wives should live as if they do not; ³⁰ those who mourn, as if they did not; those who are happy, as if they were not; those who buy something, as if it were not theirs to keep; ³¹ those who use the things of the world, as if not engrossed in them. For this world in its present form is passing away.
+⁴ So then, about eating food sacrificed to idols: We know that “An idol is nothing at all in the world” and that “There is no God but one.” ⁵ For even if there are so-called gods, whether in heaven or on earth (as indeed there are many “gods” and many “lords”), ⁶ yet for us there is but one God, the Father, from whom all things came and for whom we live; and there is but one Lord, Jesus Christ, through whom all things came and through whom we live.
 
-³² I would like you to be free from concern. An unmarried man is concerned about the Lord’s affairs—how he can please the Lord. ³³ But a married man is concerned about the affairs of this world—how he can please his wife— ³⁴ and his interests are divided. An unmarried woman or virgin is concerned about the Lord’s affairs: Her aim is to be devoted to the Lord in both body and spirit. But a married woman is concerned about the affairs of this world—how she can please her husband. ³⁵ I am saying this for your own good, not to restrict you, but that you may live in a right way in undivided devotion to the Lord.
+⁷ But not everyone possesses this knowledge. Some people are still so accustomed to idols that when they eat sacrificial food they think of it as having been sacrificed to a god, and since their conscience is weak, it is defiled. ⁸ But food does not bring us near to God; we are no worse if we do not eat, and no better if we do.
 
-³⁶ If anyone is worried that he might not be acting honorably toward the virgin he is engaged to, and if his passions are too strong and he feels he ought to marry, he should do as he wants. He is not sinning. They should get married. ³⁷ But the man who has settled the matter in his own mind, who is under no compulsion but has control over his own will, and who has made up his mind not to marry the virgin—this man also does the right thing. ³⁸ So then, he who marries the virgin does right, but he who does not marry her does better. 
-
-³⁹ A woman is bound to her husband as long as he lives. But if her husband dies, she is free to marry anyone she wishes, but he must belong to the Lord. ⁴⁰ In my judgment, she is happier if she stays as she is—and I think that I too have the Spirit of God.
-
+⁹ Be careful, however, that the exercise of your rights does not become a stumbling block to the weak. ¹⁰ For if someone with a weak conscience sees you, with all your knowledge, eating in an idol’s temple, won’t that person be emboldened to eat what is sacrificed to idols? ¹¹ So this weak brother or sister, for whom Christ died, is destroyed by your knowledge. ¹² When you sin against them in this way and wound their weak conscience, you sin against Christ. ¹³ Therefore, if what I eat causes my brother or sister to fall into sin, I will never eat meat again, so that I will not cause them to fall.
 
 ## Sermon Outline
-1. Which school are you going to
+1. Can we…
 
-2. More than just good advice
+2. We can eat food offered to idols but…
 
-3. Radical singleness
+3. Knowledge puffs up. 
 
-   Singleness is better
+4. It’s more about being known rather than what we know. 
 
-   Single = Celibate
-
-6. A strong ‘why’
-
-7. Next steps   
+5. Love builds up. 
+   - It seeks to not stumble others.
+   - It’s willing to give up to build up.   
 
 ## Q&A
 Got questions or comments? Send them [here](https://tinyurl.com/SGHACQuestionsAnswers)
