@@ -26,7 +26,7 @@ Being known by God allows us to know what’s right and more importantly to love
 7. When is an issue a core and central one (indisputable) where we must be united or a secondary and more superficial one (disputable) where we can differ? 
 
 8. What would you do in these situations?
-      a. Your relative invites you to their wedding to celebrate and formalise their same sex relationship. 
+      - Your relative invites you to their wedding to celebrate and formalise their same sex relationship. 
    b. Your Muslim friend invites you to celebrate the end of Ramadan with their family. 
    c. Your Christian friend says that they don’t have to go to Church or small groups regularly.
    d. Your Christian friend is planning to accept an accounting job for a gambling company. 
