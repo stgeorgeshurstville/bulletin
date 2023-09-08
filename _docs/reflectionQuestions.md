@@ -25,8 +25,8 @@ Being known by God allows us to know what’s right and more importantly to love
 
 7. When is an issue a core and central one (indisputable) where we must be united or a secondary and more superficial one (disputable) where we can differ? 
 
-8. What would you do in these situations? 
-   a. Your relative invites you to their wedding to celebrate and formalise their same sex relationship. 
+8. What would you do in these situations?
+      a. Your relative invites you to their wedding to celebrate and formalise their same sex relationship. 
    b. Your Muslim friend invites you to celebrate the end of Ramadan with their family. 
    c. Your Christian friend says that they don’t have to go to Church or small groups regularly.
    d. Your Christian friend is planning to accept an accounting job for a gambling company. 
@@ -36,9 +36,9 @@ Being known by God allows us to know what’s right and more importantly to love
    h. Your friend’s bucks will involve visiting a strip club. 
    i. Your non-Christian friend has a cigar and offers you one after the Church Service. 
 
-9. What guides Paul’s decision to not eat food offered to idols? 
+10. What guides Paul’s decision to not eat food offered to idols? 
 
-10. What rights (privileges, freedom, opportunities, hobbies, lifestyle, choices etc.) do you cherish? How willing are you to give this up for others? What would it look like? 
+11. What rights (privileges, freedom, opportunities, hobbies, lifestyle, choices etc.) do you cherish? How willing are you to give this up for others? What would it look like? 
 
 
 
