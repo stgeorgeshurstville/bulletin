@@ -11,7 +11,7 @@ order: 4
 | SUN Sep 10 - 11am | Introduction Session (124 Forest Road) |
 | SUN Sep 10 - 5:30pm | Introduction Session (Seminar Room) |
 | FRI Sep 15 - 6:30-8pm | Dr Rev. Marshall Ballantine-Jones Seminar for Parents (Seminar Room) |
-| SAT Sep 16 | [Ladies Brunch & Prayers](https://stgeorgeshurstville.org.au/ladies-brunch-prayers) |
+| SAT Sep 16 - 10-12am | [Ladies Brunch & Prayers](https://stgeorgeshurstville.org.au/ladies-brunch-prayers) |
 | SUN Sep 17 - 11am | Life Session #1 (124 Forest Road) |
 | SUN Sep 17 - 2-3:30pm | Dr Rev. Marshall Ballantine-Jones Seminar for Adults (Chapel) |
 | SUN Sep 17 - 5:30pm | Life Session #1 (Seminar Room) |
