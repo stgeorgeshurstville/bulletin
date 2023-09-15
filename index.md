@@ -4,7 +4,7 @@ title: Welcome
 
 # Sermon Series:
 ## 1 Corinthians: To the Glory of God Alone 
-### Freedom to Love
+### Giving up your rights
 
 
 ![Screenshot 2023-07-21 at 3 47 23 pm](https://github.com/stgeorgeshurstville/bulletin/assets/119166299/2d95947e-b2b1-44b5-a360-f1dd4a4d7efe)
