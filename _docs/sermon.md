@@ -7,34 +7,41 @@ order: 1
 ## Bible Reading
 
 ### Prayer
-Heavenly Father, give us faith to receive your word, understanding to know what it means, and the will to put it into practice; through Jesus Christ our Lord. Amen.
+Gracious Lord, you have caused all holy scriptures to be written for our learning: help us so to hear them, read, mark, learn, and inwardly digest them, that, encouraged and supported by your holy Word, we may embrace and always hold fast the joyful hope of everlasting life, which you have given us in our Saviour Jesus Christ. 
 **Amen.**
 
 
-### 1 Corinthians 8
+### 1 Corinthians 9:1-23 (NIV)
 
-**Concerning Food Sacrificed to Idols**
+**Paul’s Rights as an Apostle**
 
-⁸ Now about food sacrificed to idols: We know that “We all possess knowledge.” But knowledge puffs up while love builds up. ² Those who think they know something do not yet know as they ought to know. ³ But whoever loves God is known by God. 
+Am I not free? Am I not an apostle? Have I not seen Jesus our Lord? Are you not the result of my work in the Lord? ² Even though I may not be an apostle to others, surely I am to you! For you are the seal of my apostleship in the Lord.
 
-⁴ So then, about eating food sacrificed to idols: We know that “An idol is nothing at all in the world” and that “There is no God but one.” ⁵ For even if there are so-called gods, whether in heaven or on earth (as indeed there are many “gods” and many “lords”), ⁶ yet for us there is but one God, the Father, from whom all things came and for whom we live; and there is but one Lord, Jesus Christ, through whom all things came and through whom we live.
+³ This is my defense to those who sit in judgment on me. ⁴ Don’t we have the right to food and drink? ⁵ Don’t we have the right to take a believing wife along with us, as do the other apostles and the Lord’s brothers and Cephas ? ⁶ Or is it only I and Barnabas who lack the right to not work for a living?
 
-⁷ But not everyone possesses this knowledge. Some people are still so accustomed to idols that when they eat sacrificial food they think of it as having been sacrificed to a god, and since their conscience is weak, it is defiled. ⁸ But food does not bring us near to God; we are no worse if we do not eat, and no better if we do.
+⁷ Who serves as a soldier at his own expense? Who plants a vineyard and does not eat its grapes? Who tends a flock and does not drink the milk? ⁸ Do I say this merely on human authority? Doesn’t the Law say the same thing? ⁹ For it is written in the Law of Moses: “Do not muzzle an ox while it is treading out the grain.” Is it about oxen that God is concerned? ¹⁰ Surely he says this for us, doesn’t he? Yes, this was written for us, because whoever plows and threshes should be able to do so in the hope of sharing in the harvest. ¹¹ If we have sown spiritual seed among you, is it too much if we reap a material harvest from you? ¹² If others have this right of support from you, shouldn’t we have it all the more?
 
-⁹ Be careful, however, that the exercise of your rights does not become a stumbling block to the weak. ¹⁰ For if someone with a weak conscience sees you, with all your knowledge, eating in an idol’s temple, won’t that person be emboldened to eat what is sacrificed to idols? ¹¹ So this weak brother or sister, for whom Christ died, is destroyed by your knowledge. ¹² When you sin against them in this way and wound their weak conscience, you sin against Christ. ¹³ Therefore, if what I eat causes my brother or sister to fall into sin, I will never eat meat again, so that I will not cause them to fall.
+But we did not use this right. On the contrary, we put up with anything rather than hinder the gospel of Christ.
+
+¹³ Don’t you know that those who serve in the temple get their food from the temple, and that those who serve at the altar share in what is offered on the altar? ¹⁴ In the same way, the Lord has commanded that those who preach the gospel should receive their living from the gospel.
+
+¹⁵ But I have not used any of these rights. And I am not writing this in the hope that you will do such things for me, for I would rather die than allow anyone to deprive me of this boast. ¹⁶ For when I preach the gospel, I cannot boast, since I am compelled to preach. Woe to me if I do not preach the gospel! ¹⁷ If I preach voluntarily, I have a reward; if not voluntarily, I am simply discharging the trust committed to me. ¹⁸ What then is my reward? Just this: that in preaching the gospel I may offer it free of charge, and so not make full use of my rights as a preacher of the gospel.
+
+**Paul’s Use of His Freedom**
+¹⁹ Though I am free and belong to no one, I have made myself a slave to everyone, to win as many as possible. ²⁰ To the Jews I became like a Jew, to win the Jews. To those under the law I became like one under the law (though I myself am not under the law), so as to win those under the law. ²¹ To those not having the law I became like one not having the law (though I am not free from God’s law but am under Christ’s law), so as to win those not having the law. ²² To the weak I became weak, to win the weak. I have become all things to all people so that by all possible means I might save some. ²³ I do all this for the sake of the gospel, that I may share in its blessings.
+
 
 ## Sermon Outline
-1. Can we…
+Freedom is good but….
 
-2. We can eat food offered to idols but…
+Not a sour grape
 
-3. Knowledge puffs up. 
+No hindrance to the Gospel 
 
-4. It’s more about being known rather than what we know. 
+The principle 
 
-5. Love builds up. 
-   - It seeks to not stumble others.
-   - It’s willing to give up to build up.   
+Freedom v Love 
+ 
 
 ## Q&A
 Got questions or comments? Send them [here](https://tinyurl.com/SGHACQuestionsAnswers)
