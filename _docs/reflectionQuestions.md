@@ -5,40 +5,38 @@ order: 6
 
 ### Big Idea: 
 
-Being known by God allows us to know what’s right and more importantly to love (which may involve giving up our rights)
+Love is better than being free.  
 
 
 
 ### Questions:
 
-1. What tricky situations have you been in where there doesn’t seem to be a clear right or wrong answer? 
+1. What is Paul saying in vv.1-12a?
 
-2. What’s the difference between a Christian who as a weak conscience and one who has a strong conscience? 
+   What is Paul’s relationship with the Corinthians? What does this mean?
 
-3. Is knowledge good? 
+   What does Paul appeal to to establish his rights/freedom?
 
-4. How can knowledge be bad? 
+   God cares for all his creatures - animals and people. How might we muzzle the ox while its treading in our consumption habits?
 
-5. Have you ever used knowledge in an unloving way or to boast yourself up? 
+   60-70% of the church Budget is for the stipend of those who preach the Gospel to and teach the Bible to us. Do we see our offertory as gifts of generosity or paying what we owe? How should this change the way you give? 
 
-6. What’s so good about being known by God? 
+2.  Why is Paul telling the Corinthians that he has a right of support from them? Vv.12b-18
+   
+    The  why’ of Paul setting aside his right is important. What is the reason? 
 
-7. When is an issue a core and central one (indisputable) where we must be united or a secondary and more superficial one (disputable) where we can differ? 
 
-8. What would you do in these situations?
-      - Your relative invites you to their wedding to celebrate and formalise their same sex relationship.
-      - Your Muslim friend invites you to celebrate the end of Ramadan with their family.
-      - Your Christian friend says that they don’t have to go to Church or small groups regularly.
-      - Your Christian friend is planning to accept an accounting job for a gambling company.
-      - Your school is telling all students to wear purple and make a donation on Purple Day to support LGBTIQ+.
-      - Your work is having a raffle to raise money to support transgenderism.
-      - Your aunt just passed away and her funeral will be done according to Buddhist rituals.
-      - Your friend’s bucks will involve visiting a strip club.
-      - Your non-Christian friend has a cigar and offers you one after the Church Service. 
+3. Paul outlines the principle he uses in vv.19-23. Please try to put it in your own words.
+   
+   Why is the principle not to be sinful or become like the world? If not, what is Paul saying?
 
-9. What guides Paul’s decision to not eat food offered to idols? 
+   Why is the principle not Gospel utilitarianism (the end justifies the means)? What happens when we operate on Gospel utilitarianism?
 
-10. What rights (privileges, freedom, opportunities, hobbies, lifestyle, choices etc.) do you cherish? How willing are you to give this up for others? What would it look like? 
+   What then is the principle?
+
+   Why do we have to choose between freedom and love? 
+
+4. How are our preferences and comfort hindering others from knowing Jesus and growing in holiness? What are you prepared to set aside/give up in order to love others? 
 
 
 
