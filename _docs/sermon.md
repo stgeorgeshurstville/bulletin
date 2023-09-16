@@ -28,6 +28,7 @@ But we did not use this right. On the contrary, we put up with anything rather t
 ¹⁵ But I have not used any of these rights. And I am not writing this in the hope that you will do such things for me, for I would rather die than allow anyone to deprive me of this boast. ¹⁶ For when I preach the gospel, I cannot boast, since I am compelled to preach. Woe to me if I do not preach the gospel! ¹⁷ If I preach voluntarily, I have a reward; if not voluntarily, I am simply discharging the trust committed to me. ¹⁸ What then is my reward? Just this: that in preaching the gospel I may offer it free of charge, and so not make full use of my rights as a preacher of the gospel.
 
 **Paul’s Use of His Freedom**
+
 ¹⁹ Though I am free and belong to no one, I have made myself a slave to everyone, to win as many as possible. ²⁰ To the Jews I became like a Jew, to win the Jews. To those under the law I became like one under the law (though I myself am not under the law), so as to win those under the law. ²¹ To those not having the law I became like one not having the law (though I am not free from God’s law but am under Christ’s law), so as to win those not having the law. ²² To the weak I became weak, to win the weak. I have become all things to all people so that by all possible means I might save some. ²³ I do all this for the sake of the gospel, that I may share in its blessings.
 
 
