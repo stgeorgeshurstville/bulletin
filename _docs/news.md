@@ -8,10 +8,6 @@ order: 4
 | Date | Event |
 | ----- | ----- |
 | **SEPTEMBER** | |
-| SUN Sep 10 - 11am | Introduction Session (124 Forest Road) |
-| SUN Sep 10 - 5:30pm | Introduction Session (Seminar Room) |
-| FRI Sep 15 - 6:30-8pm | Dr Rev. Marshall Ballantine-Jones Seminar for Parents (Seminar Room) |
-| SAT Sep 16 - 10-12am | [Ladies Brunch & Prayers](https://stgeorgeshurstville.org.au/ladies-brunch-prayers) |
 | SUN Sep 17 - 11am | Life Session #1 (124 Forest Road) |
 | SUN Sep 17 - 2-3:30pm | Dr Rev. Marshall Ballantine-Jones Seminar for Adults (Chapel) |
 | SUN Sep 17 - 5:30pm | Life Session #1 (Seminar Room) |
@@ -23,8 +19,11 @@ order: 4
 | SUN Oct 1 - 5:30pm | Life Session #3 (Seminar Room) |
 | SUN Oct 8 - 11am | Life Session #4 (124 Forest Road) |
 | SUN Oct 8 - 5:30pm | Life Session #4 (Seminar Room) |
+| WED Oct 11 | English Classes restarts |
+| FRI Oct 13 | Youth Group restarts |
 | SUN Oct 15 - 11am | Life Session #5 (124 Forest Road) |
 | SUN Oct 15 - 5:30pm | Life Session #5 (Seminar Room) |
+| MON Oct 16 | English Discipleship Groups restarts this week |
 | FRI Oct 20 - 5:30-7:30pm | Dr Rev. Marshall Ballantine-Jones Seminar for Youths (Hall) |
 | SUN Oct 22 | Baptism |
 | **NOVEMBER** | |
@@ -32,15 +31,15 @@ order: 4
 | SAT Nov 18 | St Georges visits Berkeley Life Center |
 
 ## General
+- **Mid Autumn Festival Celebration:** Our Mandarin congregations will organise a Mid Autumn Festival Celebration on 30 September (Saturday) at 5pm in the chapel. The aim is to use this event to invite our Mandarin speaking non-Christian friends and family to come and hear the good news of Jesus. Hardcopy and electronic versions of the invitations are now available.
 
-- **NEW 4pm NewGen Children Ministry:**
- Some practicalities to be aware of:
-    - The Family Spot (segment to help the whole church family and give us language to speak about Jesus to kids) will take place in the 4pm English Service each week except for the 1st week of each month where it will take place in the 4pm Mandarin Service instead.
-    - Parents will need to register and sign in their kids with one of the Kids Leaders when they arrive in service and sign out their kids from their group’s rooms.
-    - Toddlers Time/Creche (0-4 years old) will take place in the Playgroup Room and 4pm NewGen (Preschool-Year 6) will take place in the Seminar Room.
+- **Berkeley Trip:** We’ll be visiting again on Sat the 23rd of Sep. Please let Rev. Lam know if you would like to come and give out food to people in need, help with the Op Shop and chat with people, mow lawns for people who aren’t able to and see what ministry is like. This is a message from them about their and our recent visits: “Recently Wayne preached at around 10 services (3 with a translator) at the very large St. George’s Hurstville. A few days later a small group of BLC supporters from Hurstville travelled down to Berkeley with literally boots full of groceries with some of the largest bags of rice you have ever seen. They also spent a couple of hours doing Adopt A Block and then headed home. We say thank you to them and to everyone at Hurstville.”
+
+- **Mission Partner:** We’ll be hearing from Mel Wang (our new mission partner from AAC) next Sunday.
+  
+- **NewGen ministries** term 3 finishes on 17 September. Everyone, young and old, are welcomed to join us at the **All-Gen Services** on 24 September, 1 October and 8 October in the 9:30 English, 11am Mandarin and 4pm English services. Term 4 will resume on the 15 October. 
+
 - **Life Quarterly Spring Edition:**  We're thrilled to announce that the latest edition of our [church magazine](https://stgeorgeshurstville.org.au/life) is now published and available for your reading pleasure! You can read in both digital and hard copy formats. Dive into its pages to discover stories, insights, and updates from our church community. Happy reading!
-
-- **Introduction:** If you are new or would like to find out more about our church, please come to our Introduction Session. It’ll be on Sunday 10th of Sep at 11am (124 Forest Road) and 5:30pm (Seminar Room).  
 
 - **LIFE:** Want to know more about living life to the full? Come to our 5 week session starting on Sunday 17th Sep (11am @ 124 Forest Road and 5:30pm @ Seminar Room).  
 
@@ -55,17 +54,12 @@ order: 4
  
   Our staff and volunteer leaders will be available during the session and afterwards for ongoing support. 
 
-- **Pastoral Care and Support:** Please read this article by Tim Keller for an overview of a [Christian sexual ethics](https://www.christ2rculture.com/resources/Ministry-Blog/The-Gospel-and-Sex-by-Tim-Keller.pdf) 
-If you need support as a result of the subject matter raised over the few weeks on love, sex and marriage please talk to one of the staff (Alan, Brian or Glorya at 930am and Cate at 4pm). 
-
-- **Singleness and Dating: Great resources:**
-  - Single Minded ministry with great talks and other resources [here](https://www.singleminded.community/). 
-  - Living Out [here](https://www.livingout.org/).  
-  - On dating [here](https://ccl.moore.edu.au/resources/podcast-episode-069/). 
-  - For Youths [here](https://youthworksmedia.net/products/teen-sex-by-the-book).
-
-
-
+- **Ministries:**  
+  - Youth will start up again on 13th of Oct.
+  - English Classes will start up again on 11th of Oct.
+  -  English Discipleship Groups: The last day of this term is Sun the 24th Sep. Term 4 starts on the week of Monday the 16th of Oct. Some groups may operate differently. Please talk to your leader for more information.
+  -   NewGen
+  -   All Generations
 
 - **Growing in our welcoming:**
 
