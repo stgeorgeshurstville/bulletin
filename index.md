@@ -4,16 +4,16 @@ title: Welcome
 
 # Sermon Series:
 ## 1 Corinthians: To the Glory of God Alone 
-### Giving up your rights
+### Flirting with idolatry
 
 
 ![Screenshot 2023-07-21 at 3 47 23 pm](https://github.com/stgeorgeshurstville/bulletin/assets/119166299/2d95947e-b2b1-44b5-a360-f1dd4a4d7efe)
 
 ---
-#### Let the hearts of those who seek the Lord rejoice. Seek the Lord and his strength, seek his presence continually.
+#### Thus says the Lord: There is no other god besides me, a righteous God and Saviour, turn to me and be saved, all the ends of the earth. 
 
 
-##### Psalm 105.3-4
+##### Isaiah 45.21,22
 
 ---
 - We are gathering in person! For people who can’t gather in person, you can watch online [here](https://stgeorgeshurstville.org.au/sunday-english-online)
