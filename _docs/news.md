@@ -34,6 +34,8 @@ order: 4
 ## General
 - **Mid Autumn Festival Celebration:** Our Mandarin congregations will organise a Mid Autumn Festival Celebration on 30 September (Saturday) at 5pm in the chapel. The aim is to use this event to invite our Mandarin speaking non-Christian friends and family to come and hear the good news of Jesus. Hardcopy and electronic versions of the invitations are now available.
 
+- **Redevelopment**
+
 - **Libya Flood:** At least 11000 have died and 30000 have been displaced. ARDFA is collecting donations to give out water, food, clothing, blankets, shelter and medical assistance to flood survivors. This will be done through an Anglican church in Libya in partnership with the Anglican Province of Alexandria. More information and to donate here: https://ardfa.org.au/libya-flood
 
 - **Life Quarterly Spring Edition:**  We're thrilled to announce that the latest edition of our [church magazine](https://stgeorgeshurstville.org.au/life) is now published and available for your reading pleasure! You can read in both digital and hard copy formats. Dive into its pages to discover stories, insights, and updates from our church community. Happy reading!
