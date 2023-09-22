@@ -7,41 +7,45 @@ order: 1
 ## Bible Reading
 
 ### Prayer
-Gracious Lord, you have caused all holy scriptures to be written for our learning: help us so to hear them, read, mark, learn, and inwardly digest them, that, encouraged and supported by your holy Word, we may embrace and always hold fast the joyful hope of everlasting life, which you have given us in our Saviour Jesus Christ. 
+Thank you Father for making yourself known to us, showing us the way of salvation through faith in your Son. We ask you now to teach us through your word, so that we may be ready to serve you, for the glory of our Lord Jesus Christ. Amen. 
+
 **Amen.**
 
 
-### 1 Corinthians 9:1-23 (NIV)
+### 1 Corinthians 9:24-11:1 (NIV)
 
-**Paul’s Rights as an Apostle**
+**The Need for Self-Discipline**
 
-Am I not free? Am I not an apostle? Have I not seen Jesus our Lord? Are you not the result of my work in the Lord? ² Even though I may not be an apostle to others, surely I am to you! For you are the seal of my apostleship in the Lord.
+²⁴ Do you not know that in a race all the runners run, but only one gets the prize? Run in such a way as to get the prize. ²⁵ Everyone who competes in the games goes into strict training. They do it to get a crown that will not last, but we do it to get a crown that will last forever. ²⁶ Therefore I do not run like someone running aimlessly; I do not fight like a boxer beating the air. ²⁷ No, I strike a blow to my body and make it my slave so that after I have preached to others, I myself will not be disqualified for the prize.
 
-³ This is my defense to those who sit in judgment on me. ⁴ Don’t we have the right to food and drink? ⁵ Don’t we have the right to take a believing wife along with us, as do the other apostles and the Lord’s brothers and Cephas ? ⁶ Or is it only I and Barnabas who lack the right to not work for a living?
+**Warnings From Israel’s History**
 
-⁷ Who serves as a soldier at his own expense? Who plants a vineyard and does not eat its grapes? Who tends a flock and does not drink the milk? ⁸ Do I say this merely on human authority? Doesn’t the Law say the same thing? ⁹ For it is written in the Law of Moses: “Do not muzzle an ox while it is treading out the grain.” Is it about oxen that God is concerned? ¹⁰ Surely he says this for us, doesn’t he? Yes, this was written for us, because whoever plows and threshes should be able to do so in the hope of sharing in the harvest. ¹¹ If we have sown spiritual seed among you, is it too much if we reap a material harvest from you? ¹² If others have this right of support from you, shouldn’t we have it all the more?
+10 For I do not want you to be ignorant of the fact, brothers and sisters, that our ancestors were all under the cloud and that they all passed through the sea. ² They were all baptized into Moses in the cloud and in the sea. ³ They all ate the same spiritual food ⁴ and drank the same spiritual drink; for they drank from the spiritual rock that accompanied them, and that rock was Christ. ⁵ Nevertheless, God was not pleased with most of them; their bodies were scattered in the wilderness.
 
-But we did not use this right. On the contrary, we put up with anything rather than hinder the gospel of Christ.
+⁶ Now these things occurred as examples to keep us from setting our hearts on evil things as they did. ⁷ Do not be idolaters, as some of them were; as it is written: “The people sat down to eat and drink and got up to indulge in revelry.” ⁸ We should not commit sexual immorality, as some of them did—and in one day twenty-three thousand of them died. ⁹ We should not test Christ, as some of them did—and were killed by snakes. ¹⁰ And do not grumble, as some of them did—and were killed by the destroying angel.
 
-¹³ Don’t you know that those who serve in the temple get their food from the temple, and that those who serve at the altar share in what is offered on the altar? ¹⁴ In the same way, the Lord has commanded that those who preach the gospel should receive their living from the gospel.
+¹¹ These things happened to them as examples and were written down as warnings for us, on whom the culmination of the ages has come. ¹² So, if you think you are standing firm, be careful that you don’t fall! ¹³ No temptation has overtaken you except what is common to mankind. And God is faithful; he will not let you be tempted beyond what you can bear. But when you are tempted, he will also provide a way out so that you can endure it.
 
-¹⁵ But I have not used any of these rights. And I am not writing this in the hope that you will do such things for me, for I would rather die than allow anyone to deprive me of this boast. ¹⁶ For when I preach the gospel, I cannot boast, since I am compelled to preach. Woe to me if I do not preach the gospel! ¹⁷ If I preach voluntarily, I have a reward; if not voluntarily, I am simply discharging the trust committed to me. ¹⁸ What then is my reward? Just this: that in preaching the gospel I may offer it free of charge, and so not make full use of my rights as a preacher of the gospel.
+**Idol Feasts and the Lord’s Supper**
 
-**Paul’s Use of His Freedom**
+¹⁴ Therefore, my dear friends, flee from idolatry. ¹⁵ I speak to sensible people; judge for yourselves what I say. ¹⁶ Is not the cup of thanksgiving for which we give thanks a participation in the blood of Christ? And is not the bread that we break a participation in the body of Christ? ¹⁷ Because there is one loaf, we, who are many, are one body, for we all share the one loaf.
 
-¹⁹ Though I am free and belong to no one, I have made myself a slave to everyone, to win as many as possible. ²⁰ To the Jews I became like a Jew, to win the Jews. To those under the law I became like one under the law (though I myself am not under the law), so as to win those under the law. ²¹ To those not having the law I became like one not having the law (though I am not free from God’s law but am under Christ’s law), so as to win those not having the law. ²² To the weak I became weak, to win the weak. I have become all things to all people so that by all possible means I might save some. ²³ I do all this for the sake of the gospel, that I may share in its blessings.
+¹⁸ Consider the people of Israel: Do not those who eat the sacrifices participate in the altar? ¹⁹ Do I mean then that food sacrificed to an idol is anything, or that an idol is anything? ²⁰ No, but the sacrifices of pagans are offered to demons, not to God, and I do not want you to be participants with demons. ²¹ You cannot drink the cup of the Lord and the cup of demons too; you cannot have a part in both the Lord’s table and the table of demons. ²² Are we trying to arouse the Lord’s jealousy? Are we stronger than he?
+
+**The Believer’s Freedom**
+²³ “I have the right to do anything,” you say—but not everything is beneficial. “I have the right to do anything”—but not everything is constructive. ²⁴ No one should seek their own good, but the good of others.
+
+²⁵ Eat anything sold in the meat market without raising questions of conscience, ²⁶ for, “The earth is the Lord’s, and everything in it.” 
+
+²⁷ If an unbeliever invites you to a meal and you want to go, eat whatever is put before you without raising questions of conscience. ²⁸ But if someone says to you, “This has been offered in sacrifice,” then do not eat it, both for the sake of the one who told you and for the sake of conscience. ²⁹ I am referring to the other person’s conscience, not yours. For why is my freedom being judged by another’s conscience? ³⁰ If I take part in the meal with thankfulness, why am I denounced because of something I thank God for?
+
+³¹ So whether you eat or drink or whatever you do, do it all for the glory of God. ³² Do not cause anyone to stumble, whether Jews, Greeks or the church of God— ³³ even as I try to please everyone in every way. For I am not seeking my own good but the good of many, so that they may be saved. 
+
+11  ¹ Follow my example, as I follow the example of Christ.
 
 
 ## Sermon Outline
-Freedom is good but….
 
-Not a sour grape
-
-No hindrance to the Gospel 
-
-The principle 
-
-Freedom v Love 
  
 
 ## Q&A
