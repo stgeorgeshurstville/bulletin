@@ -33,6 +33,7 @@ Thank you Father for making yourself known to us, showing us the way of salvatio
 ¹⁸ Consider the people of Israel: Do not those who eat the sacrifices participate in the altar? ¹⁹ Do I mean then that food sacrificed to an idol is anything, or that an idol is anything? ²⁰ No, but the sacrifices of pagans are offered to demons, not to God, and I do not want you to be participants with demons. ²¹ You cannot drink the cup of the Lord and the cup of demons too; you cannot have a part in both the Lord’s table and the table of demons. ²² Are we trying to arouse the Lord’s jealousy? Are we stronger than he?
 
 **The Believer’s Freedom**
+
 ²³ “I have the right to do anything,” you say—but not everything is beneficial. “I have the right to do anything”—but not everything is constructive. ²⁴ No one should seek their own good, but the good of others.
 
 ²⁵ Eat anything sold in the meat market without raising questions of conscience, ²⁶ for, “The earth is the Lord’s, and everything in it.” 
