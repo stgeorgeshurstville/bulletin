@@ -36,7 +36,7 @@ order: 4
 
 - **Redevelopment**
 
-- **Libya Flood:** At least 11000 have died and 30000 have been displaced. ARDFA is collecting donations to give out water, food, clothing, blankets, shelter and medical assistance to flood survivors. This will be done through an Anglican church in Libya in partnership with the Anglican Province of Alexandria. More information and to donate here: https://ardfa.org.au/libya-flood
+- **Libya Flood:** At least 11000 have died and 30000 have been displaced. ARDFA is collecting donations to give out water, food, clothing, blankets, shelter and medical assistance to flood survivors. This will be done through an Anglican church in Libya in partnership with the Anglican Province of Alexandria. More information and to [donate here](https://ardfa.org.au/libya-flood)
 
 - **Life Quarterly Spring Edition:**  We're thrilled to announce that the latest edition of our [church magazine](https://stgeorgeshurstville.org.au/life) is now published and available for your reading pleasure! You can read in both digital and hard copy formats. Dive into its pages to discover stories, insights, and updates from our church community. Happy reading!
 
@@ -45,14 +45,8 @@ order: 4
 - **Ministries:**  
   - Youth will start up again on 13th of Oct.
   - English Classes will start up again on 11th of Oct.
-  -  English Discipleship Groups: The last day of this term is Sun the 24th Sep. Term 4 starts on the week of Monday the 16th of Oct. Some groups may operate differently. Please talk to your leader for more information.
-  -   NewGen ministries term 3 finishes on 17 September. Everyone, young and old, are welcomed to join us at the All-Gen Services on 24 September, 1 October and 8 October in the 9:30 English, 11am Mandarin and 4pm English services. Term 4 will resume on the 15 October. 
-
-- **Local High School Scripture:** You can sign up for prayer updates at https://www.hurstvillesre.com/become-a-supporter. You can partner financially by giving to the following account:
-  - Account Name: Christian Education Board for Hurstville High Schools
-  - BSB: 124001
-  - Account Number: 22801395
-  - Description: Your Name 
+  - English Discipleship Groups: The last day of this term is Sun the 24th Sep. Term 4 starts on the week of Monday the 16th of Oct. Some groups may operate differently. Please talk to your leader for more information.
+  - NewGen ministries term 3 finishes on 17 September. Everyone, young and old, are welcomed to join us at the All-Gen Services on 24 September, 1 October and 8 October in the 9:30 English, 11am Mandarin and 4pm English services. Term 4 will resume on the 15 October. 
 
 - **Leave:** Rev. Lam will be away for 1 week until 2nd Oct. Please contact the office or the other pastoral staff if you need assistance. 
 
