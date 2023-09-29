@@ -3,7 +3,7 @@ title: Sermon
 order: 1
 ---
 
-### Freedom to Love
+### Should women cover their heads? 
 ## Bible Reading
 
 ### Prayer
