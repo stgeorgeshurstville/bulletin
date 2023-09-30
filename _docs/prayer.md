@@ -22,27 +22,16 @@ order: 3
 - Others can be found [here](https://stgeorgeshurstville.org.au/prayer) 
 
 ## Mission Partners
-- **Mellisa Wang:** We praise you for the people from different nations coming to Adelaide University. May they not only settle well but more importantly find their citizenship in heaven. We praise you for giving Mellisa the desire and means to share the gospel with others. We thank you that students have heard about and some have trusted in Jesus. Please keep sustaining Mellisa in godliness, strength and wisdom as she keeps sharing the good news.
-- **Local High School Scripture with Aywan:** Loving Father, we thank you that you want all people to come to a saving knowledge of you. We ask that the high schoolers in our area (especially at Hurstville Boys, Sydney Tech and Oatley High) will see Jesus as the way, the truth and the life. May you help students to find their identity and security in Jesus particularly when things get busy, life doesn’t work out as planned and things may seem confusing and meaningless. We pray that Aywan Suleiman will passionately and faithfully teach and model the gospel of love to the students and the people around him. We praise you for allowing a group at Oatley to start up. We ask that you’ll grow the number of students who get to hear about Jesus especially the Year 7 cohort at Hurstville Boys. May there be good communication, planning and relationships to facilitate this. We praise you that the high school scripture internship program is now available. May people be generous towards this. May a suitable person be raised up and trained for this ministry.
-- **Papua New Guinea and Mathys:** Father God, we realise that all flesh is like grass yet your word remains forever. We ask that you will use the Mathys and other bible translators to transform PNG for Jesus with your precious and powerful word. We pray that Petra, Andi and Jakob will keep growing in Christ and being missional. May the 17 million people in PNG come to know Christ as their Lord and Saviour. Please help the locals to cope with the rising cost of living and uncertainties about the future. 
+- Persecuted Christians 
+- Compassion
 - [You can go here for more information on how to pray, support and give](https://stgeorgeshurstville.org.au/mission-partners).
 
 ## Regular Prayer Points
 
-- **Hurstville:** We pray that the 30,000 people in Hurstville, with many from different cultures and countries, will come to know Jesus as their Lord and Saviour. May we have a heart for the people you have placed around us. May we be lights in our neighbourhood which is in darkness and filled with anxiety and uncertainty. May we be mindful of the changing demographics and seek to share the gospel with them. May Chris Minns (NSW Premier and Legislative Assembly Member for Kogarah), Linda Burney (House Representative for Barton), David Coleman (House Representative for Banks) and Nick Katris (Mayor) know God as the one with ultimate authority and serve with love, justice and wisdom. 
-
-- **Discipleship Groups:** Pray that the seed of God’s word will be planted and watered this term. May we have clear direction, wisdom and discipline as we rebuild our discipleship ministry and represent Jesus. May we keep growing up, deep and out whilst a number of the D Gruops have a break. 
-
-
-- **Pastoral Care Team:** Father, we pray for those planning for marriage and those newly married couple. We pray that they experience your love through building a new family in Christ. Help them to adjust to the new life of living together and they learn how to love each other. We pray for the HSC students that they can focus on studying. We pray that their parents support them by praying and caring for them. You guide these youth that they learn how our Lord is gracious to them and they submit their future in following Christ. 
-
-
-- **People with Disabilities:** Lord, thank you that all people are made in your image. We pray for those with disabilities that they would know their true value as your image-bearer. We pray that your love in Jesus will heal them of their experience and rejection and pain. We pray that they will know of Jesus’ sufficiency in their experience of chronic pain and suffering, that they will learn to form deep relationships and friendship. We pray for forgiveness for the ways that we have often treated people with disabilities. Please help us to be like Jesus in welcoming those with disabilities into our church and lives. Please open our eyes to see them as whole human beings. Please help us to learn from those with disabilities as well as minister to them. We pray that by our love for one another, the world may see you. We look forward to the day when Jesus returns, when we will be given Resurrection bodies. Amen.
-
-**Support Ministries:** Everlasting God, we give thanks for the many volunteers who have been faithfully serving in different ministries at church. Please strengthen and sustain them with patience and understanding that they may love and care for your people. Please grant that together they may follow and help others to follow Jesus Christ. May they offer their given gifts and talents to build up the church which is the body of Christ. We ask this for the communication, vestry, cleaning, flower, bulletin, meals, tea, AV, sound, technology, repair & maintenance, and other teams. 
-
-**New Life Nepalese Church:** We thank you for our Nepalese brothers and sisters who share our building. May they grow in their knowledge of your love for them and continue to speak the truth in love to their community. We praise you for how people have responded as they preached the gospel at Hurstville train station each Monday. We pray that through their ministry, many more Nepalese would come to know and serve the Lord Jesus Christ.
-
-**Singles, Widows and Orphans:** We praise you, God of love and the creator of the universe, for making us male and female, and giving us the gift of each other. We pray for those who, like our Lord Jesus Christ, are unmarried; either by external factors, their own decision and/or devotion to you. Lord, we praise you for the new family you have created, the household of all who believe in your Son. Father, help us to love one another in deep and meaningful friendships that no one may feel alone or without the joy of companionship. Deepen our trust in your provision for all our needs so that we may live in contentment until we all come to your eternal kingdom; through Jesus Christ our Lord.
+- Redevelopment
+- Sunday Services: bible readers, service leaders, music, welcoming etc.
+- Staff & Parish Council
+- English Services 
+- Families 
 
 
