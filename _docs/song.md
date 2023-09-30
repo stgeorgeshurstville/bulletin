@@ -12,7 +12,7 @@ order: 2
 ## 4pm 
 1. He died upon the cross
 2. I cannot tell
-3. All glory be to Christ
-4. 
+3. I cannot tell
+4. N/A
    
 Check out the church spotify playlist [here](https://open.spotify.com/playlist/3gh0ZKXkJBDbNEnZqJJDXj?si=0908aa3f87544643)
