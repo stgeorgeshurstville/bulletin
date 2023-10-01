@@ -7,11 +7,6 @@ order: 4
 
 | Date | Event |
 | ----- | ----- |
-| **SEPTEMBER** | |
-| SUN Sep 24 - 11am | Life Session #2 (124 Forest Road) |
-| SUN Sep 24 - 5:30pm | Life Session #2 (Seminar Room) |
-| SUN Sep 24 | All-Gen Services |
-| SAT Sep 30 - 5pm | Mid Autumn Festival Celebration |
 | **OCTOBER** | |
 | SUN Oct 1 - 11am | Life Session #3 (124 Forest Road) |
 | SUN Oct 1 - 5:30pm | Life Session #3 (Seminar Room) |
