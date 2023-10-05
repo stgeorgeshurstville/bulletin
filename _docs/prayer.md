@@ -7,11 +7,12 @@ order: 3
 
 - **Lord’s Prayer:** Our Father in heaven, hallowed be your name, your kingdom come, your will be done on earth as in heaven. Give us today our daily bread. Forgive us our sins as we forgive those who sin against us. Lead us not into temptation, but deliver us from evil. For the kingdom, the power, and the glory are yours now and forever.
 
-- **Collect:** Lord, we pray that your grace may always uphold and encourage us, and make us continually to be given to all good works; through Jesus Christ our Lord. Amen.
+- **Collect:** Lord, give your people grace to withstand the temptations of the world, the flesh, and the devil, and with pure hearts and minds to follow you the only God; through Jesus Christ our Lord. Amen.
 
-- **Our mission:** Our gracious Father, thank you for the privilege of calling us to join in your mission. Thank you that under you what we do makes a difference in the world. We pray therefore that you will save those around us and to transform them into the likeness of Jesus. Please use us to make disciples of the nations, love our neighbours. Please Father, glorify yourself, through our labour in your Son. We pray that we will not be consumers but contributors to the ministries that you have called us to. 
+- **Growing Up:** Heavenly Father, we trust your love, grace and acceptance, and that you created and saved us to live for your glory. We trust in your Son Jesus Christ as the saviour of the world, and your gospel as your power for salvation for all who believe. We trust in your Son Jesus Christ as the holy, loving, powerful and generous saviour, head, lord, and judge of St George’s. We trust you as the just judge of all people, and that you will bring glory to yourself through our church and in Christ Jesus. Forgive us in living for trivial happiness and false securities rather than holiness. We pray that we will die to sin every day and live for righteousness; that we will deny ourselves, take up our cross and follow Jesus every day. 
 
-- **Church Sermon:** Dear God, We are sorry that we don’t love and serve one another, but we fight and compete against one another. Thank you that Jesus has come and saved us. Thank you that Jesus will put the world to the right side up. Help us to show what Jesus has done in the way we relate to one another especially as women and men. Please help our men to be more like Jesus in his self-denying service. Please help our women to be more like Jesus in his loving submission to His Father. In Jesus’ name, Amen. 
+
+- **Church Sermon:** 
 
 
 ## Weekly Prayer Points
@@ -22,16 +23,14 @@ order: 3
 - Others can be found [here](https://stgeorgeshurstville.org.au/prayer) 
 
 ## Mission Partners
-- Persecuted Christians 
-- Compassion
-- [You can go here for more information on how to pray, support and give](https://stgeorgeshurstville.org.au/mission-partners).
+- **Berkeley Life Centre:** Heavenly Father, you are patient, not wanting anyone to perish but all to find eternal life. You have placed people in certain times and places so that they may find you. We know that Jesus is gentle and lowly and invites all to cast their burdens upon him. We pray that the people in Berkeley where many are from a low socioeconomic background will cast their burdens on Jesus and find their true treasure in him. May people who are suffering from domestic violence, dealing with the police and justice system, suffering from mental illness, experiencing difficult and dysfunctional relationships and navigating health issues will know that Jesus has come for the sinners and to seek and save the lost. Please sustain Rev. Wayne Pickford and the team as they lead the church to be a light and witness in their community. We praise you for providing Samantha Trotter who will help with the womens and children ministry later in the year. Please pray that Peter Kell’s (Board) health will improve and a suitable replacement be found. Pray for a scripture teacher. Pray for enough money to be raised to buy the building where the Op Shop is. 
+- **CanCare:** Father God, we thank you that you know what it means to face trials and pain and that you can sympathise with our weaknesses. We ask that you’ll use CanCare to support people and their family and friends who are or have suffered the ravages of cancer. Please give them wisdom in how to support this community especially during this uncertain period of COVID. May God bless those suffering from cancer with his peace. May God's salvation come to those who have yet to accept Jesus.
+- **Empowering Everyone with English in Jesus’ Name:** We praise you for the many people groups that are in Hurstville. May we have a heart for them to settle and live well in Australia and more importantly to find their true residence in the New Heaven. May the teachers and volunteers be a model of love and good works as they teach people about Jesus and English. 
+- **Evangelism Teams and Programs:** Gracious Lord, our neighbours are lost and far away from you. We long for the opportunity to proclaim your name. Please give us the eyes to see those whom you have placed before us. Whenever I open my mouth, may words be given to me so that I will fearlessly make known the mystery of the gospel. We pray that as the seeds of the gospel are scattered and planted, that they would land on good soil. Please make them bear fruit, Father. Scare away the crows. Crush the rocks. Strangle the weeds. Instead, give us rich healthy soil ready to receive the seeds of the gospel. In Jesus’ name, we pray. 
+- More information on how to pray, support and give [here](https://stgeorgeshurstville.org.au/mission-partners).
 
 ## Regular Prayer Points
-
-- Redevelopment
-- Sunday Services: bible readers, service leaders, music, welcoming etc.
-- Staff & Parish Council
-- English Services 
-- Families 
-
+- **Australia:** Guide with your wisdom and power the leaders of the nation, so that everyone may live in peace and mutual trust, sharing with justice the resources of the earth. Give the people of this land a spirit of unselfishness, compassion, and fairness in public and private life. May you bring an end to the pandemic so that we might be able to live quiet and peaceful lives in order that people may come to a knowledge of the truth. We pray that you would give our leaders wisdom and a fear of you. We pray that many in our nation who are suffering may find hope, peace, comfort, life and purpose in the gospel of your Son. May Anthony Albanese and Chris Minns lead Australia and NSW well in a time of change and anxiety. 
+- **Nursing Homes and Seniors Ministries**: We thank you Father, that our hope in Jesus cannot be taken from us. We remember those who are living in residential care, those who are living at home and receiving care, those who are providing the care, and their families. We pray for safety and comfort for the aged. We pray for protection for the carers, workers and volunteers from COVID and other dangers. We pray that all will hear and experience the love and peace of Christ.
+- **Cantonese Congregations**
 
