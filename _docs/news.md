@@ -8,9 +8,6 @@ order: 4
 | Date | Event |
 | ----- | ----- |
 | **OCTOBER** | |
-| SUN Oct 1 - 11am | Life Session #3 (124 Forest Road) |
-| SUN Oct 1 - 5:30pm | Life Session #3 (Seminar Room) |
-| SUN Oct 1 | All-Gen Services |
 | SUN Oct 8 - 11am | Life Session #4 (124 Forest Road) |
 | SUN Oct 8 - 5:30pm | Life Session #4 (Seminar Room) |
 | SUN Oct 8 | All-Gen Services |
@@ -27,23 +24,16 @@ order: 4
 | SAT Nov 18 | St Georges visits Berkeley Life Center |
 
 ## General
-- **Mid Autumn Festival Celebration:** Our Mandarin congregations will organise a Mid Autumn Festival Celebration on 30 September (Saturday) at 5pm in the chapel. The aim is to use this event to invite our Mandarin speaking non-Christian friends and family to come and hear the good news of Jesus. Hardcopy and electronic versions of the invitations are now available.
 
-- **Redevelopment**
+- **Baptism:** Baptism is an outward sign of an inward reality and God’s grace towards his people who’ve come to trust in Jesus. Please speak to Rev. Alan if you are interested to be baptised. The dates are 22nd Oct (baptism) and 12th Nov (baptism and confirmation).
 
-- **Libya Flood:** At least 11000 have died and 30000 have been displaced. ARDFA is collecting donations to give out water, food, clothing, blankets, shelter and medical assistance to flood survivors. This will be done through an Anglican church in Libya in partnership with the Anglican Province of Alexandria. More information and to [donate here](https://ardfa.org.au/libya-flood)
-
-- **Life Quarterly Spring Edition:**  We're thrilled to announce that the latest edition of our [church magazine](https://stgeorgeshurstville.org.au/life) is now published and available for your reading pleasure! You can read in both digital and hard copy formats. Dive into its pages to discover stories, insights, and updates from our church community. Happy reading!
-
-- **Baptism:** Baptism is an outward sign of an inward reality and God’s grace towards his people who’ve come to trust in Jesus. Please speak to Rev. Alan if you are interested to be baptised. The dates are 22nd Oct (baptism) and 12th Nov (baptism and confirmation). 
+- **Summary of 2023 Synod** can be viewed [here](https://www.sds.asn.au/sites/default/files/Parish%20Circular.Synod%20Summary.29%20Sept%202023.with%20attachment.pdf?doc_id=NTM1NTI=)    
 
 - **Ministries:**  
   - Youth will start up again on 13th of Oct.
   - English Classes will start up again on 11th of Oct.
   - English Discipleship Groups: The last day of this term is Sun the 24th Sep. Term 4 starts on the week of Monday the 16th of Oct. Some groups may operate differently. Please talk to your leader for more information.
   - NewGen ministries term 3 finishes on 17 September. Everyone, young and old, are welcomed to join us at the All-Gen Services on 24 September, 1 October and 8 October in the 9:30 English, 11am Mandarin and 4pm English services. Term 4 will resume on the 15 October. 
-
-- **Leave:** Rev. Lam will be away for 1 week until 2nd Oct. Please contact the office or the other pastoral staff if you need assistance. 
 
 - **Growing in our welcoming**
 
