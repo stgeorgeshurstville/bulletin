@@ -10,6 +10,8 @@ order: 2
 4. See Him Coming
 
 ## 4pm 
-TBC
+1. Jesus Saves!
+2. Before the Throne of God Above
+3. How Deep the Father’s Love
    
 Check out the church spotify playlist [here](https://open.spotify.com/playlist/3gh0ZKXkJBDbNEnZqJJDXj?si=0908aa3f87544643)
