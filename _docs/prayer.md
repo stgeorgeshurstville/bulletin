@@ -12,7 +12,7 @@ order: 3
 - **Growing Up:** Heavenly Father, we trust your love, grace and acceptance, and that you created and saved us to live for your glory. We trust in your Son Jesus Christ as the saviour of the world, and your gospel as your power for salvation for all who believe. We trust in your Son Jesus Christ as the holy, loving, powerful and generous saviour, head, lord, and judge of St George’s. We trust you as the just judge of all people, and that you will bring glory to yourself through our church and in Christ Jesus. Forgive us in living for trivial happiness and false securities rather than holiness. We pray that we will die to sin every day and live for righteousness; that we will deny ourselves, take up our cross and follow Jesus every day. 
 
 
-- **Church Sermon:** 
+- **Church Sermon:** We praise you for Jesus. He is the true Passover lamb. His body was broken and his blood was shed so that we can be cleansed, forgiven and adopted into your family and also look forward to the new covenant, relationship and feast we’ll have with you. Please help us to remember who Jesus is and what he has done especially during the Lord’s Supper. Sorry for when we only think about ourselves and do this ironically when we participate in Christian activities. Help us to remember that Jesus died for the church which is his body. May we see ourselves as part of this body and do what we can to include and serve everyone including those who may be different or harder to relate with. 
 
 
 ## Weekly Prayer Points
