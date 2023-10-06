@@ -27,6 +27,10 @@ And when I come I will give further directions.
 
 ## Sermon Outline
 ### How to eat at church
+1. The Lord’s Supper for us. 
+2. The Lord’s Supper is about God. 
+3. The Lord’s Supper is about others.     
+
  
 
 ## Q&A
