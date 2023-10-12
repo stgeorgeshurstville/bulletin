@@ -3,8 +3,8 @@ title: Welcome
 ---
 
 # Sermon Series:
-## 1 Corinthians: To the Glory of God Alone 
-### How to eat at church
+## "[Deputation Mission Spot: JC in Asia] 1 Corinthians: To the glory of God alone"
+### Glorify God in your worship - gifts are for building up the body of Christ
 
 
 ![Screenshot 2023-07-21 at 3 47 23 pm](https://github.com/stgeorgeshurstville/bulletin/assets/119166299/2d95947e-b2b1-44b5-a360-f1dd4a4d7efe)
