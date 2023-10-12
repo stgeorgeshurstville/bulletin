@@ -31,15 +31,16 @@ Almighty God, we thank you for the gift of your holy word. May it be a lantern t
 ²⁷ Now you are the body of Christ, and each one of you is a part of it. ²⁸ And God has placed in the church first of all apostles, second prophets, third teachers, then miracles, then gifts of healing, of helping, of guidance, and of different kinds of tongues. ²⁹ Are all apostles? Are all prophets? Are all teachers? Do all work miracles? ³⁰ Do all have gifts of healing? Do all speak in tongues ? Do all interpret? ³¹ Now eagerly desire the greater gifts.
 
 **Love Is Indispensable**
+
 And yet I will show you the most excellent way.
 
 
 ## Sermon Outline
-### How to eat at church
-1. The Lord’s Supper for us. 
-2. The Lord’s Supper is about God. 
-3. The Lord’s Supper is about others.     
-
+### Glorify God in your worship - gifts are for building up the body of Christ
+1. Needing an upstairs  
+2. Make belief v. real  
+3. Showing the upstairs world      
+4. Conclusions 
  
 
 ## Q&A
