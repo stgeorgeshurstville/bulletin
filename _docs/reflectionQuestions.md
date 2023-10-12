@@ -4,17 +4,18 @@ order: 6
 ---
 
 ### Big Idea: 
-The Lord’s Supper is for us and about God and others. 
+We love one another by serving one another. When we do we bring glory to one God, who is Father, son and Spirit. 
 
 ### Questions:
-1. What do you appreciate about God? 
-2. How often do you express your appreciation? 
-3. What should we remember about God? 
-4. What does the Lord’s Supper help us to remember about God and his body? 
-5. What were the Corinthians doing which meant they were doing the exact opposite? 
-6. When have you been selfish especially during Christian related activities? 
-7. When and how have you excluded others especially during Christian related activities? 
-8. How can you serve and share with others especially during Christian related activities?
+1. Paul begins by talking about ‘spirituals’. What is spirituality? What is transcendence and immanence? How are people around us and you searching for transcendence? 
+2. There are two types of spirituality: true and false 12:1-3. What is false/true spirituality? 
+3. Paul turns to talk about spiritual gifts in vv.4-11. 
+- A.What are spiritual gifts? 
+- B.There’s a right and wrong use of spiritual gifts. What are they? 
+- C.The gifts are given for the ‘common good’. What does this mean? 
+- D.Brian might have mentioned that gifts or roles are not to be confused with Fruit. What might he have meant by this? 
+4. Paul then uses the body metaphor to talk about the church in vv.12-31. What is the point that he’s making? 
+5. Ministry is more than just joining a roster but a mindset/way of life. How could you express this mind-set? Do you see any part of the Body that you can help build up? 
 
 
 
