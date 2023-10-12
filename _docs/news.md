@@ -29,12 +29,6 @@ order: 4
 
 - **Summary of 2023 Synod** can be viewed [here](https://www.sds.asn.au/sites/default/files/Parish%20Circular.Synod%20Summary.29%20Sept%202023.with%20attachment.pdf?doc_id=NTM1NTI=)    
 
-- **Ministries:**  
-  - Youth will start up again on 13th of Oct.
-  - English Classes will start up again on 11th of Oct.
-  - English Discipleship Groups: The last day of this term is Sun the 24th Sep. Term 4 starts on the week of Monday the 16th of Oct. Some groups may operate differently. Please talk to your leader for more information.
-  - NewGen ministries term 3 finishes on 17 September. Everyone, young and old, are welcomed to join us at the All-Gen Services on 24 September, 1 October and 8 October in the 9:30 English, 11am Mandarin and 4pm English services. Term 4 will resume on the 15 October. 
-
 - **Growing in our welcoming**
 
   <img width="236" alt="Screenshot 2023-07-01 134203" src="https://github.com/stgeorgeshurstville/bulletin/assets/119166299/b540ac1c-0ba4-481e-90a5-5464939f7e4c">
