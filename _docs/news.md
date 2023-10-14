@@ -8,11 +8,6 @@ order: 4
 | Date | Event |
 | ----- | ----- |
 | **OCTOBER** | |
-| SUN Oct 8 - 11am | Life Session #4 (124 Forest Road) |
-| SUN Oct 8 - 5:30pm | Life Session #4 (Seminar Room) |
-| SUN Oct 8 | All-Gen Services |
-| WED Oct 11 | English Classes restarts |
-| FRI Oct 13 | Youth Group restarts |
 | SUN Oct 15 - 11am | Life Session #5 (124 Forest Road) |
 | SUN Oct 15 - 5:30pm | Life Session #5 (Seminar Room) |
 | SUN Oct 15 | NewGen term restarts |
