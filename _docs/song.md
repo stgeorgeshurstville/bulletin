@@ -4,10 +4,10 @@ order: 2
 ---
 
 ## 9:30am 
-1. Jesus Strong & Kind
-2. Jesus Saves!
-3. Behold the Lamb (Communion Hymn)
-4. See Him Coming
+1. Ancient of Days
+2. All Creature of our God and King
+3. The Church’s One Foundation
+4. Undivided
 
 ## 4pm 
 1. Once for all
