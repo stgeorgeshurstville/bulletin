@@ -8,11 +8,6 @@ order: 4
 | Date | Event |
 | ----- | ----- |
 | **OCTOBER** | |
-| SUN Oct 15 - 11am | Life Session #5 (124 Forest Road) |
-| SUN Oct 15 - 5:30pm | Life Session #5 (Seminar Room) |
-| SUN Oct 15 | NewGen term restarts |
-| MON Oct 16 | English Discipleship Groups restarts this week |
-| FRI Oct 20 - 5:30-7:30pm | Dr Rev. Marshall Ballantine-Jones Seminar for Youths (Hall) |
 | SUN Oct 22 | Baptism |
 | **NOVEMBER** | |
 | SUN Nov 12 | Baptism and Confirmation |
@@ -20,9 +15,15 @@ order: 4
 
 ## General
 
-- **Baptism:** Baptism is an outward sign of an inward reality and God’s grace towards his people who’ve come to trust in Jesus. Please speak to Rev. Alan if you are interested to be baptised. The dates are 22nd Oct (baptism) and 12th Nov (baptism and confirmation).
+- **Baptism:** Baptism is an outward sign of an inward reality and God’s grace towards his people who’ve come to trust in Jesus. Please speak to Rev. Alan if you are interested to be baptised. The dates are 22nd Oct (baptism) and 12th Nov (baptism and confirmation). People being baptised on the 22nd Oct are: People being baptised and/or confirmed on the 12 Nov are: .  
 
-- **Summary of 2023 Synod** can be viewed [here](https://www.sds.asn.au/sites/default/files/Parish%20Circular.Synod%20Summary.29%20Sept%202023.with%20attachment.pdf?doc_id=NTM1NTI=)    
+- **Macarthur Indigenous Ministry:**
+- **Serving Survey Responses:** 
+- **Local High School Scripture:** You can sign up for prayer updates [at] (https://www.hurstvillesre.com/become-a-supporter) You can partner financially by giving to the following account: 
+-Account Name: Christian Education Board for Hurstville High Schools 
+-BSB: 124001 
+-Account Number: 22801395 
+-Description: Your Name
 
 - **Growing in our welcoming**
 
