@@ -20,6 +20,8 @@ order: 4
 - **Macarthur Indigenous Ministry:**
 - **Serving Survey Responses:** 
 - **Local High School Scripture:** You can sign up for prayer updates [at] (https://www.hurstvillesre.com/become-a-supporter) You can partner financially by giving to the following account:
+
+|  | Details |
 | ----- | ----- |
 | Account Name: | Christian Education Board for Hurstville High Schools |
 | BSB: | 124001 |
