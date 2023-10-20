@@ -22,12 +22,15 @@ We thank you heavenly Father, for inspiring all Scripture by the Holy Spirit. He
 ¹³ And now these three remain: faith, hope and love. But the greatest of these is love.
 
 
-## Sermon Outline
-### Glorify God in your worship - gifts are for building up the body of Christ
-1. Needing an upstairs  
-2. Make belief v. real  
-3. Showing the upstairs world      
-4. Conclusions 
+### Sermon Outline
+- 1.  The importance of love.
+- 2.   The content of love. 
+a.  It’s about others.
+b.  It’s about the truth. 
+c.  It’s constant and continuous. 
+- 3.  The reason for love.       
+a.   Love never fails. 
+b.  It’s a picture of heaven, us and God. 
  
 
 ## Q&A
