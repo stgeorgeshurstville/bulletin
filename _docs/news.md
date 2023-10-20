@@ -15,10 +15,10 @@ order: 4
 
 ## General
 
-- **Baptism:** Baptism is an outward sign of an inward reality and God’s grace towards his people who’ve come to trust in Jesus. Please speak to Rev. Alan if you are interested to be baptised. The dates are 22nd Oct (baptism) and 12th Nov (baptism and confirmation). People being baptised on the 22nd Oct are: People being baptised and/or confirmed on the 12 Nov are: .  
+- **Baptism:** Baptism is an outward sign of an inward reality and God’s grace towards his people who’ve come to trust in Jesus. Please speak to Rev. Alan if you are interested to be baptised. The dates are 22nd Oct (baptism) and 12th Nov (baptism and confirmation). People being baptised on the 22nd Oct are: Owen and Marco. People being baptised and/or confirmed on the 12 Nov are: Aiden, Danny, Tiffany, Naomi, Nathanael, Abigail, Annabel, Alana, Swinson, Alvin and Joshua.
 
-- **Macarthur Indigenous Ministry:**
-- **Serving Survey Responses:** 
+- **Macarthur Indigenous Ministry:** We encourage people to keep loving Indigenous Australians and praying that they will know the love of God even though the referendum and its result has passed. We want to encourage people to donate towards Macarthur Indigenous Church as they seek to do this. You can find more information about this ministry and how to partner with them [here:] (https://campbelltownanglican.org/macarthur-indigenous-church/)
+- **Serving Survey Responses:** We thank you for filling in the survey and your desire to serve. We’ll keep you updated and be in touch. 
 - **Local High School Scripture:** You can sign up for prayer updates [at] (https://www.hurstvillesre.com/become-a-supporter) You can partner financially by giving to the following account:
 
 |  | Details |
