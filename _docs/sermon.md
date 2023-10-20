@@ -23,12 +23,12 @@ We thank you heavenly Father, for inspiring all Scripture by the Holy Spirit. He
 
 
 ### Sermon Outline
-- 1.  The importance of love.
-- 2.   The content of love. 
+-  The importance of love.
+-  The content of love. 
 a.  It’s about others.
 b.  It’s about the truth. 
 c.  It’s constant and continuous. 
-- 3.  The reason for love.       
+-  The reason for love.       
 a.   Love never fails. 
 b.  It’s a picture of heaven, us and God. 
  
