@@ -44,7 +44,10 @@ _**Good Order in Worship**_
 ³⁹ Therefore, my brothers and sisters, be eager to prophesy, and do not forbid speaking in tongues. ⁴⁰ But everything should be done in a fitting and orderly way.
 
 
+
+## Glorify God in your worship - words are for building up the body in love
 ### Sermon Outline
+
 -  The enemy of the best is the good
 -  Pursue Love
 -  Love covets the best
