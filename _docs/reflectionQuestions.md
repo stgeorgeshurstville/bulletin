@@ -11,11 +11,11 @@ Pursue love and seek to do what will build the church
 
 2. What does Paul mean when he says:
 
-  -‘pursue love’
+  - ‘pursue love’
 
-  -‘earnestly desire spirituals’ 
+  - ‘earnestly desire spirituals’ 
 
-3.Paul then says that the gift of prophecy is more desirable than the gift of tongues. Paul doesn’t tell us in details what these gifts are (presumably because the Corinthians knew what he’s talking about). From what Paul does say, what are some of the things about the gift of prophecy? 
+3. Paul then says that the gift of prophecy is more desirable than the gift of tongues. Paul doesn’t tell us in details what these gifts are (presumably because the Corinthians knew what he’s talking about). From what Paul does say, what are some of the things about the gift of prophecy? 
   - Why should prophecy be more desirable than tongues? 
   - Why is ‘building up the church’? Why is this so good/important? 
   - How does prophecy build up the church? 
