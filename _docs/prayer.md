@@ -10,7 +10,6 @@ order: 3
 - **Collect:** Merciful Lord, grant to your faithful people pardon and peace, that they may be cleansed from all their sins, and serve you with a quiet mind; through Jesus Christ our Lord. Amen.
 
 - **Mission**: Our gracious Father, thank you for the privilege of calling us to join in your mission. Thank you that under you what we do makes a difference in the world. We pray therefore that you will save those around us and to transform them into the likeness of Jesus. Please use us to make disciples of the nations, love our neighbours. Please Father, glorify yourself, through our labour in your Son. We pray that we will not be consumers but contributors to the ministries that you have called us to.
-- 
 - **Church Sermon**: Almighty and everlasting God, you are always more ready to hear than we to pray and to give more than either we desire or deserve. Please help us to pursue love always, in all things and for all people. Please help us to see what is needed in the building up of the church. We pray that you will give us the gifts that are necessary to do this, especially the gift of prophecy. Please give us the wisdom and discernment so that we know when it is appropriate to use or not use these gifts. We pray this in the name of our ascended and victorious king, Jesus Christ our Lord. Amen.
 
 
