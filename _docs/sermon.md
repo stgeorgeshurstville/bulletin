@@ -32,7 +32,6 @@ says the Lord.”
 ²² Tongues, then, are a sign, not for believers but for unbelievers; prophecy, however, is not for unbelievers but for believers. ²³ So if the whole church comes together and everyone speaks in tongues, and inquirers or unbelievers come in, will they not say that you are out of your mind? ²⁴ But if an unbeliever or an inquirer comes in while everyone is prophesying, they are convicted of sin and are brought under judgment by all, ²⁵ as the secrets of their hearts are laid bare. So they will fall down and worship God, exclaiming, “God is really among you!”
 
 _**Good Order in Worship**_
-
 ²⁶ What then shall we say, brothers and sisters? When you come together, each of you has a hymn, or a word of instruction, a revelation, a tongue or an interpretation. Everything must be done so that the church may be built up. ²⁷ If anyone speaks in a tongue, two—or at the most three—should speak, one at a time, and someone must interpret. ²⁸ If there is no interpreter, the speaker should keep quiet in the church and speak to himself and to God.
 
 ²⁹ Two or three prophets should speak, and the others should weigh carefully what is said. ³⁰ And if a revelation comes to someone who is sitting down, the first speaker should stop. ³¹ For you can all prophesy in turn so that everyone may be instructed and encouraged. ³² The spirits of prophets are subject to the control of prophets. ³³ For God is not a God of disorder but of peace—as in all the congregations of the Lord’s people.
