@@ -3,6 +3,7 @@ title: Sermon
 order: 1
 ---
 
+# Glorify God in your worship - words are for building up the body in love
 ## Bible Reading
 
 ### Prayer
@@ -45,7 +46,7 @@ _**Good Order in Worship**_
 
 
 
-## Glorify God in your worship - words are for building up the body in love
+
 ### Sermon Outline
 
 -  The enemy of the best is the good
