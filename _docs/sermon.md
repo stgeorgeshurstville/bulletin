@@ -44,15 +44,11 @@ _**Good Order in Worship**_
 
 
 ### Sermon Outline
--  The importance of love.
--  The content of love. 
-a.  It’s about others.
-b.  It’s about the truth. 
-c.  It’s constant and continuous. 
--  The reason for love.       
-a.  Love never fails. 
-b.  It’s a picture of heaven, us and God. 
- 
+-  The enemy of the best is the good
+-  Pursue Love
+-  Love covets the best
+-  Prophecy is better
+-  Sometimes it's better to keep quiet 
 
 ## Q&A
 Got questions or comments? Send them [here](https://tinyurl.com/SGHACQuestionsAnswers)
