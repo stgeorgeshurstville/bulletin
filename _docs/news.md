@@ -15,18 +15,20 @@ order: 4
 
 ## General
 
-- **Year 6**: Our Friday Youth program (5:30-7:30pm during the school term) provides an environment where our high schoolers can trust, follow and share about Jesus with people in a similar stage of life. Year 6 are invited to come to our high school program from next Friday onwards (3rd of November). We’ve found this process helpful for people to connect with one another and transition. Rev. Lam will be available to talk to interested families about the program and answer any questions after the Church Service. The times for these are (just attend one):
-  - 10:30am at 124 Forest Road. 
-  - 11am at the Pergola. 
-  - 12:15pm at the Pergola.
-  - 5:15pm at the Hall.  
-- **Eliza Pham Baptism**: You are welcome to come Eliza’s baptism. This will be at 11:30am in the Chapel on Sat Nov 4th. Please rsvp to Joe or Abi by Wed for catering purposes.  
-- **Mental Health Care Training**: Mental health issues affect many people and the numbers are rising. We want to care for one another well. To help us with this, Anglicare will be running a seminar on Sat 16th of Dec at church. The cost will be $25, it’ll go for about 4.5 hours and there will be some preparation work beforehand. There’ll be an option to purchase lunch (more details to follow). The seminar will focus on common signs and symptoms of mental illness, how to support members who struggle with mental health challenges and suicide intervention. Please speak to Rev. Lam if you want more information or are interested. 
-- **Israel-Gaza Conflict**: Many people have been and will be affected by this conflict. ARDF Australia is joining ARDF US in their effort to provide emergency relief to those affected by the crisis. Funds raised will support the work of CMJ-Israel to help victims of the conflict. More info here: https://ardfa.org.au/global-disaster-fund/posts/israel-gaza-crisis-appeal. 
-- **Serving Survey Responses**: We thank you for filling in the survey and your desire to serve. We’ll keep you updated and be in touch. 
-- **Baptism**: Baptism is an outward sign of an inward reality and God’s grace towards his people who’ve come to trust in Jesus. Please speak to Rev. Alan if you are interested to be baptised/confirmed. The people being baptised and/or confirmed on the 12 Nov are: Aiden, Danny, Tiffany, Naomi, Nathanael, Abigail, Annabel, Alana, Swinson, Alvin and Joshua.
+- **Compassion**: ​​You can pick up a profile of a child and sponsor them at the Compassion stand. [You can also send in prayer points for the children you sponsor here so that our church family can be praying for your children and the region](https://forms.gle/t6nXQemD5EgYNdQP7). The Compassion stand will be here at the following times:
+  - Sat 4pm: Chapel
+  - Sun 10:30am: Pergola (and a few profiles of children at 124 Forest Road)
+  - Sun 12pm: Chapel
+  - Sun 5pm: Foyer of the Hall 
 
-- **Growing in our welcoming**
+- **Baptism, Confirmation & Parking**: Baptism is an outward sign of an inward reality and God’s grace towards his people who’ve come to trust in Jesus. The people being baptised and/or confirmed on the 12 Nov are: Aiden, Danny, Tiffany, Naomi, Nathanael, Abigail, Annabel, Alana and Joshua at 9:30am and Swinson and Alvin at 4pm. In light of more people coming, please park offsite and leave onsite parking to those who need it e.g. those with mobility issues.
+- **Israel-Gaza Conflict**: Many people have been and will be affected by this conflict. ARDF Australia is joining ARDF US in their effort to provide emergency relief to those affected by the crisis. Funds raised will support the work of CMJ-Israel to help victims of the conflict. [More info here](https://ardfa.org.au/global-disaster-fund/posts/israel-gaza-crisis-appeal)
+- **Coffee Cart**: We are serving baristas coffee after 9:30am church today. Order your coffee at the sign-in area. $3 (small) $4 (large). Why not buy coffee for someone you don’t know?
+- **Serving Survey Responses**: We thank you for filling in the survey and your desire to serve. We’ll keep you updated and be in touch. 
+- **Mental Health Care Training**: Mental health issues affect many people and the numbers are rising. We want to care for one another well. To help us with this, Anglicare will be running a seminar on Sat 16th of Dec at church. The cost will be $25, it’ll go for about 4.5 hours and there will be some preparation work beforehand. There’ll be an option to purchase lunch (more details to follow). The seminar will focus on common signs and symptoms of mental illness, how to support members who struggle with mental health challenges and suicide intervention. Please speak to Rev. Lam if you want more information or are interested. 
+- **Anglican Church News:** The latest edition of the Southern Cross is now available. [You can get in touch with what's happening in the wider Anglican Church community](https://sydneyanglicans.net/about/southerncross)
+- **Growing in Our Welcoming**
+
 
   <img width="236" alt="Screenshot 2023-07-01 134203" src="https://github.com/stgeorgeshurstville/bulletin/assets/119166299/b540ac1c-0ba4-481e-90a5-5464939f7e4c">
 
