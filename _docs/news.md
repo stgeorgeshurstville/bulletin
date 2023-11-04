@@ -7,11 +7,11 @@ order: 4
 
 | Date | Event |
 | ----- | ----- |
-| **OCTOBER** | |
-| SUN Oct 22 | Baptism |
 | **NOVEMBER** | |
 | SUN Nov 12 | Baptism and Confirmation |
 | SAT Nov 18 | St Georges visits Berkeley Life Center |
+| **DECEMBER** | |
+| SAT Dec 16 | Mental Health Care Training |
 
 ## General
 
