@@ -4,20 +4,17 @@ order: 6
 ---
 
 ### Big Idea: 
-The resurrection changes everything
+For to me, to live is Christ and to die is gain.
 
-### Questions:
-1. What’s the gospel? 
-2. Why might Paul have mentioned that those who saw Jesus were still alive? 
-3. What’s the significance if there’s no resurrection?  
-4. What’s the significance if Jesus did rise from the dead? 
-5. What’s the significance of God being all in all (v28)? 
-6. What’s the implication of Jesus being raised from the dead?
-7. What does it mean for people to be baptised for the dead (v29)? 
-8. What body will we have in heaven? 
-9. How does this make you feel and how should you respond? 
-10. Why is the sting of death sin? 
-11. What does it look like to give yourself fully to the work of the Lord?
+### Questions
+1. When things go bad for you, what’s your response and what’s your attitude towards God? Why?
+2. Paul talks about three instances of him suffering at this point. What are they?
+3. Imagine you are Paul in this situation. How would you react? What would you write to people who care about you and are supporting you?
+4. Paul’s answer is very different to what many of us would’ve said. What is it?
+5. What does Paul see as his purpose in life?
+6. What does it mean that to die is gain? Can we say this for ourselves?
+7. What does it meant that to live is Christ?
+8. If this is also our purpose in life, how would we feel and what would it look like? 
 
 
 
