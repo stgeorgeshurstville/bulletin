@@ -31,14 +31,14 @@ The Sayings we Live by
 he Promise he has Made. The Promise we Make.
 
 To Live is Christ
--I live by Christ
--I live with Christ
--I live for Christ
+- I live by Christ
+- I live with Christ
+- I live for Christ
 
 To Die is Gain
--I will live with Christ
--I will be like Christ
--I will live for Christ
+- I will live with Christ
+- I will be like Christ
+- I will live for Christ
 
 Is this your present and your future?
 
