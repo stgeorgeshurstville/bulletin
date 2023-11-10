@@ -30,7 +30,7 @@ Life Worthy of the Gospel
 
 The Sayings we Live by
 
-he Promise he has Made. The Promise we Make.
+The Promise he has Made. The Promise we Make.
 
 To Live is Christ
 - I live by Christ
