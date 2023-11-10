@@ -4,7 +4,7 @@ order: 2
 ---
 
 ## 9:30am 
-1. 
+1. Apostles Creed
 2. Amazing Grace (My Chains Are Gone)
 3. All I have is Christ
 4. My Hope Is Built
