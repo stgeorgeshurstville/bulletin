@@ -3,16 +3,16 @@ title: Welcome
 ---
 
 # Sermon Series:
-## 1 Corinthians: To the glory of God alone
-### Always give yourselves fully to the work of the Lord, because you know your labour in the Lord is not in vain.
+## Philippians 1:15-30 or 1 Corinthians 15:35-58 
+### Baptism and Confirmation Service
 
 
 ![Screenshot 2023-07-21 at 3 47 23 pm](https://github.com/stgeorgeshurstville/bulletin/assets/119166299/2d95947e-b2b1-44b5-a360-f1dd4a4d7efe)
 
 ---
-#### Thus says the Lord, I know the plans I have for you, plans for your welfare and not for evil, to give you a future and a hope. 
+#### Worthy is the Lamb who was slain to receive power and wealth and wisdom and might and honour and glory and blessing. To him be glory and dominion for ever and ever. 
 
-##### Jeremiah 29.11 
+##### Revelation 5.12; 1.6
 
 ---
 - We are gathering in person! For people who can’t gather in person, you can watch online [here](https://stgeorgeshurstville.org.au/sunday-english-online)
