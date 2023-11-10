@@ -11,6 +11,7 @@ order: 4
 | SUN Nov 12 | Baptism and Confirmation |
 | SAT Nov 18 | St Georges visits Berkeley Life Center |
 | **DECEMBER** | |
+| SAT Dec 9 - 10am-12pm | Christmas Market |
 | SAT Dec 16 | Mental Health Care Training |
 
 ## General
