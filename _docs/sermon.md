@@ -29,6 +29,7 @@ Life Worthy of the Gospel
 ### Sermon Outline
 **Always give yourselves fully to the work of the Lord, because you know your labour in the Lord is not in vain.**
 
+
 The Sayings we Live by
 
 The Promise he has Made. The Promise we Make.
