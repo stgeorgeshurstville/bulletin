@@ -15,17 +15,12 @@ order: 4
 
 ## General
 
-- **Compassion**: ​​You can pick up a profile of a child and sponsor them at the Compassion stand. [You can also send in prayer points for the children you sponsor here so that our church family can be praying for your children and the region](https://forms.gle/t6nXQemD5EgYNdQP7). The Compassion stand will be here at the following times:
-  - Sat 4pm: Chapel
-  - Sun 10:30am: Pergola (and a few profiles of children at 124 Forest Road)
-  - Sun 12pm: Chapel
-  - Sun 5pm: Foyer of the Hall 
+- **Compassion**: ​​You can pick up a profile of a child and sponsor them at the Compassion stand. [You can also send in prayer points for the children you sponsor here so that our church family can be praying for your children and the region](https://forms.gle/t6nXQemD5EgYNdQP7).
+- **Christmas Market**:  Join us for our Christmas Market on December 9th, 10 am to 2 pm, as we connect with the community, share the Gospel, serve together, and help our local community. Get involved by running a stall, joining our outreach team, inviting friends, or donating items for the charity sale. For more info, contact Howard Law / Sunny Yu / Bain Lam.
 
 - **Baptism, Confirmation & Parking**: Baptism is an outward sign of an inward reality and God’s grace towards his people who’ve come to trust in Jesus. The people being baptised and/or confirmed on the 12 Nov are: Aiden, Danny, Tiffany, Naomi, Nathanael, Abigail, Annabel, Alana and Joshua at 9:30am and Swinson and Alvin at 4pm. In light of more people coming, please park offsite and leave onsite parking to those who need it e.g. those with mobility issues.
 - **Israel-Gaza Conflict**: Many people have been and will be affected by this conflict. ARDF Australia is joining ARDF US in their effort to provide emergency relief to those affected by the crisis. Funds raised will support the work of CMJ-Israel to help victims of the conflict. [More info here](https://ardfa.org.au/global-disaster-fund/posts/israel-gaza-crisis-appeal)
-- **Coffee Cart**: We are serving baristas coffee after 9:30am church today. Order your coffee at the sign-in area. $3 (small) $4 (large). Why not buy coffee for someone you don’t know?
 - **Serving Survey Responses**: We thank you for filling in the survey and your desire to serve. We’ll keep you updated and be in touch. 
-- **Mental Health Care Training**: Mental health issues affect many people and the numbers are rising. We want to care for one another well. To help us with this, Anglicare will be running a seminar on Sat 16th of Dec at church. The cost will be $25, it’ll go for about 4.5 hours and there will be some preparation work beforehand. There’ll be an option to purchase lunch (more details to follow). The seminar will focus on common signs and symptoms of mental illness, how to support members who struggle with mental health challenges and suicide intervention. Please speak to Rev. Lam if you want more information or are interested. 
 - **Anglican Church News:** The latest edition of the Southern Cross is now available. [You can get in touch with what's happening in the wider Anglican Church community](https://sydneyanglicans.net/about/southerncross)
 - **Growing in Our Welcoming**
 
