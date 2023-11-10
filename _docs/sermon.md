@@ -13,6 +13,7 @@ Thank you Father for making yourself known to us, showing us the way of salvatio
 
 ### Philippians 1:15-30 
 The Ressurection of Christ 
+
 ¹⁵ It is true that some preach Christ out of envy and rivalry, but others out of goodwill. ¹⁶ The latter do so out of love, knowing that I am put here for the defense of the gospel. ¹⁷ The former preach Christ out of selfish ambition, not sincerely, supposing that they can stir up trouble for me while I am in chains. ¹⁸ But what does it matter? The important thing is that in every way, whether from false motives or true, Christ is preached. And because of this I rejoice.
 
 Yes, and I will continue to rejoice, ¹⁹ for I know that through your prayers and God’s provision of the Spirit of Jesus Christ what has happened to me will turn out for my deliverance. ²⁰ I eagerly expect and hope that I will in no way be ashamed, but will have sufficient courage so that now as always Christ will be exalted in my body, whether by life or by death. ²¹ For to me, to live is Christ and to die is gain. ²² If I am to go on living in the body, this will mean fruitful labor for me. Yet what shall I choose? I do not know! ²³ I am torn between the two: I desire to depart and be with Christ, which is better by far; ²⁴ but it is more necessary for you that I remain in the body. ²⁵ Convinced of this, I know that I will remain, and I will continue with all of you for your progress and joy in the faith, ²⁶ so that through my being with you again your boasting in Christ Jesus will abound on account of me.
