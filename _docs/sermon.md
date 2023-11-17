@@ -6,22 +6,38 @@ order: 1
 ## Bible Reading
 
 ### Prayer
-Thank you Father for making yourself known to us, showing us the way of salvation through faith in your Son. We ask you now to teach us through your word, so that we may be ready to serve you, for the glory of our Lord Jesus Christ. Amen. 
+Gracious Lord, you have caused all holy scriptures to be written for our learning: help us so to hear them, read, mark, learn, and inwardly digest them, that, encouraged and supported by your holy Word, we may embrace and always hold fast the joyful hope of everlasting life, which you have given us in our Saviour Jesus Christ. ** Amen.**
+ 
 
 **Amen.**
 
 
-### Philippians 1:15-30 
-The Ressurection of Christ 
+### 1 Corinthians 16
+The Collection for the Lord’s People
 
-¹⁵ It is true that some preach Christ out of envy and rivalry, but others out of goodwill. ¹⁶ The latter do so out of love, knowing that I am put here for the defense of the gospel. ¹⁷ The former preach Christ out of selfish ambition, not sincerely, supposing that they can stir up trouble for me while I am in chains. ¹⁸ But what does it matter? The important thing is that in every way, whether from false motives or true, Christ is preached. And because of this I rejoice.
+¹⁶ Now about the collection for the Lord’s people: Do what I told the Galatian churches to do. ² On the first day of every week, each one of you should set aside a sum of money in keeping with your income, saving it up, so that when I come no collections will have to be made. ³ Then, when I arrive, I will give letters of introduction to the men you approve and send them with your gift to Jerusalem. ⁴ If it seems advisable for me to go also, they will accompany me.
 
-Yes, and I will continue to rejoice, ¹⁹ for I know that through your prayers and God’s provision of the Spirit of Jesus Christ what has happened to me will turn out for my deliverance. ²⁰ I eagerly expect and hope that I will in no way be ashamed, but will have sufficient courage so that now as always Christ will be exalted in my body, whether by life or by death. ²¹ For to me, to live is Christ and to die is gain. ²² If I am to go on living in the body, this will mean fruitful labor for me. Yet what shall I choose? I do not know! ²³ I am torn between the two: I desire to depart and be with Christ, which is better by far; ²⁴ but it is more necessary for you that I remain in the body. ²⁵ Convinced of this, I know that I will remain, and I will continue with all of you for your progress and joy in the faith, ²⁶ so that through my being with you again your boasting in Christ Jesus will abound on account of me.
+Personal Requests
+⁵ After I go through Macedonia, I will come to you—for I will be going through Macedonia. ⁶ Perhaps I will stay with you for a while, or even spend the winter, so that you can help me on my journey, wherever I go. ⁷ For I do not want to see you now and make only a passing visit; I hope to spend some time with you, if the Lord permits. ⁸ But I will stay on at Ephesus until Pentecost, ⁹ because a great door for effective work has opened to me, and there are many who oppose me.
 
-Life Worthy of the Gospel
+¹⁰ When Timothy comes, see to it that he has nothing to fear while he is with you, for he is carrying on the work of the Lord, just as I am. ¹¹ No one, then, should treat him with contempt. Send him on his way in peace so that he may return to me. I am expecting him along with the brothers.
 
-²⁷ Whatever happens, conduct yourselves in a manner worthy of the gospel of Christ. Then, whether I come and see you or only hear about you in my absence, I will know that you stand firm in the one Spirit, striving together as one for the faith of the gospel ²⁸ without being frightened in any way by those who oppose you. This is a sign to them that they will be destroyed, but that you will be saved—and that by God. ²⁹ For it has been granted to you on behalf of Christ not only to believe in him, but also to suffer for him, ³⁰ since you are going through the same struggle you saw I had, and now hear that I still have.
+¹² Now about our brother Apollos: I strongly urged him to go to you with the brothers. He was quite unwilling to go now, but he will go when he has the opportunity.
 
+¹³ Be on your guard; stand firm in the faith; be courageous; be strong. ¹⁴ Do everything in love.
+
+¹⁵ You know that the household of Stephanas were the first converts in Achaia, and they have devoted themselves to the service of the Lord’s people. I urge you, brothers and sisters, ¹⁶ to submit to such people and to everyone who joins in the work and labors at it. ¹⁷ I was glad when Stephanas, Fortunatus and Achaicus arrived, because they have supplied what was lacking from you. ¹⁸ For they refreshed my spirit and yours also. Such men deserve recognition.
+
+Final Greetings
+¹⁹ The churches in the province of Asia send you greetings. Aquila and Priscilla greet you warmly in the Lord, and so does the church that meets at their house. ²⁰ All the brothers and sisters here send you greetings. Greet one another with a holy kiss.
+
+²¹ I, Paul, write this greeting in my own hand.
+
+²² If anyone does not love the Lord, let that person be cursed! Come, Lord !
+
+²³ The grace of the Lord Jesus be with you.
+
+²⁴ My love to all of you in Christ Jesus. Amen. 
 
 
 
