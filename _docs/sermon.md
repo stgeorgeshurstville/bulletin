@@ -45,24 +45,15 @@ Final Greetings
 ### Sermon Outline
 **Always give yourselves fully to the work of the Lord, because you know your labour in the Lord is not in vain.**
 
+Collection
 
-The Sayings we Live by
+Visits
 
-The Promise he has Made. The Promise we Make.
+Commands
 
-To Live is Christ
-- I live by Christ
-- I live with Christ
-- I live for Christ
+Stephanas
 
-To Die is Gain
-- I will live with Christ
-- I will be like Christ
-- I will live for Christ
-
-Is this your present and your future?
-
-
+Greetings
 
 ## Q&A
 Got questions or comments? Send them [here](https://tinyurl.com/SGHACQuestionsAnswers)
