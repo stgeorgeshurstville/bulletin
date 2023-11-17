@@ -3,8 +3,8 @@ title: Welcome
 ---
 
 # Sermon Series:
-## Philippians 1:15-30 or 1 Corinthians 15:35-58 
-### Baptism and Confirmation Service
+## 1 Corinthians 16
+### 1 Corinthians: To the glory of God alone
 
 
 ![Screenshot 2023-07-21 at 3 47 23 pm](https://github.com/stgeorgeshurstville/bulletin/assets/119166299/2d95947e-b2b1-44b5-a360-f1dd4a4d7efe)
