@@ -12,7 +12,7 @@ Gracious Lord, you have caused all holy scriptures to be written for our learnin
 
 
 ### 1 Corinthians 16
-The Collection for the Lord’s People
+**The Collection for the Lord’s People**
 
 ¹⁶ Now about the collection for the Lord’s people: Do what I told the Galatian churches to do. ² On the first day of every week, each one of you should set aside a sum of money in keeping with your income, saving it up, so that when I come no collections will have to be made. ³ Then, when I arrive, I will give letters of introduction to the men you approve and send them with your gift to Jerusalem. ⁴ If it seems advisable for me to go also, they will accompany me.
 
