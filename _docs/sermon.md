@@ -45,15 +45,15 @@ Final Greetings
 ### Sermon Outline
 **Always give yourselves fully to the work of the Lord, because you know your labour in the Lord is not in vain.**
 
-Collection
+- Collection
 
-Visits
+- Visits
 
-Commands
+- Commands
 
-Stephanas
+- Stephanas
 
-Greetings
+- Greetings
 
 ## Q&A
 Got questions or comments? Send them [here](https://tinyurl.com/SGHACQuestionsAnswers)
