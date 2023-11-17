@@ -7,11 +7,11 @@ order: 6
 Labour in the Lord.  
 
 ### Questions
-1. Regarding the collection,
-a. Who is it for?
+1. Regarding the collection:
+  - Who is it for?
   b. How are they to collect? 
 c.     How are they to distribute it? 
-3. Regarding Paul’s travel plans, 
+4. Regarding Paul’s travel plans, 
 a.     Why does he visit them after Macedonia? 
 b.    Why does he stay in Macedonia? 
 3. Regarding Timothy’s visit, 
