@@ -4,17 +4,27 @@ order: 6
 ---
 
 ### Big Idea: 
-For to me, to live is Christ and to die is gain.
+Labour in the Lord.  
 
 ### Questions
-1. When things go bad for you, what’s your response and what’s your attitude towards God? Why?
-2. Paul talks about three instances of him suffering at this point. What are they?
-3. Imagine you are Paul in this situation. How would you react? What would you write to people who care about you and are supporting you?
-4. Paul’s answer is very different to what many of us would’ve said. What is it?
-5. What does Paul see as his purpose in life?
-6. What does it mean that to die is gain? Can we say this for ourselves?
-7. What does it meant that to live is Christ?
-8. If this is also our purpose in life, how would we feel and what would it look like? 
+1. Regarding the collection,
+  a. Who is it for?
+  b. How are they to collect? 
+c.     How are they to distribute it? 
+3.     Regarding Paul’s travel plans, 
+a.     Why does he visit them after Macedonia? 
+b.    Why does he stay in Macedonia? 
+3.     Regarding Timothy’s visit, 
+a.     Why does he want Timothy to have nothing to fear? 
+b.    What is the work of the Lord? 
+4.     Regarding Apollos’ visit, why would he be unwilling? 
+5.     What do these commands mean (v13-14)? Why would Paul tell to do these things? 
+6.     Regarding Stephanas, 
+a.     Why submit to them? 
+b.    How did they supply what was lacking and refreshed their spirit? 
+7.     What’s a holy kiss? 
+8.     How does the cursing fit in this passage? 
+ 
 
 
 
