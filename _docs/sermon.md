@@ -39,10 +39,9 @@ Final Greetings
 ²⁴ My love to all of you in Christ Jesus. Amen. 
 
 
-
+**Always give yourselves fully to the work of the Lord, because you know your labour in the Lord is not in vain.**
 
 ### Sermon Outline
-**Always give yourselves fully to the work of the Lord, because you know your labour in the Lord is not in vain.**
 
 - Collection
 
