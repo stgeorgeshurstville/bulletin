@@ -8,7 +8,7 @@ Labour in the Lord.
 
 ### Questions
 1. Regarding the collection,
-   a. Who is it for?
+a. Who is it for?
   b. How are they to collect? 
 c.     How are they to distribute it? 
 3.     Regarding Paul’s travel plans, 
