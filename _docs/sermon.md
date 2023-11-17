@@ -9,7 +9,6 @@ order: 1
 Gracious Lord, you have caused all holy scriptures to be written for our learning: help us so to hear them, read, mark, learn, and inwardly digest them, that, encouraged and supported by your holy Word, we may embrace and always hold fast the joyful hope of everlasting life, which you have given us in our Saviour Jesus Christ. ** Amen.**
  
 
-**Amen.**
 
 
 ### 1 Corinthians 16
