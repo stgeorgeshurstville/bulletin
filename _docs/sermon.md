@@ -17,6 +17,7 @@ Gracious Lord, you have caused all holy scriptures to be written for our learnin
 ¹⁶ Now about the collection for the Lord’s people: Do what I told the Galatian churches to do. ² On the first day of every week, each one of you should set aside a sum of money in keeping with your income, saving it up, so that when I come no collections will have to be made. ³ Then, when I arrive, I will give letters of introduction to the men you approve and send them with your gift to Jerusalem. ⁴ If it seems advisable for me to go also, they will accompany me.
 
 Personal Requests
+
 ⁵ After I go through Macedonia, I will come to you—for I will be going through Macedonia. ⁶ Perhaps I will stay with you for a while, or even spend the winter, so that you can help me on my journey, wherever I go. ⁷ For I do not want to see you now and make only a passing visit; I hope to spend some time with you, if the Lord permits. ⁸ But I will stay on at Ephesus until Pentecost, ⁹ because a great door for effective work has opened to me, and there are many who oppose me.
 
 ¹⁰ When Timothy comes, see to it that he has nothing to fear while he is with you, for he is carrying on the work of the Lord, just as I am. ¹¹ No one, then, should treat him with contempt. Send him on his way in peace so that he may return to me. I am expecting him along with the brothers.
