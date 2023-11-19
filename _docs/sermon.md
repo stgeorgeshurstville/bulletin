@@ -28,6 +28,7 @@ Personal Requests
 ¹⁵ You know that the household of Stephanas were the first converts in Achaia, and they have devoted themselves to the service of the Lord’s people. I urge you, brothers and sisters, ¹⁶ to submit to such people and to everyone who joins in the work and labors at it. ¹⁷ I was glad when Stephanas, Fortunatus and Achaicus arrived, because they have supplied what was lacking from you. ¹⁸ For they refreshed my spirit and yours also. Such men deserve recognition.
 
 Final Greetings
+
 ¹⁹ The churches in the province of Asia send you greetings. Aquila and Priscilla greet you warmly in the Lord, and so does the church that meets at their house. ²⁰ All the brothers and sisters here send you greetings. Greet one another with a holy kiss.
 
 ²¹ I, Paul, write this greeting in my own hand.
