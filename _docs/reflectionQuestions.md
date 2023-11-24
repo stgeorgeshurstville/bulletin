@@ -7,29 +7,38 @@ order: 6
 Labour in the Lord.  
 
 ### Questions
-1. Regarding the collection:
-    - Who is it for?
-    - How are they to collect?
-    - How are they to distribute it?
+1. How does busyness affect you? How might it make you take your eyes off Jesus? 
 
-2. Regarding Paul’s travel plans:
-    - Why does he visit them after Macedonia?
-    - Why does he stay in Macedonia? 
+Please read Isaiah 2:1-5
 
-4. Regarding Timothy’s visit:
-    - Why does he want Timothy to have nothing to fear?
-    - What is the work of the Lord? 
+2. When is Isaiah writing about?
 
-5. Regarding Apollos’ visit, why would he be unwilling?
+    - When are ‘the last days’? What does this mean about ‘being on the right side of history’? 
 
-6. What do these commands mean (v13-14)? Why would Paul tell to do these things?
+    - What will happen on the last days? 
 
-7. Regarding Stephanas:
-    - Why submit to them?
-    - How did they supply what was lacking and refreshed their spirit? 
-8. What’s a holy kiss? 
+    - Who are the ‘nations’? 
 
-9. How does the cursing fit in this passage? 
+    - What have they come to the mountain of the Lord to do? 
+
+    - What will happen when the nations know the Lord? 
+
+    - Is this a positive message to the people of God in Isaiah’s time? Why/why not? 
+
+Please read Isaiah 2:6-22
+3. What were the people of God like at the time of Isaiah? Vv.6-11
+
+    - What made them proud and arrogant? 
+
+    - What will happen to them? 
+
+    - What will they do when the Lord comes? 
+
+4. Will you run from God or to him? 
+
+    - Are you busy or holy? 
+
+    - How will Christmas be a time of holiness for you? 
  
 
 
