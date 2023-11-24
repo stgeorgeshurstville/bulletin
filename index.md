@@ -2,17 +2,17 @@
 title: Welcome
 ---
 
-# Sermon Series:
-## 1 Corinthians 16
-### 1 Corinthians: To the glory of God alone
+# Sermon Series: Worth Waiting For
+## Isaiah 2:1-5
+### Peace at Last
 
 
 ![Screenshot 2023-07-21 at 3 47 23 pm](https://github.com/stgeorgeshurstville/bulletin/assets/119166299/2d95947e-b2b1-44b5-a360-f1dd4a4d7efe)
 
 ---
-#### To you, O Lord, I lift my soul, O my God, in your I trust, let me not be put to shame; let not my enemies exult over me; let none that wait for you be put to shame.
+#### [Hear the words of the prophet Isaiah:] Shake yourself from the dust, says the Lord, arise, O captive Jerusalem; loose the bonds from your neck, O captive daughter of Zion.  
 
-##### Psalm 25.1-3a
+##### Isaiah 52.2
 
 ---
 - We are gathering in person! For people who can’t gather in person, you can watch online [here](https://stgeorgeshurstville.org.au/sunday-english-online)
