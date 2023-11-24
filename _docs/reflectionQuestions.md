@@ -4,7 +4,7 @@ order: 6
 ---
 
 ### Big Idea: 
-Labour in the Lord.  
+Christmas reminds us of the beginning of the End, when God’s kingdom will come.   
 
 ### Questions
 1. How does busyness affect you? How might it make you take your eyes off Jesus? 
