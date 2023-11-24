@@ -9,7 +9,6 @@ Labour in the Lord.
 ### Questions
 1. How does busyness affect you? How might it make you take your eyes off Jesus? 
 
-
 Please read Isaiah 2:1-5
 
 2. When is Isaiah writing about?
@@ -25,7 +24,6 @@ Please read Isaiah 2:1-5
     - What will happen when the nations know the Lord? 
 
     - Is this a positive message to the people of God in Isaiah’s time? Why/why not? 
-
 
 Please read Isaiah 2:6-22
 
