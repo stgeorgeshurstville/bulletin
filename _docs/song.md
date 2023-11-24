@@ -10,7 +10,7 @@ order: 2
 4. How Deep the Father's Love For Us
 
 ## 4pm 
-1. This is amazing grace
+1. This is Amazing Grace
 2. Your Word
 3. No Other Name
 4. Ancient of Days
