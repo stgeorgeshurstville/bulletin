@@ -7,7 +7,6 @@ order: 4
 
 | Date | Event |
 | ----- | ----- |
-
 | **DECEMBER** | |
 | SAT Dec 9: 10am-12pm | Christmas Market |
 | SUN Dec 10: 9:30am-11am, 4:00pm-5:30pm | Outdoor Picnic Carols |
