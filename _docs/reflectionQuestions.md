@@ -37,9 +37,9 @@ What will they do when the Lord comes?
 
 4. Will you run from God or to him? 
 
-- Are you busy or holy? 
+Are you busy or holy? 
 
-- How will Christmas be a time of holiness for you? 
+How will Christmas be a time of holiness for you? 
  
 
 
