@@ -9,6 +9,7 @@ order: 4
 | ----- | ----- |
 | **DECEMBER** | |
 | SAT Dec 9: 10am-2pm | Christmas Market |
+| SUN Dec 10: Last day of Discipleship Groups |
 | SUN Dec 10: 9:30am-11am, 4:00pm-5:30pm | Outdoor Picnic Carols |
 | SAT Dec 16 | Mental Health Care Training |
 
