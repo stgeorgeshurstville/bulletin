@@ -7,7 +7,6 @@ title: Welcome
 ### Safe at Last
 
 
-![Screenshot 2023-07-21 at 3 47 23 pm](https://github.com/stgeorgeshurstville/bulletin/assets/119166299/2d95947e-b2b1-44b5-a360-f1dd4a4d7efe)
 ![1Samuel](https://raw.githubusercontent.com/stgeorgeshurstville/bulletin/images/1Samuel.png)
 
 ---
