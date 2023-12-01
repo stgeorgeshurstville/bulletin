@@ -8,21 +8,16 @@ order: 4
 | Date | Event |
 | ----- | ----- |
 | **DECEMBER** | |
-| SAT Dec 9: 10am-12pm | Christmas Market |
+| SAT Dec 9: 10am-2pm | Christmas Market |
 | SUN Dec 10: 9:30am-11am, 4:00pm-5:30pm | Outdoor Picnic Carols |
 | SAT Dec 16 | Mental Health Care Training |
 
 ## General
 
 - **Christmas Market**: Join us for our Christmas Market on December 9th, 10 am to 2 pm, as we connect with the community, share the Gospel, serve together, and help our local community. Get involved by running a stall, joining our outreach team, inviting friends, or donating items for the charity sale. For more info, contact Howard Law / Sunny Yu / Bain Lam. Online link for registration [here](https://stgeorgeshurstville.org.au/markets) (participate in market, volunteer with food & drinks and in outreach team)
-- **Accommodation for University Students**: We’ll be on mission together with a team from UNSW Campus Bible Study. This will be from Wed-Sun (6-10 Dec). There’ll be 10 students who’ll need to be billeted. This will involve provided them with a place to sleep and some meals. Please let Rev. Lam know if you are in a position to exercise hospitality in this way. 
-- **Compassion**: ​​We are thankful for your prayers and partnership. We’ve had 17 new children sponsored which means that our church is releasing in total 96 vulnerable children from poverty in Jesus’ name. You can find out more information about Compassion and how to sponsor a child [here](https://stgeorgeshurstville.org.au/mission-partners). You can also send in prayer points for the children you sponsor here so that our church family can be praying for your children and their region [here](https://forms.gle/t6nXQemD5EgYNdQP7)
-- **Anglican Church News:** The latest edition of the Southern Cross is now available. [You can get in touch with what's happening in the wider Anglican Church community](https://sydneyanglicans.net/about/southerncross)
-- **Local High School Scripture** Local High School Scripture: You can sign up for prayer updates at https://www.hurstvillesre.com/become-a-supporter. You can partner financially by giving to the following account: 
-Account Name: Christian Education Board for Hurstville High Schools 
-BSB: 124001 
-Account Number: 22801395 
-Description: Your Name 
+- **Accommodation for University Students**: We’ll be on mission together with a team from UNSW Campus Bible Study. This will be from Wed-Sun (6-10 Dec). There’ll be 15 students who’ll need to be billeted. This will involve providing them with a place to sleep and some meals. Please let Rev. Lam know if you are in a position to exercise hospitality in this way. 
+- **Cantonese Pastor:** We're thankful to announce that from January 2024, our brother Bain Lam will commence full time as 粤语事工主任. Bain holds qualifications in theology from CTCA. He's been a faithful member and ministry worker of our church and we recognise that the Lord has gifted him for the role of Cantonese pastor. We are thankful that Bain has accepted the invitation. This is a big step of faith for him and his family. Please remember him in your prayers. We also want to acknowledge and thank God for Tim and his ministry with us. Tim is settling well into his new role as pastor of pastoral counselling for the whole church. We very much look forward Tim's continual ministry at St George's. Please do not hesitate to contact Rev. Tung if you have any questions.
+- **Discipleship Group** The last day of this term is Sun the 10th Dec. Your groups may operate differently so please talk to your leader about the plans and keep growing up, deep and out with one another. 
 - **Growing in Our Welcoming**
 
 
