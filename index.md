@@ -6,7 +6,7 @@ title: Welcome
 ## Isaiah 7
 ### Safe at Last
 
-
+![1Samuel](https://raw.githubusercontent.com/stgeorgeshurstville/bulletin/main/images/1Samuel.png)
 ![Christmas](https://github.com/stgeorgeshurstville/bulletin/blob/main/images/Christmas%20background.jpg)
 
 ---
