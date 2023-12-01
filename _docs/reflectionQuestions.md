@@ -4,27 +4,22 @@ order: 6
 ---
 
 ### Big Idea: 
-Christmas reminds us of the beginning of the End, when God’s kingdom will come.   
+Fear God not Man   
 
 ### Questions
-1. How does busyness affect you? How might it make you take your eyes off Jesus? 
+1. What sort of things make us afraid and/or anxious? How do we deal with these fears and anxiety? 
 
-2. **Please read Isaiah 2:1-5.** When is Isaiah writing about?
- - When are ‘the last days’? What does this mean about ‘being on the right side of history’? 
- - What will happen on the last days? 
- - Who are the ‘nations’? 
- - What have they come to the mountain of the Lord to do? 
- - What will happen when the nations know the Lord? 
- - Is this a positive message to the people of God in Isaiah’s time? Why/why not? 
+2. **Please read Isaiah 7.** What was the situation Ahaz and Judah facing? vv.1-2 
+ - How did Ahaz respond? 
+ - What did the Lord say to Ahaz?
+ - What is the ‘sign’ the Lord will give? What is it a sign of?
+ - How should Ahaz have responded to the Lord’s promise? How did he respond instead (see 2 Kings 16)?
 
-3. **Please read Isaiah 2:6-22.** What were the people of God like at the time of Isaiah? Vv.6-11
- - What made them proud and arrogant? 
- - What will happen to them? 
- - What will they do when the Lord comes? 
+3. How is Christmas a ‘fulfilment’ of this promise? (Matthew 1:18-25) 
 
-4. Will you run from God or to him? 
- - Are you busy or holy? 
- - How will Christmas be a time of holiness for you? 
+4. In what ways are we more fearful of Man than God? Why do you think we do this? 
+ - What does it mean for us to fear God rather than Man? 
+ - How might Christmas help us to do this? 
 
 
 
