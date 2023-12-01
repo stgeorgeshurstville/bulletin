@@ -8,7 +8,7 @@ title: Welcome
 
 
 ![Screenshot 2023-07-21 at 3 47 23 pm](https://github.com/stgeorgeshurstville/bulletin/assets/119166299/2d95947e-b2b1-44b5-a360-f1dd4a4d7efe)
-![Christmas background](https://raw.githubusercontent.com/stgeorgeshurstville/bulletin/images/Christmas background.jpg)
+![1Samuel](https://raw.githubusercontent.com/stgeorgeshurstville/bulletin/images/1Samuel.png)
 
 ---
 #### O people in Zion who dwell at Jerusalem; you shall weep no more. The Lord will surely be gracious to you at the sound of your cry; he will cause his majestic voice to be heard. 
