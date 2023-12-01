@@ -6,54 +6,51 @@ order: 1
 ## Bible Reading
 
 ### Prayer
-Almighty God, we thank you for the gift of your holy word. May it be a lantern to our feet, a light to our paths, and strength to our lives. Take us and use us to love and serve all people in the power of the Holy Spirit and in the name of your Son Jesus Christ our Lord. Amen.
+Thank you Father for making yourself known to us, showing us the way of salvation through faith in your Son. We ask you now to teach us through your word, so that we may be ready to serve you, for the glory of our Lord Jesus Christ. Amen.
 
 
+### Isaiah 7
 
-### Isaiah 2:1-5
-**The Mountain of the Lord**
 
-This is what Isaiah son of Amoz saw concerning Judah and Jerusalem:
+When Ahaz son of Jotham, the son of Uzziah, was king of Judah, King Rezin of Aram and Pekah son of Remaliah king of Israel marched up to fight against Jerusalem, but they could not overpower it.
+2 Now the house of David was told, “Aram has allied itself with Ephraim”; so the hearts of Ahaz and his people were shaken, as the trees of the forest are shaken by the wind.
+3 Then the Lord said to Isaiah, “Go out, you and your son Shear-Jashub, to meet Ahaz at the end of the aqueduct of the Upper Pool, on the road to the Launderer’s Field. 4 Say to him, ‘Be careful, keep calm and don’t be afraid. Do not lose heart because of these two smoldering stubs of firewood—because of the fierce anger of Rezin and Aram and of the son of Remaliah. 5 Aram, Ephraim and Remaliah’s son have plotted your ruin, saying, 6 “Let us invade Judah; let us tear it apart and divide it among ourselves, and make the son of Tabeel king over it.” 7 Yet this is what the Sovereign Lord says:
+“‘It will not take place,
+    it will not happen,
 
-² In the last days
 
-the mountain of the Lord’s temple will be established
-as the highest of the mountains;
-it will be exalted above the hills,
-and all nations will stream to it.
+8 
+for the head of Aram is Damascus,
+    and the head of Damascus is only Rezin.
+Within sixty-five years
+    Ephraim will be too shattered to be a people.
 
-³ Many peoples will come and say,
 
-“Come, let us go up to the mountain of the Lord,
-to the temple of the God of Jacob.
-He will teach us his ways,
-so that we may walk in his paths.”
-The law will go out from Zion,
-the word of the Lord from Jerusalem.
-⁴ He will judge between the nations
-and will settle disputes for many peoples.
-They will beat their swords into plowshares
-and their spears into pruning hooks.
-Nation will not take up sword against nation,
-nor will they train for war anymore.
+9 
+The head of Ephraim is Samaria,
+    and the head of Samaria is only Remaliah’s son.
+If you do not stand firm in your faith,
+    you will not stand at all.’”
+10 Again the Lord spoke to Ahaz, 11 “Ask the Lord your God for a sign, whether in the deepest depths or in the highest heights.”
+12 But Ahaz said, “I will not ask; I will not put the Lord to the test.”
+13 Then Isaiah said, “Hear now, you house of David! Is it not enough to try the patience of humans? Will you try the patience of my God also? 14 Therefore the Lord himself will give you a sign: The virgin will conceive and give birth to a son, and will call him Immanuel. 15 He will be eating curds and honey when he knows enough to reject the wrong and choose the right, 16 for before the boy knows enough to reject the wrong and choose the right, the land of the two kings you dread will be laid waste. 17 The Lord will bring on you and on your people and on the house of your father a time unlike any since Ephraim broke away from Judah—he will bring the king of Assyria.”
 
-⁵ Come, descendants of Jacob,
-let us walk in the light of the Lord.
+**Assyria, the Lord’s Instrument**
+
+18 In that day the Lord will whistle for flies from the Nile delta in Egypt and for bees from the land of Assyria. 19 They will all come and settle in the steep ravines and in the crevices in the rocks, on all the thornbushes and at all the water holes. 20 In that day the Lord will use a razor hired from beyond the Euphrates River—the king of Assyria—to shave your head and private parts, and to cut off your beard also. 21 In that day, a person will keep alive a young cow and two goats. 22 And because of the abundance of the milk they give, there will be curds to eat. All who remain in the land will eat curds and honey. 23 In that day, in every place where there were a thousand vines worth a thousand silver shekels, there will be only briers and thorns. 24 Hunters will go there with bow and arrow, for the land will be covered with briers and thorns. 25 As for all the hills once cultivated by the hoe, you will no longer go there for fear of the briers and thorns; they will become places where cattle are turned loose and where sheep run.
+
 
 
 ### Sermon Outline
 
-Being busy 
+Signs
 
-The vision of Isaiah 
+The problem of being human 
 
-In the last days 
+God gives a sign 
 
-Running to God 
+The sign of Christmas 
 
-Running from God 
-
-Conclusions 
 
 
 ## Q&A
