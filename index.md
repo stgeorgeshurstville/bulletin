@@ -7,7 +7,7 @@ title: Welcome
 ### Safe at Last
 
 
-![Christmas]((https://github.com/stgeorgeshurstville/bulletin/blob/main/images/Christmas%20background.jpg)
+![Christmas](https://github.com/stgeorgeshurstville/bulletin/blob/main/images/Christmas%20background.jpg)
 
 ---
 #### O people in Zion who dwell at Jerusalem; you shall weep no more. The Lord will surely be gracious to you at the sound of your cry; he will cause his majestic voice to be heard. 
