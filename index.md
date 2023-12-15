@@ -9,9 +9,9 @@ title: Welcome
 ![Christmas](https://raw.githubusercontent.com/stgeorgeshurstville/bulletin/main/images/ChristmasBackground.jpg)
 
 ---
-#### O people in Zion who dwell at Jerusalem; you shall weep no more. The Lord will surely be gracious to you at the sound of your cry; he will cause his majestic voice to be heard. 
+#### Shower, I heaven, from above, and let the skies rain down righteousness; let the earth open, and bring forth salvation. 
 
-##### Isaiah 30.19a, 30b  
+##### Isaiah 45.8
 
 ---
 - We are gathering in person! For people who can’t gather in person, you can watch online [here](https://stgeorgeshurstville.org.au/sunday-english-online)
