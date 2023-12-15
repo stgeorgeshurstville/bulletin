@@ -9,47 +9,78 @@ order: 1
 Thank you Father for making yourself known to us, showing us the way of salvation through faith in your Son. We ask you now to teach us through your word, so that we may be ready to serve you, for the glory of our Lord Jesus Christ. Amen.
 
 
-### Isaiah 7
+### Isaiah 11
 
+**The Branch From Jesse**
 
-When Ahaz son of Jotham, the son of Uzziah, was king of Judah, King Rezin of Aram and Pekah son of Remaliah king of Israel marched up to fight against Jerusalem, but they could not overpower it.
-2 Now the house of David was told, “Aram has allied itself with Ephraim”; so the hearts of Ahaz and his people were shaken, as the trees of the forest are shaken by the wind.
-3 Then the Lord said to Isaiah, “Go out, you and your son Shear-Jashub, to meet Ahaz at the end of the aqueduct of the Upper Pool, on the road to the Launderer’s Field. 4 Say to him, ‘Be careful, keep calm and don’t be afraid. Do not lose heart because of these two smoldering stubs of firewood—because of the fierce anger of Rezin and Aram and of the son of Remaliah. 5 Aram, Ephraim and Remaliah’s son have plotted your ruin, saying, 6 “Let us invade Judah; let us tear it apart and divide it among ourselves, and make the son of Tabeel king over it.” 7 Yet this is what the Sovereign Lord says:
-“‘It will not take place,
-    it will not happen,
+A shoot will come up from the stump of Jesse;
+from his roots a Branch will bear fruit.
+² The Spirit of the Lord will rest on him—
+the Spirit of wisdom and of understanding,
+the Spirit of counsel and of might,
+the Spirit of the knowledge and fear of the Lord—
+³ and he will delight in the fear of the Lord.
 
+He will not judge by what he sees with his eyes,
+or decide by what he hears with his ears;
+⁴ but with righteousness he will judge the needy,
+with justice he will give decisions for the poor of the earth.
+He will strike the earth with the rod of his mouth;
+with the breath of his lips he will slay the wicked.
+⁵ Righteousness will be his belt
+and faithfulness the sash around his waist.
 
-8 
-for the head of Aram is Damascus,
-    and the head of Damascus is only Rezin.
-Within sixty-five years
-    Ephraim will be too shattered to be a people.
+⁶ The wolf will live with the lamb,
+the leopard will lie down with the goat,
+the calf and the lion and the yearling together;
+and a little child will lead them.
+⁷ The cow will feed with the bear,
+their young will lie down together,
+and the lion will eat straw like the ox.
+⁸ The infant will play near the cobra’s den,
+and the young child will put its hand into the viper’s nest.
+⁹ They will neither harm nor destroy
+on all my holy mountain,
+for the earth will be filled with the knowledge of the Lord
+as the waters cover the sea.
 
+¹⁰ In that day the Root of Jesse will stand as a banner for the peoples; the nations will rally to him, and his resting place will be glorious. ¹¹ In that day the Lord will reach out his hand a second time to reclaim the surviving remnant of his people from Assyria, from Lower Egypt, from Upper Egypt, from Cush, from Elam, from Babylonia, from Hamath and from the islands of the Mediterranean.
 
-9 
-The head of Ephraim is Samaria,
-    and the head of Samaria is only Remaliah’s son.
-If you do not stand firm in your faith,
-    you will not stand at all.’”
-10 Again the Lord spoke to Ahaz, 11 “Ask the Lord your God for a sign, whether in the deepest depths or in the highest heights.”
-12 But Ahaz said, “I will not ask; I will not put the Lord to the test.”
-13 Then Isaiah said, “Hear now, you house of David! Is it not enough to try the patience of humans? Will you try the patience of my God also? 14 Therefore the Lord himself will give you a sign: The virgin will conceive and give birth to a son, and will call him Immanuel. 15 He will be eating curds and honey when he knows enough to reject the wrong and choose the right, 16 for before the boy knows enough to reject the wrong and choose the right, the land of the two kings you dread will be laid waste. 17 The Lord will bring on you and on your people and on the house of your father a time unlike any since Ephraim broke away from Judah—he will bring the king of Assyria.”
+¹² He will raise a banner for the nations
+and gather the exiles of Israel;
+he will assemble the scattered people of Judah
+from the four quarters of the earth.
+¹³ Ephraim’s jealousy will vanish,
+and Judah’s enemies will be destroyed;
+Ephraim will not be jealous of Judah,
+nor Judah hostile toward Ephraim.
+¹⁴ They will swoop down on the slopes of Philistia to the west;
+together they will plunder the people to the east.
+They will subdue Edom and Moab,
+and the Ammonites will be subject to them.
+¹⁵ The Lord will dry up
+the gulf of the Egyptian sea;
+with a scorching wind he will sweep his hand
+over the Euphrates River.
+He will break it up into seven streams
+so that anyone can cross over in sandals.
+¹⁶ There will be a highway for the remnant of his people
+that is left from Assyria,
+as there was for Israel
+when they came up from Egypt.
 
-**Assyria, the Lord’s Instrument**
-
-18 In that day the Lord will whistle for flies from the Nile delta in Egypt and for bees from the land of Assyria. 19 They will all come and settle in the steep ravines and in the crevices in the rocks, on all the thornbushes and at all the water holes. 20 In that day the Lord will use a razor hired from beyond the Euphrates River—the king of Assyria—to shave your head and private parts, and to cut off your beard also. 21 In that day, a person will keep alive a young cow and two goats. 22 And because of the abundance of the milk they give, there will be curds to eat. All who remain in the land will eat curds and honey. 23 In that day, in every place where there were a thousand vines worth a thousand silver shekels, there will be only briers and thorns. 24 Hunters will go there with bow and arrow, for the land will be covered with briers and thorns. 25 As for all the hills once cultivated by the hoe, you will no longer go there for fear of the briers and thorns; they will become places where cattle are turned loose and where sheep run.
 
 
 
 ### Sermon Outline
 
-Signs
-
-The problem of being human 
-
-God gives a sign 
-
-The sign of Christmas 
+- The World at Rest
+- Four surprises
+    - The bad guys
+    - The judge
+    - The Means
+    - The Direction 
+- Isaiah 11 and Us 
 
 
 
