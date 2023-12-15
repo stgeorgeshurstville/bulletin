@@ -12,7 +12,6 @@ order: 3
 
 
 - **Church Sermon**: Have mercy on us, O God, according to your steadfast love; according to your abundant mercy blot out our transgressions.
-
  _Wash us thoroughly from our iniquity, and cleanse us from our sin! For we know our transgressions, and our sin is ever before us._
  
  Against you, you only, have we sinned and done what is evil in your sight, so that you may be justified in your words and blameless in your judgement.
