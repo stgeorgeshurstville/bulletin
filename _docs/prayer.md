@@ -12,16 +12,27 @@ order: 3
 
 
 - **Church Sermon**: Have mercy on us, O God, according to your steadfast love; according to your abundant mercy blot out our transgressions.
+- 
 _Wash us thoroughly from our iniquity, and cleanse us from our sin! For we know our transgressions, and our sin is ever before us._
+
 Against you, you only, have we sinned and done what is evil in your sight, so that you may be justified in your words and blameless in your judgement.
+
 _Hide your face from our sins, and blot out all our iniquities._
+
 Create in us a clean heart, O God, and renew a right spirit within us.
+
 _Cast us not away from your presence, and take not your Holy Spirit from us._
+
 Restore to us the joy of your salvation, and uphold us with a willing spirit.
+
 _For you will not delight in sacrifice, or we would give it;_
+
 you will not be pleased with a burnt offering.
+
 _Our sacrifice, O God, is a broken spirit;_
+
 a broken and contrite heart, O God, you will not despise.
+
 Thank you for the coming of your Messiah, our Saviour. Thank you that he has taken up our pain and boren our transgressions, that he was pierced for our transgressions, crushed for our iniquities. Thank you that the punishment that brought us peace was on him, and by his wounds we are healed. 
 We pray that by the power of your Spirit, we will live lives worthy of our Lord. We long for the world to come to your Rest, and that the world will know you. We praise you for your patience. We pray that the Word of our Saviour will go out into all the world through your people that all may know You and your justice and mercy. In the name of your Son. 
  Amen. 
