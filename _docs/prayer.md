@@ -28,7 +28,7 @@ We pray that by the power of your Spirit, we will live lives worthy of our Lord.
 
 ## Weekly Prayer Points
   
-- [Others can be found here](https://stgeorgeshurstville.org.au/prayer)
+- Weekly prayer points can be found [here](https://stgeorgeshurstville.org.au/prayer)
 
 
 ## Mission Related Prayer Points
