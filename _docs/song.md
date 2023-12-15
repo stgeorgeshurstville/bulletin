@@ -4,15 +4,15 @@ order: 2
 ---
 
 ## 9:30am 
-1. Living hope
-2. And Can It Be
-3. Standing on the Promises of God
-4. O Come All Ye Faithful
+1. See Him Coming
+2. Shine Jesus Shine
+3. The Servant King
+4. O Come, all You Unfaithful
 
 ## 4pm 
-1. All Creatures of Our God and King
-2. Ancient of Days
-3. Only a Holy God
-4. Be Thou My Vision
+1. In Christ Alone
+2. All Glory Be to Christ
+3. Here We Stand
+4. Let Your Kingdom Come
    
 Check out the church spotify playlist [here](https://open.spotify.com/playlist/3gh0ZKXkJBDbNEnZqJJDXj?si=0908aa3f87544643)
