@@ -3,7 +3,6 @@ title: Welcome
 ---
 
 # Sermon Series: Worth Waiting For
-## Isaiah 7
 ### Safe at Last
 
 ![Christmas](https://raw.githubusercontent.com/stgeorgeshurstville/bulletin/main/images/ChristmasBackground.jpg)
