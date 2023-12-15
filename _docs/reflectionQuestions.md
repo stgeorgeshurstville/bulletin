@@ -10,23 +10,24 @@ The messiah of God will bring Rest to the World but through Judgement of the Gui
 1. What might a World at Rest look like? 
 
 Please read Isaiah 11
+
 2. How is the World at Rest pictured vv.6-9? 
 
-Is there anything surprising about this future? 
+- Is there anything surprising about this future? 
 
-How will God bring about Rest? 
+- How will God bring about Rest? 
 
-What will happen to the poor and meek, and the wicked?
+- What will happen to the poor and meek, and the wicked?
 
-How will the Messiah of God bring Rest to the world? 
+- How will the Messiah of God bring Rest to the world? 
 
-Why would the nations run towards the Judge? 
+- Why would the nations run towards the Judge? 
 
 4. What word of judgement would the Messiah pronounce on you - ‘guilty’ or ‘not guilty’?  
 
-	How does the Messiah rule the world today? 
+- How does the Messiah rule the world today? 
 
-	How would you live as someone who has been ‘justified’? 
+- How would you live as someone who has been ‘justified’? 
 
 
 
