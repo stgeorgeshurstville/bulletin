@@ -1,6 +1,6 @@
 ---
 title: Sermon 
-order: 1
+order: 2
 ---
 
 ## Bible Reading
