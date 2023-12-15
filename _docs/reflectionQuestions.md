@@ -7,13 +7,14 @@ order: 6
 The messiah of God will bring Rest to the World but through Judgement of the Guilty.   
 
 ### Questions
-1. What might a World at Rest look like? 
+1. What might a World at Rest look like?
+
 
 Please read Isaiah 11
 
 2. How is the World at Rest pictured vv.6-9? 
 
-- Is there anything surprising about this future? 
+3. Is there anything surprising about this future? 
 
 - How will God bring about Rest? 
 
