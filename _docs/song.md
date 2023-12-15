@@ -1,6 +1,6 @@
 ---
 title: Songs
-order: 2
+order: 1
 ---
 
 ## 9:30am 
