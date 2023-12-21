@@ -1,6 +1,6 @@
 ---
 title: Giving 
-order: 5
+order: 6
 ---
 
 #### For you know the grace of our Lord Jesus Christ, that though he was rich, yet for your sake he became poor, so that you through his poverty might become rich.
