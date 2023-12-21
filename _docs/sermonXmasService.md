@@ -8,7 +8,7 @@ order: 2
 ### Prayer
 
 
-### Bible Passage (replace)
+### Bible Passage 
 
 
 
