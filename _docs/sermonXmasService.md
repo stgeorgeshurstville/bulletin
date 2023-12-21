@@ -1,5 +1,5 @@
 ---
-title: Sermon - 25/12
+title: Sermon (25/12)
 order: 2
 ---
 
