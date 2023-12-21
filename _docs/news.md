@@ -1,6 +1,6 @@
 ---
 title: News
-order: 4
+order: 5
 ---
 
 ## Upcoming Dates
