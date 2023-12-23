@@ -10,7 +10,7 @@ title: Welcome
 ---
 #### To us a child is born, to us a son is given; and the government will be upon his shoulder, and his name will be called 'Wonderful, Counsellor, Mighty God.'
 
-##### Isaiah 9.6
+##### Isaiah 9:6
  
 
 ---
