@@ -8,9 +8,10 @@ title: Welcome
 ![Christmas](https://raw.githubusercontent.com/stgeorgeshurstville/bulletin/main/images/ChristmasBackground.jpg)
 
 ---
-#### Shower, I heaven, from above, and let the skies rain down righteousness; let the earth open, and bring forth salvation. 
+#### To us a child is born, to us a son is given; and the government will be upon his shoulder, and his name will be called 'Wonderful, Counsellor, Mighty God.'
 
-##### Isaiah 45.8
+##### Isaiah 9.6
+ 
 
 ---
 - We are gathering in person! For people who can’t gather in person, you can watch online [here](https://stgeorgeshurstville.org.au/sunday-english-online)
