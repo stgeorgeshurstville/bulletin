@@ -6,82 +6,31 @@ order: 2
 ## Bible Reading
 
 ### Prayer
-Thank you Father for making yourself known to us, showing us the way of salvation through faith in your Son. We ask you now to teach us through your word, so that we may be ready to serve you, for the glory of our Lord Jesus Christ. 
+Lord make your word our rule, your Spirit our teacher, and your glory our supreme concern, for the sake of our Saviour, the Lord Jesus Christ. **Amen.**
 
 
-### Isaiah 11
+### Matthew 1:18-25
 
-**The Branch From Jesse**
+**Joseph Accepts Jesus as His Son**
 
-A shoot will come up from the stump of Jesse;
-from his roots a Branch will bear fruit.
-² The Spirit of the Lord will rest on him—
-the Spirit of wisdom and of understanding,
-the Spirit of counsel and of might,
-the Spirit of the knowledge and fear of the Lord—
-³ and he will delight in the fear of the Lord.
+¹⁸ This is how the birth of Jesus the Messiah came about : His mother Mary was pledged to be married to Joseph, but before they came together, she was found to be pregnant through the Holy Spirit. ¹⁹ Because Joseph her husband was faithful to the law, and yet did not want to expose her to public disgrace, he had in mind to divorce her quietly.
 
-He will not judge by what he sees with his eyes,
-or decide by what he hears with his ears;
-⁴ but with righteousness he will judge the needy,
-with justice he will give decisions for the poor of the earth.
-He will strike the earth with the rod of his mouth;
-with the breath of his lips he will slay the wicked.
-⁵ Righteousness will be his belt
-and faithfulness the sash around his waist.
+²⁰ But after he had considered this, an angel of the Lord appeared to him in a dream and said, “Joseph son of David, do not be afraid to take Mary home as your wife, because what is conceived in her is from the Holy Spirit. ²¹ She will give birth to a son, and you are to give him the name Jesus, because he will save his people from their sins.”
 
-⁶ The wolf will live with the lamb,
-the leopard will lie down with the goat,
-the calf and the lion and the yearling together;
-and a little child will lead them.
-⁷ The cow will feed with the bear,
-their young will lie down together,
-and the lion will eat straw like the ox.
-⁸ The infant will play near the cobra’s den,
-and the young child will put its hand into the viper’s nest.
-⁹ They will neither harm nor destroy
-on all my holy mountain,
-for the earth will be filled with the knowledge of the Lord
-as the waters cover the sea.
+²² All this took place to fulfill what the Lord had said through the prophet: ²³ “The virgin will conceive and give birth to a son, and they will call him Immanuel” (which means “God with us”).
 
-¹⁰ In that day the Root of Jesse will stand as a banner for the peoples; the nations will rally to him, and his resting place will be glorious. ¹¹ In that day the Lord will reach out his hand a second time to reclaim the surviving remnant of his people from Assyria, from Lower Egypt, from Upper Egypt, from Cush, from Elam, from Babylonia, from Hamath and from the islands of the Mediterranean.
-
-¹² He will raise a banner for the nations
-and gather the exiles of Israel;
-he will assemble the scattered people of Judah
-from the four quarters of the earth.
-¹³ Ephraim’s jealousy will vanish,
-and Judah’s enemies will be destroyed;
-Ephraim will not be jealous of Judah,
-nor Judah hostile toward Ephraim.
-¹⁴ They will swoop down on the slopes of Philistia to the west;
-together they will plunder the people to the east.
-They will subdue Edom and Moab,
-and the Ammonites will be subject to them.
-¹⁵ The Lord will dry up
-the gulf of the Egyptian sea;
-with a scorching wind he will sweep his hand
-over the Euphrates River.
-He will break it up into seven streams
-so that anyone can cross over in sandals.
-¹⁶ There will be a highway for the remnant of his people
-that is left from Assyria,
-as there was for Israel
-when they came up from Egypt.
+²⁴ When Joseph woke up, he did what the angel of the Lord had commanded him and took Mary home as his wife. ²⁵ But he did not consummate their marriage until she gave birth to a son. And he gave him the name Jesus.
 
 
 
 
 ### Sermon Outline
 
-- The World at Rest
-- Four surprises
-    - The bad guys
-    - The judge
-    - The Means
-    - The Direction 
-- Isaiah 11 and Us 
-
+- Waiting
+- Taking things for granted
+- Jesus is Abraham’s son who fulfills God’s promises
+- Jesus saves
+- Jesus allows God to be with us 
 
 
 ## Q&A
