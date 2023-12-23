@@ -15,30 +15,7 @@ order: 4
 
 - **Church Sermon**:
   
-Have mercy on us, O God, according to your steadfast love; according to your abundant mercy blot out our transgressions.
- _Wash us thoroughly from our iniquity, and cleanse us from our sin! For we know our transgressions, and our sin is ever before us._
- 
- Against you, you only, have we sinned and done what is evil in your sight, so that you may be justified in your words and blameless in your judgement.
- 
- _Hide your face from our sins, and blot out all our iniquities._
- 
- Create in us a clean heart, O God, and renew a right spirit within us.
- 
- _Cast us not away from your presence, and take not your Holy Spirit from us._
- 
- Restore to us the joy of your salvation, and uphold us with a willing spirit.
- 
- _For you will not delight in sacrifice, or we would give it;_
- 
- you will not be pleased with a burnt offering.
- 
- _Our sacrifice, O God, is a broken spirit;_
- 
- a broken and contrite heart, O God, you will not despise.
-
-Thank you for the coming of your Messiah, our Saviour. Thank you that he has taken up our pain and boren our transgressions, that he was pierced for our transgressions, crushed for our iniquities. Thank you that the punishment that brought us peace was on him, and by his wounds we are healed. 
-We pray that by the power of your Spirit, we will live lives worthy of our Lord. We long for the world to come to your Rest, and that the world will know you. We praise you for your patience. We pray that the Word of our Saviour will go out into all the world through your people that all may know You and your justice and mercy. In the name of your Son. 
- Amen. 
+Father God. We thank you that you’ve been faithful to your promises. That in Jesus our waiting is over. That Jesus is the one who fulfills our longings and ends our suffering. That he saves us from our sins and allows us to be with God. May we not take this for granted. May we keep praising you for Jesus who became human so that we humans can be with God. Amen. 
 
 ## Weekly Prayer Points
   
@@ -46,21 +23,26 @@ We pray that by the power of your Spirit, we will live lives worthy of our Lord.
 
 
 ## Mission Related Prayer Points
-- **JC in SE Asia:** You call us to make and mature disciples of all nations. We ask that you’ll allow JC to courageously, lovingly and prayerfully share the gospel in a country where evangelism is not allowed and even publicly practising one’s faith is difficult. May you soften the hearts of the authorities and the people so that they’ll hear and accept the peace, purpose and real spiritual prosperity in Jesus. May you raise up Christians and leaders in the university and church. 
+- **Hurstville:** We pray that the 30,000 people in Hurstville, with many from different cultures and countries, will come to know Jesus as their Lord and Saviour. May we have a heart for the people you have placed around us. May we be lights in our neighbourhood which is in darkness and filled with anxiety and uncertainty. May we be mindful of the changing demographics and seek to share the gospel with them. May Chris Minns (NSW Premier and Legislative Assembly Member for Kogarah), Linda Burney (House Representative for Barton), David Coleman (House Representative for Banks) and Nick Katris (Mayor) know God as the one with ultimate authority and serve with love, justice and wisdom. 
 
+- **Local High School Scripture with Aywan:** Loving Father, we thank you that you want all people to come to a saving knowledge of you. We ask that the high schoolers in our area (especially at Hurstville Boys, Sydney Tech and Oatley High) will see Jesus as the way, the truth and the life. May you help students to find their identity and security in Jesus particularly when things get busy, life doesn’t work out as planned and things may seem confusing and meaningless. We pray that Aywan Suleiman will passionately and faithfully teach and model the gospel of love to the students and the people around him. We praise you for allowing a group at Oatley to start up. We ask that you’ll grow the number of students who get to hear about Jesus including the Year 7 group at Hurstville Boys. May there be a suitable candidate for our high school scripture apprentice [more info here:](https://su.org.au/job-details/query/sre-teacher-st-george-area-scripture-intern%20program/in/australia/9151004/). May all find their wisdom in Jesus. 
+
+- **Papua New Guinea and Mathys:** Father God, we realise that all flesh is like grass yet your word remains forever. We ask that you will use the Mathys and other bible translators to transform PNG for Jesus with your precious and powerful word. We pray that Petra, Andi and Jakob will keep growing in Christ and being missional. May the 17 million people in PNG come to know Christ as their Lord and Saviour. Please help the locals to cope with the rising cost of living and uncertainties in the future. Praise you that their medical checkup were good. May the aviation department overcome its current challenges such as staff shortages and financial shortfalls and may Calvin be able to sleep better and feel less anxious. 
+  
 - You can go [here](https://stgeorgeshurstville.org.au/mission-partners) for more information on how to pray, support and give
 
 
 ## Regular Prayer Points
-- **Government**: You are the ruler of all the nations. May you prosper and direct the work of our Government so that you’ll be glorified; people will be safe; and that there’ll be prosperity, peace, happiness, truth, justice, love and compassion. May they enact laws and initiatives so that the orphans, widows and harassed are looked after. May they be good stewards as they plan in a way that looks after the earth and takes into consideration future generations. May they reward good and punish evil. As citizens, may we pay taxes to Caesar and give to God what belongs to him. As Christians, may we submit to their authority as we hold out the word of life and ultimately submit to you.
+- **Disciple Groups:** Pray that the seed of God’s word will be planted and watered this term. May we have clear direction, wisdom and discipline as we rebuild our discipleship ministry and represent Jesus. May we keep growing up, out and deep even when most groups are on break. 
 
-- **Children**: Praise God for all the children at St George’s. Please grow in their hearts a love and desire for Jesus and God’s Word. Give strength to parents to disciple their children by modelling Christ-likeness in all of life. We pray for the NewGen leaders to genuinely love the kids. 
+- **Pastoral Care Team:** Father, you sent your Son to heal the brokenhearted. May we cast our burdens and anxieties upon you knowing that you can sympathise with our weaknesses and care for us. May the peace of God sustain us as we bear the hope of the gospel, point people to heaven and carry each other’s burdens. 
 
-- **Youth**: Our Father, you’ve called us out of darkness into your marvellous light. May our youths and families find their strength and security in Christ and be a light in a world of darkness and at times feelings of hopelessness. May Jesus be their ultimate treasure especially in a changing and challenging world with many competing priorities and temptations. May you help them to be firm in their faith and courageous in their witness. May we be a church family who are joyful and godly witnesses as we aim to be transformed together and represent Jesus.
+- **People with Disabilities:** Thank you that all people are made in your image. We pray for those with disabilities that they would know their true value as your image-bearer. We pray that your love in Jesus will heal them of their experience and rejection and pain. We pray that they will know of Jesus’ sufficiency in their experience of chronic pain and suffering, that they will learn to form healthy relationships. We pray for forgiveness for the ways that we have often treated people with disabilities. Please help us to be like Jesus in welcoming those with disabilities into our church and lives. Please open our eyes to see them as whole human beings. Please help us to learn from those with disabilities as well as minister to them. We pray that by our love for one another, the world may see you. We look forward to the day when Jesus returns, when we will be given Resurrection bodies. Amen.
 
-- **SRE**: Gracious Father, thank you for the unique and wonderful privilege to be invited to teach about Jesus in our local public school. May we never take this for granted. Give our combined Christian teacher team (Lam, Carol, George, Alice, Tracey, Glorya, Fiona, and Andrew) rest over the holidays and please raise up more workers for the harvest field.
+- **Support Ministries:** Everlasting God, we give thanks for the many volunteers who have been faithfully serving in different ministries at church especially in this challenging period of time. Please strengthen and sustain them with patience and understanding that they may love and care for your people. Please grant that together they may follow and help others to follow Jesus Christ. May they offer their given gifts and talents to build up the church which is the body of Christ. We ask this for the communication, vestry, cleaning, flower, bulletin, meals, AV, sound, technology and other teams. May people come under the wings of your love and salvation. 
   
-- **Mandarin Congregation**: Lord, we thank you for the number of brothers and sisters at the 11am and 4pm Mandarin congregations who are getting baptised this Sunday. We praise you for saving them in Christ and we pray that  Christ and pray that their love may abound more and more in knowledge and depth of insight, so that you may be able to discern what is best and may be pure and blameless until the day of Christ, filled with the fruit of righteousness that comes through Jesus Christ--to the glory and praise of God.
-We pray for the Christmas Celebration of our Mandarin congregations at 4pm next Sunday, that in your mercy you may bring many non-Christians to come and hear the good news of Jesus. We pray that there may be lots of good gospel conversations after. We pray for the follow-up team that they may help the non-Christians to investigate further the truth of Christianity and follow-up those who have committed to following Jesus.
+- **New Life Nepalese Church:** We thank you for our Nepalese brothers and sisters who share our building. May they grow in their knowledge of your love for them and continue to speak the truth in love to their community. We pray that through their ministry, many more Nepalese would come to serve the Lord Jesus Christ, as we do.
+  
+- **Singles, Widows and Orphans:** We praise you, God of love and the creator of the universe, for making us male and female, and giving us the gift of each other. We pray for those who, like our Lord Jesus Christ, are unmarried; either by external factors, their own decision and/or devotion to you. Lord, we praise you for the new family you have created, the household of all who believe in your Son. Father, help us to love one another in deep and meaningful friendships that no one may feel alone or without the joy of companionship. Deepen our trust in your provision for all our needs so that we may live in contentment until we all come to your eternal kingdom; through Jesus Christ our Lord.
 
 
