@@ -4,31 +4,15 @@ order: 7
 ---
 
 ### Big Idea: 
-The messiah of God will bring Rest to the World but through Judgement of the Guilty.   
+ Jesus saves and allows us to be with God. 
 
 ### Questions
-1. What might a World at Rest look like?
+1. What are you waiting for? Why? 
+2. Have you taken Jesus for granted? Why? What does this look like in your life? 
+3. Why were people waiting for Jesus? 
+4. What does Jesus saving our sins mean (or should mean) for you? 
+5. What does Jesus allowing God to be with us mean (or should mean) for you? 
 
-
-Please read Isaiah 11
-
-2. How is the World at Rest pictured vv.6-9? 
-
-3. Is there anything surprising about this future? 
-
-- How will God bring about Rest? 
-
-- What will happen to the poor and meek, and the wicked?
-
-- How will the Messiah of God bring Rest to the world? 
-
-- Why would the nations run towards the Judge? 
-
-4. What word of judgement would the Messiah pronounce on you - ‘guilty’ or ‘not guilty’?  
-
-- How does the Messiah rule the world today? 
-
-- How would you live as someone who has been ‘justified’? 
 
 
 
