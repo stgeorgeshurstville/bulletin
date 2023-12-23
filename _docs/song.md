@@ -4,15 +4,15 @@ order: 1
 ---
 
 ## 9:30am 
-1. See Him Coming
-2. Shine Jesus Shine
-3. The Servant King
-4. O Come, all You Unfaithful
+1. Jesus Strong & Kind
+2. Jesus Saves
+3. O come, all you Unfaithful
+4. Hark The Herald
 
 ## 4pm 
-1. In Christ Alone
-2. All Glory Be to Christ
-3. Here We Stand
-4. Let Your Kingdom Come
+1. God Is For Us
+2. Be Thou my Vision
+3. It Was Finished Upon That Cross
+4. Once For All
    
 Check out the church spotify playlist [here](https://open.spotify.com/playlist/3gh0ZKXkJBDbNEnZqJJDXj?si=0908aa3f87544643)
