@@ -3,7 +3,7 @@ title: Welcome
 ---
 
 # Sermon Series: Worth Waiting For
-### Safe at Last
+### The Wait Is Over
 
 ![Christmas](https://raw.githubusercontent.com/stgeorgeshurstville/bulletin/main/images/ChristmasBackground.jpg)
 
