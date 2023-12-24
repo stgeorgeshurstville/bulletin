@@ -7,11 +7,11 @@ order: 7
  Jesus saves and allows us to be with God. 
 
 ### Questions
-1. What are you waiting for? Why? 
-2. Have you taken Jesus for granted? Why? What does this look like in your life? 
-3. Why were people waiting for Jesus? 
-4. What does Jesus saving our sins mean (or should mean) for you? 
-5. What does Jesus allowing God to be with us mean (or should mean) for you? 
+1. 
+2. 
+3. 
+4. 
+5. 
 
 
 
