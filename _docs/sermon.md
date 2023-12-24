@@ -31,7 +31,10 @@ who will shepherd my people Israel.’ ”
 
 
 ### Sermon Outline
-
+The greatest treasure in the whole wide world is....
+- 3 response to Jesus 
+- God's social media post 
+- Two ways to live
  
 
 
