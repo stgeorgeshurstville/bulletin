@@ -8,9 +8,9 @@ title: Welcome
 ![Christmas](https://raw.githubusercontent.com/stgeorgeshurstville/bulletin/main/images/ChristmasBackground.jpg)
 
 ---
-#### To us a child is born, to us a son is given; and the government will be upon his shoulder, and his name will be called 'Wonderful, Counsellor, Mighty God.'
+#### Shower, I heaven, from above, and let the skies rain down righteousness; let the earth open, and bring forth salvation. 
 
-##### Isaiah 9:6
+##### Isaiah 45:8
  
 
 ---
