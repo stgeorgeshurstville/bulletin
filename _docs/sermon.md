@@ -6,36 +6,25 @@ order: 2
 ## Bible Reading
 
 ### Prayer
+Lord make your word our rule, your Spirit our teacher, and your glory our supreme concern, for the sake of our Saviour, the Lord Jesus Christ. Amen.
 
 
+### Matthew 28:16-20
 
-### Matthew 2:1-12
+**The Great Commission**
 
-**The Magi Visit the Messiah**
-
-² After Jesus was born in Bethlehem in Judea, during the time of King Herod, Magi from the east came to Jerusalem ² and asked, “Where is the one who has been born king of the Jews? We saw his star when it rose and have come to worship him.”
-
-³ When King Herod heard this he was disturbed, and all Jerusalem with him. ⁴ When he had called together all the people’s chief priests and teachers of the law, he asked them where the Messiah was to be born. ⁵ “In Bethlehem in Judea,” they replied, “for this is what the prophet has written:
-
-⁶ “‘But you, Bethlehem, in the land of Judah,
-are by no means least among the rulers of Judah;
-for out of you will come a ruler
-who will shepherd my people Israel.’ ”
-
-⁷ Then Herod called the Magi secretly and found out from them the exact time the star had appeared. ⁸ He sent them to Bethlehem and said, “Go and search carefully for the child. As soon as you find him, report to me, so that I too may go and worship him.”
-
-⁹ After they had heard the king, they went on their way, and the star they had seen when it rose went ahead of them until it stopped over the place where the child was. ¹⁰ When they saw the star, they were overjoyed. ¹¹ On coming to the house, they saw the child with his mother Mary, and they bowed down and worshipped him. Then they opened their treasures and presented him with gifts of gold, frankincense and myrrh. ¹² And having been warned in a dream not to go back to Herod, they returned to their country by another route.
+The Great Commission
+¹⁶ Then the eleven disciples went to Galilee, to the mountain where Jesus had told them to go. ¹⁷ When they saw him, they worshiped him; but some doubted. ¹⁸ Then Jesus came to them and said, “All authority in heaven and on earth has been given to me. ¹⁹ Therefore go and make disciples of all nations, baptizing them in the name of the Father and of the Son and of the Holy Spirit, ²⁰ and teaching them to obey everything I have commanded you. And surely I am with you always, to the very end of the age.”
 
 
 
 
 
 ### Sermon Outline
-The greatest treasure in the whole wide world is....
-- 3 response to Jesus 
-- God's social media post 
-- Two ways to live
- 
+- Hotcross buns and Christmas tree
+- The goodnews of Christmas 
+- Come on and follow 
+
 
 
 ## Q&A
