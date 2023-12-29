@@ -9,7 +9,7 @@ order: 4
 
 - **Collect**: Lord, mercifully receive the prayers of your people who call upon you; and grant that we may perceive and know what things we ought to do, and also may have grace and power faithfully to perform them; through Jesus Christ our Lord. Amen.
 
-**Mission**: Our gracious Father, thank you for the privilege of calling us to join in your mission. Thank you that under you what we do makes a difference in the world. We pray therefore that you will save those around us and to transform them into the likeness of Jesus. Please use us to make disciples of the nations, love our neighbours. Please Father, glorify yourself, through our labour in your Son. We pray that we will not be consumers but contributors to the ministries that you have called us to. 
+- **Mission**: Our gracious Father, thank you for the privilege of calling us to join in your mission. Thank you that under you what we do makes a difference in the world. We pray therefore that you will save those around us and to transform them into the likeness of Jesus. Please use us to make disciples of the nations, love our neighbours. Please Father, glorify yourself, through our labour in your Son. We pray that we will not be consumers but contributors to the ministries that you have called us to. 
 
 - **Church Sermon**:Our Father in heaven. Thank you for sending Jesus to me. Thank you that he died for my sins. Thank you for raising him from death. Thank you that through Jesus, you have invited us into life with you. I have decided to follow Jesus into that life. Please help me to keep following Jesus. We long for others to follow Jesus, especially people we love and care about, but also strangers. We look forward to the day when the whole world will know and worship you. Amen. 
 
