@@ -8,7 +8,7 @@ title: Welcome
 ![Christmas](https://raw.githubusercontent.com/stgeorgeshurstville/bulletin/main/images/ChristmasBackground.jpg)
 
 ---
-**In your relationships with one another, have the same mindset as Christ Jesus:
+_In your relationships with one another, have the same mindset as Christ Jesus:
 Who, being in very nature God,
     did not consider equality with God something to be used to his own advantage;
 rather, he made himself nothing
@@ -17,14 +17,14 @@ rather, he made himself nothing
 And being found in appearance as a man,
     he humbled himself
     by becoming obedient to death—
-        even death on a cross!
+        even death on a cross!_
 
-Therefore God exalted him to the highest place
+_Therefore God exalted him to the highest place
     and gave him the name that is above every name,
 that at the name of Jesus every knee should bow,
     in heaven and on earth and under the earth,
 and every tongue acknowledge that Jesus Christ is Lord,
-    to the glory of God the Father.**
+    to the glory of God the Father._
 
 ##### Philippians 2:5-11
 
