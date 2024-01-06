@@ -7,7 +7,7 @@ order: 5
 
 | Date | Event |
 | ----- | ----- |
-| **JANUARY** | |
+| **JANUARY** | 
 | SUN Jan 7 | All Gen Service |
 | SUN Jan 28 | All Gen Service |
 
