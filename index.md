@@ -8,6 +8,7 @@ title: Welcome
 As soon as Jesus was baptized, he went up out of the water. At that moment heaven was opened, and he saw the Spirit of God descending like a dove and alighting on him. And a voice from heaven said, “This is my Son, whom I love; with him I am well pleased.”. 
 Matthew 3:16-17 
 
+![image](https://github.com/stgeorgeshurstville/bulletin/assets/119166299/ba5db2b5-fa39-44ff-adeb-019365034bba)
 
  
 
