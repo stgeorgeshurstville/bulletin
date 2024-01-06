@@ -8,7 +8,7 @@ order: 7
 
 ### Questions
 1. How is busyness affecting you and those around you?
-2. What did Martha and Mary choose to do when JEsus visited them?
+2. What did Martha and Mary choose to do when Jesus visited them?
 3. Why was Mary’s choice better than Martha’s?
 4. What does it mean to come to Jesus for rest? 
 
