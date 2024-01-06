@@ -8,6 +8,10 @@ order: 2
 ### Prayer
 Thank you Father for making yourself known to us, showing us the way of salvation through faith in your Son. We ask you now to teach us through your word, so that we may be ready to serve you, for the glory of our Lord Jesus Christ. **Amen**.
 
+### Before the reading
+![image](https://github.com/stgeorgeshurstville/bulletin/assets/119166299/71c12c9a-e79a-4845-9dab-fbc29880603d)
+If you were stuck on a desert island...
+
 
 ### Luke 10:38-42 (NIRV) 
 
