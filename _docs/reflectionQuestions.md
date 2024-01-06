@@ -4,7 +4,7 @@ order: 7
 ---
 
 ### Big Idea: 
- Busyness is bad and sadly part of life. Come to JEsus, everyone is tired and are carrying heavy loads. He will give you rest.
+ Busyness is bad and sadly part of life. Come to Jesus, everyone is tired and are carrying heavy loads. He will give you rest.
 
 ### Questions
 1. How is busyness affecting you and those around you?
