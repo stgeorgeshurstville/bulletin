@@ -10,6 +10,7 @@ Thank you Father for making yourself known to us, showing us the way of salvatio
 
 ### Before the reading
 ![image](https://github.com/stgeorgeshurstville/bulletin/assets/119166299/71c12c9a-e79a-4845-9dab-fbc29880603d)
+
 If you were stuck on a desert island...
 
 
