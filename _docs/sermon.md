@@ -6,24 +6,24 @@ order: 2
 ## Bible Reading
 
 ### Prayer
-Lord make your word our rule, your Spirit our teacher, and your glory our supreme concern, for the sake of our Saviour, the Lord Jesus Christ. Amen.
+Thank you Father for making yourself known to us, showing us the way of salvation through faith in your Son. We ask you now to teach us through your word, so that we may be ready to serve you, for the glory of our Lord Jesus Christ. **Amen**.
 
 
-### Matthew 28:16-20
+### Luke 10:38-42 (NIRV) 
 
-**The Great Commission**
+**Jesus at the Home of Martha and Mary**
 
-¹⁶ Then the eleven disciples went to Galilee, to the mountain where Jesus had told them to go. ¹⁷ When they saw him, they worshiped him; but some doubted. ¹⁸ Then Jesus came to them and said, “All authority in heaven and on earth has been given to me. ¹⁹ Therefore go and make disciples of all nations, baptizing them in the name of the Father and of the Son and of the Holy Spirit, ²⁰ and teaching them to obey everything I have commanded you. And surely I am with you always, to the very end of the age.”
+³⁸ Jesus and his disciples went on their way. Jesus came to a village where a woman named Martha lived. She welcomed him into her home. ³⁹ She had a sister named Mary. Mary sat at the Lord’s feet listening to what he said. ⁴⁰ But Martha was busy with all the things that had to be done. She came to Jesus and said, “Lord, my sister has left me to do the work by myself. Don’t you care? Tell her to help me!”
 
+⁴¹ “Martha, Martha,” the Lord answered. “You are worried and upset about many things. ⁴² But few things are needed. Really, only one thing is needed. Mary has chosen what is better. And it will not be taken away from her.”
 
 
 
 
 ### Sermon Outline
-- Hotcross buns and Christmas tree
-- The goodnews of Christmas 
-- Come on and follow 
-
+- Chosen the best
+- Problem of being 'too' busy
+- Choose th best when you're too busy
 
 
 ## Q&A
