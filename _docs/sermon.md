@@ -28,7 +28,7 @@ If you were stuck on a desert island...
 ### Sermon Outline
 - Chosen the best
 - Problem of being 'too' busy
-- Choose th best when you're too busy
+- Choose the best when you're too busy
 
 
 ## Q&A
