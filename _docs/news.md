@@ -9,15 +9,16 @@ order: 5
 | ----- | ----- |
 | **JANUARY** | 
 | SUN Jan 7 | All Gen Service |
+| SUN Jan 14 | Kids Holiday Program |
+| SUN Jan 16 | Kids Holiday Program |
 | SUN Jan 28 | All Gen Service |
 
 ## General
 
-- **Pastor Bain**: Please thank God with us for the formal start of Pastor Bain’s ministry. Pastor Bain will be responsible for leading the Cantonese ministry. It will take some time for him to settle into his role, as he works out his priorities. Please continue to pray for our brother and his family, and for Pastor Tim (as he continues to transition to his role in pastoral counselling). If you wish to express your encouragement to Pastor Bain or contact him regarding Cantonese ministry, you can reach him on bain.lam@stgeorgeshurstville.org.au
-- **Collection from Market**: Despite the hot weather last weekend over the course of our Christmas Markets, we are grateful for the participation of every volunteer and the generosity of all stalls that had decided to donate all their proceeds towards Anglicare and Hurstville Public School. We were able to surpass last year and had raised a total of $4,419.80
-- **Collection from Christmas for Anglicare**: We are thankful for raising funds during Christmas which will go towards helping Anglicare love others and proclaim the good news.  
-- **Summer Holidays: All Gen Services will be on: 7 Jan and 28 Jan** We will be running a simple summer holiday program for children from Preschool to Year 6 (2023 school grade) during 14 and 21 January 2024. We are asking church adults to give one Sunday at either 9:30am, 11am or 4pm to come hang out and play with the kids. Please speak with Carol, Brian or June to find out more. 
-- **Coffee Cart**: We are serving baristas coffee after 9:30am church today. Order your coffee at the sign-in area. $3 (small) $4 (large). Why not buy coffee for someone you don’t know?
+- **Collection from Christmas for Anglicare**: We are thankful for raising $1779 during Christmas which will go towards helping Anglicare love others and proclaim the good news.  
+- **Summer Holidays**: We will be running a simple summer holiday program for children from Preschool to Year 6 (2023 school grade) during 14 and 21 January 2024. We are asking church adults to give one Sunday at either 9:30am, 11am or 4pm to come hang out and play with the kids. Please speak with Carol, Brian or June to find out more. 
+- **Pastor Brian:** Pastor Brian will be on leave…
+- **Sunday Dinners:** We won’t have the option to order take away boxes in January due to the team being away. You can still keep using the Hall and bring your own dinner or get food elsewhere as we continue to meet and spur each other on. 
 
 - **Growing in Our Welcoming**
 
