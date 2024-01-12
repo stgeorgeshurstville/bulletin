@@ -34,8 +34,5 @@ order: 5
 ## Ongoing Events
 - **Services in Different Languages:** Cantonese on Sat 3pm and Sun 9:30am, Mandarin Sun 11am and Nepalese Sun 5pm. 
 - **Morning Tea:**  Served after the 9:30am Service. We’d love for you to join us. We’ll be serving coffee.
-- **Meals**: Join us as we continue to encourage each other over lunch and dinner after our Services. The deadline for the coming Sunday's order is Saturday 12pm noon. Please pre-order by filling in these forms:
-   - Lunch Order [here](https://tinyurl.com/sunlunches)
-   - Dinner Order [here](https://tinyurl.com/sundinners)
 
 
