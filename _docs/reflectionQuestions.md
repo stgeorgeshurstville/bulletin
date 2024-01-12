@@ -4,13 +4,18 @@ order: 7
 ---
 
 ### Big Idea: 
- Busyness is bad and sadly part of life. Come to Jesus, everyone is tired and are carrying heavy loads. He will give you rest.
+Be embraced by the Father. 
 
 ### Questions
-1. How is busyness affecting you and those around you?
-2. What did Martha and Mary choose to do when Jesus visited them?
-3. Why was Mary’s choice better than Martha’s?
-4. What does it mean to come to Jesus for rest? 
+1.     What bad things have you done? 
+2.     How bad are you? 
+3.     How have you sinned against God and others (v18)? 
+4.     How bad was the younger son? 
+5.     Have you ever repented like the younger son? 
+6.     How often do you repent like the younger son?  
+7.     How good is God (how is the Father in the story portrayed)? 
+8.     Do you think God will accept you? 
+9.     What does being alive and found mean and look like for you?  
 
 
 
