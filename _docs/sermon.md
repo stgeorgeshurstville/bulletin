@@ -6,30 +6,27 @@ order: 2
 ## Bible Reading
 
 ### Prayer
-Thank you Father for making yourself known to us, showing us the way of salvation through faith in your Son. We ask you now to teach us through your word, so that we may be ready to serve you, for the glory of our Lord Jesus Christ. **Amen**.
+Almighty God, we thank you for the gift of your holy word. May it be a lantern to our feet, a light to our paths, and strength to our lives. Take us and use us to love and serve all people in the power of the Holy Spirit and in the name of your Son Jesus Christ our Lord. **Amen**.
 
-### Before the reading
-![image](https://github.com/stgeorgeshurstville/bulletin/assets/119166299/71c12c9a-e79a-4845-9dab-fbc29880603d)
+### Luke 15:11-24 (NIV)
 
-If you were stuck on a desert island...
+**The Parable of the Lost Son**
 
+¹¹ Jesus continued: “There was a man who had two sons. ¹² The younger one said to his father, ‘Father, give me my share of the estate.’ So he divided his property between them.
 
-### Luke 10:38-42 (NIRV) 
+¹³ “Not long after that, the younger son got together all he had, set off for a distant country and there squandered his wealth in wild living. ¹⁴ After he had spent everything, there was a severe famine in that whole country, and he began to be in need. ¹⁵ So he went and hired himself out to a citizen of that country, who sent him to his fields to feed pigs. ¹⁶ He longed to fill his stomach with the pods that the pigs were eating, but no one gave him anything.
 
-**Jesus at the Home of Martha and Mary**
+¹⁷ “When he came to his senses, he said, ‘How many of my father’s hired servants have food to spare, and here I am starving to death! ¹⁸ I will set out and go back to my father and say to him: Father, I have sinned against heaven and against you. ¹⁹ I am no longer worthy to be called your son; make me like one of your hired servants.’ ²⁰ So he got up and went to his father.
 
-³⁸ Jesus and his disciples went on their way. Jesus came to a village where a woman named Martha lived. She welcomed him into her home. ³⁹ She had a sister named Mary. Mary sat at the Lord’s feet listening to what he said. ⁴⁰ But Martha was busy with all the things that had to be done. She came to Jesus and said, “Lord, my sister has left me to do the work by myself. Don’t you care? Tell her to help me!”
+“But while he was still a long way off, his father saw him and was filled with compassion for him; he ran to his son, threw his arms around him and kissed him.
 
-⁴¹ “Martha, Martha,” the Lord answered. “You are worried and upset about many things. ⁴² But few things are needed. Really, only one thing is needed. Mary has chosen what is better. And it will not be taken away from her.”
+²¹ “The son said to him, ‘Father, I have sinned against heaven and against you. I am no longer worthy to be called your son.’
 
-
-
+²² “But the father said to his servants, ‘Quick! Bring the best robe and put it on him. Put a ring on his finger and sandals on his feet. ²³ Bring the fattened calf and kill it. Let’s have a feast and celebrate. ²⁴ For this son of mine was dead and is alive again; he was lost and is found.’ So they began to celebrate.
 
 ### Sermon Outline
-- Chosen the best
-- Problem of being 'too' busy
-- Choose the best when you're too busy
-
+- Bad Boys
+- Forgiving Father
 
 ## Q&A
 Got questions or comments? Send them [here](https://tinyurl.com/SGHACQuestionsAnswers)
