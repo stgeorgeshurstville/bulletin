@@ -2,7 +2,7 @@
 title: Welcome
 ---
 
-# Sermon Series: What would Jesus says to...
+## What would Jesus says to...
 ### The Disappointed (Luke 15:11-24)
 
 #### All the earth worships you, O Lord most high; sings praises to you, and worships your holy Name. 
