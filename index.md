@@ -6,11 +6,7 @@ title: Welcome
 ### The Disappointed (Luke 15:11-24)
 
 #### All the earth worships you, O Lord most high; sings praises to you, and worships your holy Name. 
-
 ##### Psalm 66.4
-
-
-
 
 ---
 - We are gathering in person! For people who can’t gather in person, you can watch online [here](https://stgeorgeshurstville.org.au/sunday-english-online)
