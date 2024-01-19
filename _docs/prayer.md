@@ -7,7 +7,7 @@ order: 4
 
 - **Lord’s Prayer**: Our Father in heaven, hallowed be your name, your kingdom come, your will be done on earth as in heaven. Give us today our daily bread. Forgive us our sins as we forgive those who sin against us. Lead us not into temptation, but deliver us from evil. For the kingdom, the power, and the glory are yours now and forever.
 
-- **Collect**: Almighty and everlasting God, ruler of all things in heaven and earth, mercifully hear the supplications of your people, and grant us your peace all the days of our life; through Jesus Christ our Lord. Amen.
+- **Collect**: Almighty and everlasting God, mercifully look on our infirmities; and in all our dangers and necessities stretch out your right hand to help and defend us; through Jesus Christ our Lord. Amen.
 
 - **Growing Deep**: Oh Lord, how We love your law! Your word is a lamp to our feet and a light for our path. Thank you that Jesus has given us the Word of Eternal Life. Thank you that heaven and earth may pass away but our Lord’s words will never pass away. Please help us not to conform to the pattern of this world, but be transformed by the renewing of our minds by your Word. Please help us to deepen our understanding of and obedience to your Word.  
 
