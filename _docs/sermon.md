@@ -34,9 +34,9 @@ Lord make your word our rule, your Spirit our teacher, and your glory our suprem
 ### Sermon Outline
 - Context
 - Older Brother
-a.“became angry and refused to go in”
-b.“I’ve been slaving for you and never disobeyed”
-c.“so I could celebrate with my friends”
+1. “became angry and refused to go in”
+2. “I’ve been slaving for you and never disobeyed”
+3. “so I could celebrate with my friends”
 - Father
 
 ## Q&A
