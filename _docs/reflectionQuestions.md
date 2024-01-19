@@ -4,18 +4,18 @@ order: 7
 ---
 
 ### Big Idea: 
-Be embraced by the Father. 
+Rejoice in the relationship we have with God and who God is (rather than in our works or wages) as we see sinners saved. 
 
 ### Questions
-1. What bad things have you done?
-2. How bad are you?
-3. How have you sinned against God and others (v18)?
-4. How bad was the younger son?
-5. Have you ever repented like the younger son?
-6. How often do you repent like the younger son?
-7. How good is God (how is the Father in the story portrayed)?
-8. Do you think God will accept you?
-9. What does being alive and found mean and look like for you?  
+1. Do you see yourself more as the younger or older brother? 
+2. Why were the Pharisees and teachers of the law muttering against Jesus (15:1-3)?
+3. Do you ever get jealous when good things happen to bad people (those who don’t deserve it or deserve it as much as others)? 
+4. Do you think that God is unfair? 
+5. Do you ever think that you are ok with God based on anything apart from Jesus’ life, death and resurrection (e.g. reputation, ministry, upbringing, knowledge, generosity etc)? 
+6. What’s stopping you from trusting in Jesus (especially positive things like your track record, good works, comfort etc)? 
+7. Similarly, what’s stopping you from loving and welcoming others like God? 
+8. Do you realise what we have in Christ (cf Eph 1:3-10)? 
+9. How will this help you to trust God and love and rejoice like him? 
 
 
 
