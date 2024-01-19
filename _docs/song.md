@@ -4,10 +4,8 @@ order: 1
 ---
 
 ## 9:30am 
-1. Blessed Be Your Name
-2. Consider Christ
-3. Have Mercy On Me
-4. How Deep The Fathers Love For Us
+1. TBC
+
 
 ## 4pm 
 1. Rock of Ages
