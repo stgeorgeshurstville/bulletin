@@ -3,7 +3,7 @@ title: Welcome
 ---
 
 ## What would Jesus says to...
-### The Disappointed (Luke 15:11-24)
+### The Disappointed (Luke 15:11-32)
 
 #### All the earth worships you, O Lord most high; sings praises to you, and worships your holy Name. 
 ##### Psalm 66.4
