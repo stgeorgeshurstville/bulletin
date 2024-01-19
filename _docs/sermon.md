@@ -6,9 +6,9 @@ order: 2
 ## Bible Reading
 
 ### Prayer
-Almighty God, we thank you for the gift of your holy word. May it be a lantern to our feet, a light to our paths, and strength to our lives. Take us and use us to love and serve all people in the power of the Holy Spirit and in the name of your Son Jesus Christ our Lord. **Amen**.
+Lord make your word our rule, your Spirit our teacher, and your glory our supreme concern, for the sake of our Saviour, the Lord Jesus Christ. **Amen**.
 
-### Luke 15:11-24 (NIV)
+### Luke 15:11-32 (NIV)
 
 **The Parable of the Lost Son**
 
@@ -24,9 +24,20 @@ Almighty God, we thank you for the gift of your holy word. May it be a lantern t
 
 ²² “But the father said to his servants, ‘Quick! Bring the best robe and put it on him. Put a ring on his finger and sandals on his feet. ²³ Bring the fattened calf and kill it. Let’s have a feast and celebrate. ²⁴ For this son of mine was dead and is alive again; he was lost and is found.’ So they began to celebrate.
 
+²⁵ “Meanwhile, the older son was in the field. When he came near the house, he heard music and dancing. ²⁶ So he called one of the servants and asked him what was going on. ²⁷ ‘Your brother has come,’ he replied, ‘and your father has killed the fattened calf because he has him back safe and sound.’
+
+²⁸ “The older brother became angry and refused to go in. So his father went out and pleaded with him. ²⁹ But he answered his father, ‘Look! All these years I’ve been slaving for you and never disobeyed your orders. Yet you never gave me even a young goat so I could celebrate with my friends. ³⁰ But when this son of yours who has squandered your property with prostitutes comes home, you kill the fattened calf for him!’
+
+³¹ “‘My son,’ the father said, ‘you are always with me, and everything I have is yours. ³² But we had to celebrate and be glad, because this brother of yours was dead and is alive again; he was lost and is found.’”
+
+
 ### Sermon Outline
-- Bad Boys
-- Forgiving Father
+- Context
+- Older Brother
+  a. “became angry and refused to go in”
+  b. “I’ve been slaving for you and never disobeyed”
+  c. “so I could celebrate with my friends”
+- Father
 
 ## Q&A
 Got questions or comments? Send them [here](https://tinyurl.com/SGHACQuestionsAnswers)
