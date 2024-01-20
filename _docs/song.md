@@ -4,7 +4,7 @@ order: 1
 ---
 
 ## 9:30am 
-1. Pslam 96
+1. Psalm 96
 2. We Belong To The Day
 3. Amazing Grace (My Chains Are Gone)
 4. Behold The Lamb Of God
