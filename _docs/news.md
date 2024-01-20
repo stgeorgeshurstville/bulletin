@@ -11,6 +11,8 @@ order: 5
 | SUN Jan 21 | Kids Holiday Program |
 | SUN Jan 28 | All Gen Service |
 
+| Date | Event |
+| ----- | ----- |
 | **FEBURARY** | 
 | SUN Feb 4 | New Gen Recommences |
 | FRI Feb 9 | Youth Group Recommences |
