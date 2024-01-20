@@ -13,10 +13,10 @@ order: 5
 
 | **FEBURARY** | 
 | SUN Feb 4 | New Gen Recommences |
-| FRI Feb 9 5.30pm | Youth Group Recommences |
+| FRI Feb 9 | Youth Group Recommences |
 | SUN Feb 11 | Week Discipleship Group recommences |
-| SUN Feb 11 12.30pm | Mentoring All In recommences |
-| WED Feb 14 10am | English Classes recommences |
+| SUN Feb 11 | Mentoring All In recommences |
+| WED Feb 14 | English Classes recommences |
 
 ## General
 
