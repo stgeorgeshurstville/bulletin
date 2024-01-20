@@ -12,7 +12,7 @@ order: 5
 | SUN Jan 28 | All Gen Service |
 
 | Date | Event | Time |
-| ----- | ----- |
+| ----- | ----- | ----- |
 | **FEBURARY** | 
 | SUN Feb 4 | New Gen Recommences | 
 | FRI Feb 9 | Youth Group Recommences | 5.30pm |
