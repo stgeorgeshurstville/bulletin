@@ -8,10 +8,15 @@ order: 5
 | Date | Event |
 | ----- | ----- |
 | **JANUARY** | 
-| SUN Jan 7 | All Gen Service |
-| SUN Jan 14 | Kids Holiday Program |
 | SUN Jan 21 | Kids Holiday Program |
 | SUN Jan 28 | All Gen Service |
+
+| **FEBURARY** | 
+| SUN Feb 4 | New Gen Recommences |
+| FRI Feb 9 (5.30pm) | Youth Group Recommences |
+| SUN Feb 11 | Week Discipleship Group recommences |
+| SUN Feb 11 (12.30pm) | Mentoring All In recommences |
+| WED Feb 14 (10am) | English Classes recommences |
 
 ## General
 
