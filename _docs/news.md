@@ -14,6 +14,7 @@ order: 5
 | Date | Event | Time |
 | ----- | ----- | ----- |
 | **FEBURARY** | 
+| SAT Feb 3 | Working Bee |9am-1pm |
 | SUN Feb 4 | New Gen Recommences | 
 | FRI Feb 9 | Youth Group Recommences | 5.30pm |
 | SUN Feb 11 | Week Discipleship Group recommences |
