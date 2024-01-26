@@ -4,20 +4,14 @@ order: 7
 ---
 
 ### Big Idea: 
-Rejoice in the relationship we have with God and who God is (rather than in our works or wages) as we see sinners saved. 
+Jesus calls and invites us to come and follow Him. What would be your response to His invitation? 
 
 ### Questions
-1. Do you see yourself more as the younger or older brother? 
-2. Why were the Pharisees and teachers of the law muttering against Jesus (15:1-3)?
-3. Do you ever get jealous when good things happen to bad people (those who don’t deserve it or deserve it as much as others)? 
-4. Do you think that God is unfair? 
-5. Do you ever think that you are ok with God based on anything apart from Jesus’ life, death and resurrection (e.g. reputation, ministry, upbringing, knowledge, generosity etc)? 
-6. What’s stopping you from trusting in Jesus (especially positive things like your track record, good works, comfort etc)? 
-7. Similarly, what’s stopping you from loving and welcoming others like God? 
-8. Do you realise what we have in Christ (cf Eph 1:3-10)? 
-9. How will this help you to trust God and love and rejoice like him? 
-
-
+1. If Jesus walked into your daily life today and asked you to follow Him, how might your day change?
+2. Think about something Jesus might ask you to do that feels a bit scary or challenging. How can you overcome that fear?
+3. How can you be a "fisher of people" in your family and community? What actions can you take to make a positive impact on others?
+4. How do your dreams align with what you think Jesus wants you to do? How can you balance your dreams with following Jesus?
+5. Think about a challenge you're facing. How might Jesus help you through it? What steps can you take to trust Him in challenging times?
 
 
 ![Our Mission; Make disciples, Love Neighbors Glorify God. Our Vision; Growing up, Growing Deep, Growing Out](https://raw.githubusercontent.com/stgeorgeshurstville/bulletin/main/images/upload.JPG)
