@@ -16,7 +16,7 @@ order: 4
 
 ## Weekly Prayer Points
 - **School Holidays** May families grow in their relationship with God and each other. 
-- **Staff** (Brian Tung, Tim Chan and Elvin Hong) **on holidays.** May we have a good change of routine and keep growing up, deep and out.  
+- **Staff on holidays (Brian Tung, Tim Chan and Elvin Hong)** May we have a good change of routine and keep growing up, deep and out.  
 - Weekly prayer points can be found [here](https://stgeorgeshurstville.org.au/prayer)
 
 
