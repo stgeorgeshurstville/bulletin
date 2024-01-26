@@ -8,7 +8,6 @@ order: 5
 | Date | Event |
 | ----- | ----- |
 | **JANUARY** | 
-| SUN Jan 21 | Kids Holiday Program |
 | SUN Jan 28 | All Gen Service |
 
 | Date | Event | Time |
@@ -24,14 +23,15 @@ order: 5
 ## General
 
 - **Working Bee**: We had scheduled a working bee session on Feb. 3 Saturday 9am-1pm to help tidy up our church grounds as we begin the new term. Come along to volunteer anytime in between!  
-- **Rubbish**: Please place your rubbish in the wheelie bins to prevent wild life getting at it during the week.  
+- **Rubbish**: Please place your rubbish in the wheelie bins to prevent wild life getting at it during the week.
+- **Return and Earn**: A reminder to place your bottles and cans into the blue bins so that the monies can go towards ministry.
+-  **English Discipleship Groups**: Please go to our website to see what options are available. 
 - **Recommencement of Ministries:**
 1. NewGen: Sun 4 Feb. 
 2. Youth Group: Fri 9 Feb 5:30pm. 
 3. Discipleship Group: Week of Sun 11 Feb. 
 4. Mentoring All In: Sun 11 Feb 12:30pm.
 5. English Classes: Wed 14 Feb 10am.
-- **Summer Holidays:** All Gen Services will be on: 28 Jan. We will be running a simple summer holiday program for children from Preschool to Year 6 (2023 school grade) during 14 and 21 January 2024. Please bring  your children into the Church Hall and pick them up from the Church hall (9:30, 11am) or the ministry centre (4pm). Please speak with Carol, Brian or June to find out more. 
 - **Sunday Dinners:** We won’t have the option to order take away boxes in January due to the team being away. You can still keep using the Hall and bring your own dinner or get food elsewhere as we continue to meet and spur each other on. 
 
 - **Growing in Our Welcoming**
