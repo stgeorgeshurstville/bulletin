@@ -6,38 +6,27 @@ order: 2
 ## Bible Reading
 
 ### Prayer
-Lord make your word our rule, your Spirit our teacher, and your glory our supreme concern, for the sake of our Saviour, the Lord Jesus Christ. **Amen**.
+Heavenly Father, give us faith to receive your word, understanding to know what it means, and the will to put it into practice; through Jesus Christ our Lord. **Amen**.
 
-### Luke 15:11-32 (NIV)
+### Mark 1: 14-20 (NIRV)
 
-**The Parable of the Lost Son**
+**Jesus Preaches the Good News**
 
-¹¹ Jesus continued: “There was a man who had two sons. ¹² The younger one said to his father, ‘Father, give me my share of the estate.’ So he divided his property between them.
+¹⁴ After John was put in prison, Jesus went into Galilee. He preached the good news of God. ¹⁵ “The time has come,” he said. “The kingdom of God has come near. Turn away from your sins and believe the good news!”
 
-¹³ “Not long after that, the younger son got together all he had, set off for a distant country and there squandered his wealth in wild living. ¹⁴ After he had spent everything, there was a severe famine in that whole country, and he began to be in need. ¹⁵ So he went and hired himself out to a citizen of that country, who sent him to his fields to feed pigs. ¹⁶ He longed to fill his stomach with the pods that the pigs were eating, but no one gave him anything.
+**Jesus Chooses His First Disciples**
 
-¹⁷ “When he came to his senses, he said, ‘How many of my father’s hired servants have food to spare, and here I am starving to death! ¹⁸ I will set out and go back to my father and say to him: Father, I have sinned against heaven and against you. ¹⁹ I am no longer worthy to be called your son; make me like one of your hired servants.’ ²⁰ So he got up and went to his father.
+¹⁶ One day Jesus was walking beside the Sea of Galilee. There he saw Simon and his brother Andrew. They were throwing a net into the lake. They were fishermen. ¹⁷ “Come and follow me,” Jesus said. “I will send you out to fish for people.” ¹⁸ At once they left their nets and followed him.
 
-“But while he was still a long way off, his father saw him and was filled with compassion for him; he ran to his son, threw his arms around him and kissed him.
-
-²¹ “The son said to him, ‘Father, I have sinned against heaven and against you. I am no longer worthy to be called your son.’
-
-²² “But the father said to his servants, ‘Quick! Bring the best robe and put it on him. Put a ring on his finger and sandals on his feet. ²³ Bring the fattened calf and kill it. Let’s have a feast and celebrate. ²⁴ For this son of mine was dead and is alive again; he was lost and is found.’ So they began to celebrate.
-
-²⁵ “Meanwhile, the older son was in the field. When he came near the house, he heard music and dancing. ²⁶ So he called one of the servants and asked him what was going on. ²⁷ ‘Your brother has come,’ he replied, ‘and your father has killed the fattened calf because he has him back safe and sound.’
-
-²⁸ “The older brother became angry and refused to go in. So his father went out and pleaded with him. ²⁹ But he answered his father, ‘Look! All these years I’ve been slaving for you and never disobeyed your orders. Yet you never gave me even a young goat so I could celebrate with my friends. ³⁰ But when this son of yours who has squandered your property with prostitutes comes home, you kill the fattened calf for him!’
-
-³¹ “‘My son,’ the father said, ‘you are always with me, and everything I have is yours. ³² But we had to celebrate and be glad, because this brother of yours was dead and is alive again; he was lost and is found.’”
-
+¹⁹ Then Jesus walked a little farther. As he did, he saw James, the son of Zebedee, and his brother John. They were in a boat preparing their nets. ²⁰ Right away he called out to them. They left their father Zebedee in the boat with the hired men. Then they followed Jesus.
 
 ### Sermon Outline
-1. Context
-2. Older Brother
-- “became angry and refused to go in”
-- “I’ve been slaving for you and never disobeyed”
-- “so I could celebrate with my friends”
-3. Father
+What would Jesus say to you?
+1. Jesus and the Good News
+2. Jesus’ call and invitation
+3. The first disciples’ response
+4. Other possible responses
+5. Your response
 
 ## Q&A
 Got questions or comments? Send them [here](https://tinyurl.com/SGHACQuestionsAnswers)
