@@ -4,14 +4,16 @@ order: 7
 ---
 
 ### Big Idea: 
-Jesus calls and invites us to come and follow Him. What would be your response to His invitation? 
+Our prayer life reflects what we think about the One we pray to. The God of Jesus is vastly different to the god of our imagination. 
 
 ### Questions
-1. If Jesus walked into your daily life today and asked you to follow Him, how might your day change?
-2. Think about something Jesus might ask you to do that feels a bit scary or challenging. How can you overcome that fear?
-3. How can you be a "fisher of people" in your family and community? What actions can you take to make a positive impact on others?
-4. How do your dreams align with what you think Jesus wants you to do? How can you balance your dreams with following Jesus?
-5. Think about a challenge you're facing. How might Jesus help you through it? What steps can you take to trust Him in challenging times?
+1. Spend time discussing the theme for this year: secure attachment to Jesus’. What is it (and what isn’t it)? Why might this be helpful to you at the moment?  
+2. Please read Matthew 6:5-15. How does the context of this passage help us read this teaching on prayer? (Matthew 5:1,2) 
+3. Our prayer life reflects on what we think about whom we pray to. What is the difference between Christian prayer and the prayer of the hypocrite and of the pagan? 
+4. What is the god of the hypocrite and of the pagan from their prayers? 
+5. Who is it that Christian pray to? 
+6. What have you learned about who God is through Jesus’ teaching on prayer? What have you learned about prayer? 
+
 
 
 ![Our Mission; Make disciples, Love Neighbors Glorify God. Our Vision; Growing up, Growing Deep, Growing Out](https://raw.githubusercontent.com/stgeorgeshurstville/bulletin/main/images/upload.JPG)
