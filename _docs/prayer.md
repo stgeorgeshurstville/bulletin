@@ -7,7 +7,7 @@ order: 4
 
 - **Lord’s Prayer**: Our Father in heaven, hallowed be your name, your kingdom come, your will be done on earth as in heaven. Give us today our daily bread. Forgive us our sins as we forgive those who sin against us. Lead us not into temptation, but deliver us from evil. For the kingdom, the power, and the glory are yours now and forever.
 
-- **Collect**: Lord God, you know us to be set in the midst of so many great dangers that by reason of the frailty of our nature we cannot always stand upright: grant us such strength and protection as may support us in all dangers and carry us through all temptations; through Jesus Christ our Lord. Amen.
+- **Collect**: Heavenly Father, keep your household the Church continually in your true religion; that those who lean only on the hope of your heavenly grace may always be defended by your mighty power; through Jesus Christ our Lord. Amen.
 
 - **Mission**: Our gracious Father, thank you for the privilege of calling us to join in your mission. Thank you that under you what we do makes a difference in the world. We pray therefore that you will save those around us and to transform them into the likeness of Jesus. Please use us to make disciples of the nations, love our neighbours. Please Father, glorify yourself, through our labour in your Son. We pray that we will not be consumers but contributors to the ministries that you have called us to. 
 
