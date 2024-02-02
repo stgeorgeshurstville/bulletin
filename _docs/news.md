@@ -22,8 +22,9 @@ order: 5
 
 ## General
 
-- **Working Bee**: We had scheduled a working bee session on Feb. 3 Saturday 9am-1pm to help tidy up our church grounds as we begin the new term. Come along to volunteer anytime in between!  
-- **Rubbish**: Please place your rubbish in the wheelie bins to prevent wild life getting at it during the week.
+- **Working Bee**: Thanks for helping!
+- **Mental Health Survey**: Our churches (in the Sydney and Illawarra region) along with Anglicare would like to better understand mental health issues in a church context so that we can better minister and support people who experience mental ill health. Please complete this 5-10 minute anonymous survey by 23 Feb. English survey [here](https://forms.office.com/pages/responsepage.aspx?id=a4TV9b2J40q7h6Ul8dVj90QCMbGsUj9FkEI8yvLTMORUMDlWT01EQ0pZMlAxVEIxTkNRUUZFMTZSTi4u&origin=QRCode&qrcodeorigin=presentation). Chinese survey [here]([https://forms.office.com/pages/responsepage.aspx?id=a4TV9b2J40q7h6Ul8dVj90QCMbGsUj9FkEI8yvLTMORUMDlWT01EQ0pZMlAxVEIxTkNRUUZFMTZSTi4u&origin=QRCode&qrcodeorigin=presentation](https://forms.office.com/pages/responsepage.aspx?id=a4TV9b2J40q7h6Ul8dVj90QCMbGsUj9FkEI8yvLTMORUQjFCSEtISkEyTEFMM0laQUhIMzcxTFRaOC4u&origin=QRCode&qrcodeorigin=presentation)).
+ 
 - **Return and Earn**: A reminder to place your bottles and cans into the blue bins so that the monies can go towards ministry.
 -  **English Discipleship Groups**: Please go to our website to see what options are available. 
 - **Recommencement of Ministries:**
