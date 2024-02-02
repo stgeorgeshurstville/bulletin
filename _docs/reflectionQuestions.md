@@ -19,7 +19,7 @@ What is the difference between Christian prayer and the prayer of the hypocrite 
 
 **Consider:**
 - Reflectively praying the Lord's Prayer daily.
-- Read and reflecting on C S Lewis’ essay on prayer [here] (https://inchristus.com/wp-content/uploads/2011/05/efficacy-of-prayer-cslewis.pdf).
+- Read and reflecting on C S Lewis’ essay on prayer [here](https://inchristus.com/wp-content/uploads/2011/05/efficacy-of-prayer-cslewis.pdf).
 
 
 ![Our Mission; Make disciples, Love Neighbors Glorify God. Our Vision; Growing up, Growing Deep, Growing Out](https://raw.githubusercontent.com/stgeorgeshurstville/bulletin/main/images/upload.JPG)
