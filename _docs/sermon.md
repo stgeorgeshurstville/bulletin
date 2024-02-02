@@ -8,7 +8,7 @@ order: 2
 ### Prayer
 Lord make your word our rule, your Spirit our teacher, and your glory our supreme concern, for the sake of our Saviour, the Lord Jesus Christ. **Amen**.
 
-### Mark 6:5-15 (NIRV)
+### Mark 6:5-15 (NIV)
 
 ⁵ Jesus placed his hands on a few sick people and healed them. But he could not do any other miracles there. ⁶ He was amazed because they had no faith.
 
