@@ -9,23 +9,21 @@ order: 4
 
 - **Collect**: Lord God, you know us to be set in the midst of so many great dangers that by reason of the frailty of our nature we cannot always stand upright: grant us such strength and protection as may support us in all dangers and carry us through all temptations; through Jesus Christ our Lord. Amen.
 
-- **Growing Out**: Please help us to take our faith in Jesus beyond the walls of the church into our workplace, school, where we live and where we holiday. Please help us to have a compassion for the lost like Jesus. Let us represent Jesus. 
+- **Mission**: Our gracious Father, thank you for the privilege of calling us to join in your mission. Thank you that under you what we do makes a difference in the world. We pray therefore that you will save those around us and to transform them into the likeness of Jesus. Please use us to make disciples of the nations, love our neighbours. Please Father, glorify yourself, through our labour in your Son. We pray that we will not be consumers but contributors to the ministries that you have called us to. 
 
-- **Church Sermon**: Dear Jesus, Thank you for your invitation and call to us - to come and follow you. May our response be like those of the first disciples, willingly surrendering our all to come and follow you all the days of our lives. Amen
+- **Church Sermon**: Almighty and everlasting God, you are always more ready to hear than we to pray and to give more than either we desire or deserve: pour down upon us the abundance of your mercy, forgiving us those things of which our conscience is afraid and giving us those good things which we are not worthy to ask but through the merits and mediation of Jesus Christ your Son our Lord, who is alive and reigns with you, in the unity of the Holy Spirit, one God, now and forever. Amen.
 
 
 ## Weekly Prayer Points
-- **School Holidays:** May families grow in their relationship with God and each other. 
-- **Staff on holidays (Brian Tung, Tim Chan and Elvin Hong)**. May we have a good change of routine and keep growing up, deep and out.  
-- Weekly prayer points can be found [here](https://stgeorgeshurstville.org.au/prayer)
-
+- **School starts**
+- Prayerfulness
+- Our vision for 2024 - Secure attachment to Jesus
+- Other prayer points can be found [here](https://stgeorgeshurstville.org.au/prayer)
 
 ## Mission Related Prayer Points
-- **Local High School Scripture with Aywan:** We ask that the high schoolers in our area (especially at Hurstville Boys, Sydney Tech and Oatley High) will see Jesus as their Saviour and Lord. Please help Aywan Suleiman tell people about Jesus. May there be many students who’ll enrol this year.
+- **World:** May you lead the nations of the world in the ways of righteousness and peace. Please guide our rulers in wisdom and justice. May there be peace and tranquillity so that we can live godly and holy lives and that people can come to the knowledge of the truth. May we submit to those you’ve placed in authority and ultimately to your reign and rule. May people live and long for the new world to come rather than seek to gain the world and forfeit our souls. 
 
-- **Papua New Guinea and Mathys:** Please use the Mathys to share Jesus in PNG as they translate the Bible and help with transportation. 
-- [You can go here for more information on how to pray, support and give](https://stgeorgeshurstville.org.au/mission-partners)
-
+- **Persecuted Christians:** We thank you for sending Jesus who is sovereign and came to save the world by sacrificing himself. Please give patience and perseverance to those who are being persecuted for the faith. We think of your people in North Korea, Somalia, Libya, Eritrea and Yemen. May they be a model and example of what it means to have a calling in life and a confidence for the future. You can sign up for more prayer points and updates of persecuted Christians from Open Doors (https://vom.com.au/pray-for-the-persecuted-church/) and Voice of the Martyrs (https://vom.com.au/prayer/). 
 
 ## Regular Prayer Points
 - **Hurstville:** May the 30,000 and growing number of people in Hurstville find salvation in Jesus. Please let us be interested and love the people around us. 
