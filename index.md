@@ -2,8 +2,8 @@
 title: Welcome
 ---
 
-## What would Jesus says to...
-### You (Mark 1: 14-20)
+## The Lord's Prayer
+### Overview of The Lord's Prayer (Matthew 6:5-15)
 
 #### O come, let us worship and bow down, let us kneel before the Lord, our Maker. For he is our God, and we are the peopel of his pasture, and the sheep of his hand. 
 
