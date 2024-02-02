@@ -5,11 +5,6 @@ order: 5
 
 ## Upcoming Dates
 
-| Date | Event |
-| ----- | ----- |
-| **JANUARY** | 
-| SUN Jan 28 | All Gen Service |
-
 | Date | Event | Time |
 | ----- | ----- | ----- |
 | **FEBURARY** | 
