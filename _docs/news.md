@@ -17,6 +17,7 @@ order: 5
 ## General
 
 - **Working Bee**: Thanks for helping!
+  
 - **Mental Health Survey**: Our churches (in the Sydney and Illawarra region) along with Anglicare would like to better understand mental health issues in a church context so that we can better minister and support people who experience mental ill health. Please complete this 5-10 minute anonymous survey by 23 Feb. English survey [here](https://forms.office.com/pages/responsepage.aspx?id=a4TV9b2J40q7h6Ul8dVj90QCMbGsUj9FkEI8yvLTMORUMDlWT01EQ0pZMlAxVEIxTkNRUUZFMTZSTi4u&origin=QRCode&qrcodeorigin=presentation). Chinese survey [here](https://forms.office.com/pages/responsepage.aspx?id=a4TV9b2J40q7h6Ul8dVj90QCMbGsUj9FkEI8yvLTMORUQjFCSEtISkEyTEFMM0laQUhIMzcxTFRaOC4u&origin=QRCode&qrcodeorigin=presentation).
  
 -  **English Discipleship Groups**: Join 😀 A great opportunity to spur each other on to love and good deeds. More information and to sign up [here](https://stgeorgeshurstville.org.au/discipleship-groups).
@@ -33,7 +34,6 @@ order: 5
 - **Coffee Cart**: We are serving baristas coffee after 9:30am church today. Order your coffee at the sign-in area. $3 (small) $4 (large). Why not buy coffee for someone you don’t know?
 
 - **Growing in Our Welcoming**
-
 
   <img width="236" alt="Screenshot 2023-07-01 134203" src="https://github.com/stgeorgeshurstville/bulletin/assets/119166299/b540ac1c-0ba4-481e-90a5-5464939f7e4c">
 
