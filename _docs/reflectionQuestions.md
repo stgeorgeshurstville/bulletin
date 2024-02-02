@@ -14,7 +14,7 @@ How does the context of this passage help us read this teaching on prayer? (Matt
 3. Our prayer life reflects on what we think about whom we pray to. 
 What is the difference between Christian prayer and the prayer of the hypocrite and of the pagan? 
 4. What is the god of the hypocrite and of the pagan from their prayers? 
-5. Who is it that Christian pray to? 
+5. Who is it that Christians pray to? 
 6. What have you learned about who God is through Jesus’ teaching on prayer? What have you learned about prayer? 
 
 **Consider:**
