@@ -35,6 +35,9 @@ order: 5
 5. English Classes: Wed 14 Feb 10am.
 
 - **Sunday Dinners:** We're grateful for those who have been serving us in organising the weekly dinners. However, we recognise that the way dinner has been done may not be working to facilitate connections and hospitality. So we will be discontinuing the catered dinners for Sunday nights for the moment. We love to hear from you on how this can be done better. Email (brian.tung@stgeorgehusrtville.org.au) or (alan.lam@stgeorgehurstville.org.au).
+
+- **Coffee Cart**: We are serving baristas coffee after 9:30am church today. Order your coffee at the sign-in area. $3 (small) $4 (large). Why not buy coffee for someone you don’t know?
+
 - **Growing in Our Welcoming**
 
 
