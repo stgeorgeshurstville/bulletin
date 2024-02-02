@@ -3,8 +3,5 @@ title: Meal Orders
 order: 8
 ---
 
-``` Church won’t be providing Sunday dinners (takeaway boxes) in the month of January. ```
+We're grateful for those who have been serving us in organising the weekly dinners. However, we recognise that the way dinner has been done may not be working to facilitate connections and hospitality. So we will be discontinuing the catered dinners for Sunday nights for the moment. We love to hear from you on how this can be done better. Please email (brian.tung@stgeorgehusrtville.org.au) or (alan.lam@stgeorgehurstville.org.au).
 
-Join us as we continue to encourage each other over lunch and dinner after our Services. The deadline for the coming Sunday's order is Saturday 12pm noon. Please pre-order by filling in these forms:
-   - Lunch Order [here](https://tinyurl.com/sunlunches)
-   - Dinner Order [here](https://tinyurl.com/sundinners) . Dinner will be served each week in the Hall after the 4pm services. Costs: $5.
