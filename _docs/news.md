@@ -13,7 +13,6 @@ order: 5
 | Date | Event | Time |
 | ----- | ----- | ----- |
 | **FEBURARY** | 
-| SAT Feb 3 | Working Bee |9am-1pm |
 | SUN Feb 4 | New Gen Recommences | 
 | FRI Feb 9 | Youth Group Recommences | 5.30pm |
 | SUN Feb 11 | Week Discipleship Group recommences |
@@ -26,7 +25,7 @@ order: 5
 - **Mental Health Survey**: Our churches (in the Sydney and Illawarra region) along with Anglicare would like to better understand mental health issues in a church context so that we can better minister and support people who experience mental ill health. Please complete this 5-10 minute anonymous survey by 23 Feb. English survey [here](https://forms.office.com/pages/responsepage.aspx?id=a4TV9b2J40q7h6Ul8dVj90QCMbGsUj9FkEI8yvLTMORUMDlWT01EQ0pZMlAxVEIxTkNRUUZFMTZSTi4u&origin=QRCode&qrcodeorigin=presentation). Chinese survey [here](https://forms.office.com/pages/responsepage.aspx?id=a4TV9b2J40q7h6Ul8dVj90QCMbGsUj9FkEI8yvLTMORUQjFCSEtISkEyTEFMM0laQUhIMzcxTFRaOC4u&origin=QRCode&qrcodeorigin=presentation).
  
 -  **English Discipleship Groups**: Join 😀 A great opportunity to spur each other on to love and good deeds. More information and to sign up [here](https://stgeorgeshurstville.org.au/discipleship-groups).
--  
+  
 - **Recommencement of Ministries:**
 1. NewGen: Sun 4 Feb. 
 2. Youth Group: Fri 9 Feb 5:30pm. 
@@ -50,6 +49,6 @@ order: 5
 - **Online Resources:** We are curating some resources on our website [here](https://stgeorgeshurstville.org.au/lets-talk-about-christianity).  
 
 ## Ongoing Events
-- **Services in Different Languages:** Cantonese on Sat 3pm and Sun 9:30am, Mandarin Sun 11am and Nepalese Sun 5pm. 
+- **Services in Different Languages:** Cantonese on Sat 3pm and Sun 9:30am, Mandarin Sun 11am and 4pm and Nepalese Sun 5pm. 
 - **Morning Tea:** Served after the 9:30am Service. We’d love for you to join us. We’ll be serving coffee.
 
