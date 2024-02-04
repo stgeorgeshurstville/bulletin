@@ -7,7 +7,7 @@ title: Welcome
 
 #### O come, let us worship and bow down, let us kneel before the Lord, our Maker. For he is our God, and we are the peopel of his pasture, and the sheep of his hand. 
 
-##### Psalm 95.6-7
+##### Psalm 95:6-7
 
 ---
 - We are gathering in person! For people who can’t gather in person, you can watch online [here](https://stgeorgeshurstville.org.au/sunday-english-online)
