@@ -8,25 +8,25 @@ order: 2
 ### Prayer
 Lord make your word our rule, your Spirit our teacher, and your glory our supreme concern, for the sake of our Saviour, the Lord Jesus Christ. **Amen**.
 
-### Mark 6:5-15 (NIV)
+### Matthew 6:5-15 (NIV)
 
-⁵ Jesus placed his hands on a few sick people and healed them. But he could not do any other miracles there. ⁶ He was amazed because they had no faith.
+**Prayer**
 
-**Jesus Sends Out the Twelve Disciples**
+⁵ “And when you pray, do not be like the hypocrites, for they love to pray standing in the synagogues and on the street corners to be seen by others. Truly I tell you, they have received their reward in full. ⁶ But when you pray, go into your room, close the door and pray to your Father, who is unseen. Then your Father, who sees what is done in secret, will reward you. ⁷ And when you pray, do not keep on babbling like pagans, for they think they will be heard because of their many words. ⁸ Do not be like them, for your Father knows what you need before you ask him.
 
-Jesus went around teaching from village to village. ⁷ He called the ¹² disciples to him. Then he began to send them out two by two. He gave them authority to drive out evil spirits.
+⁹ “This, then, is how you should pray:
 
-⁸ Here is what he told them to do. “Take only a walking stick for your trip. Do not take bread or a bag. Take no money in your belts. ⁹ Wear sandals. But do not take extra clothes. ¹⁰ When you are invited into a house, stay there until you leave town. ¹¹ Some places may not welcome you or listen to you. If they don’t, leave that place and shake the dust off your feet. That will be a witness against the people living there.”
-
-¹² They went out. And they preached that people should turn away from their sins. ¹³ They drove out many demons. They poured olive oil on many sick people and healed them.
-
-**John the Baptist’s Head Is Cut Off**
-
-¹⁴ King Herod heard about this. Jesus’ name had become well known. Some were saying, “John the Baptist has been raised from the dead! That is why he has the power to do miracles.”
-
-¹⁵ Others said, “He is Elijah.”
-
-Still others claimed, “He is a prophet. He is like one of the prophets of long ago.”
+“‘Our Father in heaven,
+hallowed be your name,
+¹⁰ your kingdom come,
+your will be done,
+on earth as it is in heaven.
+¹¹ Give us today our daily bread.
+¹² And forgive us our debts,
+as we also have forgiven our debtors.
+¹³ And lead us not into temptation, 
+but deliver us from the evil one. ’
+¹⁴ For if you forgive other people when they sin against you, your heavenly Father will also forgive you. ¹⁵ But if you do not forgive others their sins, your Father will not forgive your sins.
 
 ### Sermon Outline
 1. The canaries
