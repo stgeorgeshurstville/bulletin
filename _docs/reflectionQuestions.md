@@ -4,22 +4,16 @@ order: 7
 ---
 
 ### Big Idea: 
-Our prayer life reflects what we think about the One we pray to. The God of Jesus is vastly different to the god of our imagination. 
+Our Father in heaven hallowed be your name. 
 
 ### Questions
-1. Spend time discussing the theme for this year: secure attachment to Jesus’. 
-What is it (and what isn’t it)? Why might this be helpful to you at the moment?  
-2. Please read Matthew 6:5-15. 
-How does the context of this passage help us read this teaching on prayer? (Matthew 5:1,2) 
-3. Our prayer life reflects on what we think about whom we pray to. 
-What is the difference between Christian prayer and the prayer of the hypocrite and of the pagan? 
-4. What is the god of the hypocrite and of the pagan from their prayers? 
-5. Who is it that Christians pray to? 
-6. What have you learned about who God is through Jesus’ teaching on prayer? What have you learned about prayer? 
-
-**Consider:**
-- Reflectively praying the Lord's Prayer daily.
-- Read and reflecting on C S Lewis’ essay on prayer [here](https://inchristus.com/wp-content/uploads/2011/05/efficacy-of-prayer-cslewis.pdf).
+1.     What do you usually pray for? 
+2.     What does it mean for you that God is Father? 
+3.     What does it mean for you that the Father is our Father? 
+4.     What does it mean for you that the Father is in heaven? 
+5.     How is the Father’s name hallowed? 
+6.     How can the Father’s name be hallowed through you? 
+7.     What should we pray for and what would this look like for you? 
 
 
 ![Our Mission; Make disciples, Love Neighbors Glorify God. Our Vision; Growing up, Growing Deep, Growing Out](https://raw.githubusercontent.com/stgeorgeshurstville/bulletin/main/images/upload.JPG)
