@@ -11,6 +11,7 @@ Lord make your word our rule, your Spirit our teacher, and your glory our suprem
 ### Matthew 6:5-13 and Galatians 4:1-7 (NIV)
 
 **Matthew 6:5-13**
+
 *Prayer*
 
 ⁵ “And when you pray, do not be like the hypocrites, for they love to pray standing in the synagogues and on the street corners to be seen by others. Truly I tell you, they have received their reward in full. ⁶ But when you pray, go into your room, close the door and pray to your Father, who is unseen. Then your Father, who sees what is done in secret, will reward you. ⁷ And when you pray, do not keep on babbling like pagans, for they think they will be heard because of their many words. ⁸ Do not be like them, for your Father knows what you need before you ask him.
