@@ -8,7 +8,7 @@ order: 2
 ### Prayer
 Lord make your word our rule, your Spirit our teacher, and your glory our supreme concern, for the sake of our Saviour, the Lord Jesus Christ. **Amen**.
 
-### Matthew 6:5-13 and Galatians 4:1-7 (NIV)
+### Our Father in heaven, hallowed be your name - Matthew 6:5-13 and Galatians 4:1-7 (NIV)
 
 **Matthew 6:5-13**
 
