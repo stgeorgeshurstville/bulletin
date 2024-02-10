@@ -8,7 +8,7 @@ order: 2
 ### Prayer
 Lord make your word our rule, your Spirit our teacher, and your glory our supreme concern, for the sake of our Saviour, the Lord Jesus Christ. **Amen**.
 
-### Matthew 6:5-15 (NIV)
+### Matthew 6:5-13 (NIV)
 
 **Prayer**
 
@@ -26,13 +26,18 @@ on earth as it is in heaven.
 as we also have forgiven our debtors.
 ¹³ And lead us not into temptation, 
 but deliver us from the evil one. ’
-¹⁴ For if you forgive other people when they sin against you, your heavenly Father will also forgive you. ¹⁵ But if you do not forgive others their sins, your Father will not forgive your sins.
+
+### Galatians 4:1-7 (NIV)
+
+What I am saying is that as long as an heir is underage, he is no different from a slave, although he owns the whole estate. ² The heir is subject to guardians and trustees until the time set by his father. ³ So also, when we were underage, we were in slavery under the elemental spiritual forces of the world. ⁴ But when the set time had fully come, God sent his Son, born of a woman, born under the law, ⁵ to redeem those under the law, that we might receive adoption to sonship. ⁶ Because you are his sons, God sent the Spirit of his Son into our hearts, the Spirit who calls out, “Abba, Father.” ⁷ So you are no longer a slave, but God’s child; and since you are his child, God has made you also an heir.
 
 ### Sermon Outline
-1. The canaries
-2. The Masked Men
-3. Those in the dark
-4. Who is listening to you
+1. Father
+2. Our
+3. Heaven
+4. Hallowed
+5. Name
+6. Priorities
 
 ## Q&A
 Got questions or comments? Send them [here](https://tinyurl.com/SGHACQuestionsAnswers)
