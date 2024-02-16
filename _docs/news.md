@@ -6,10 +6,10 @@ order: 5
 
 | Date | Event | Time |
 | ----- | ----- | ----- |
-| **FEBRUARY** | 
-| SUN Feb 11 | Discipleship Group recommences | Various times |
-| SUN Feb 11 | Mentoring All In recommences | 12:30 pm |
-| WED Feb 14 | English Classes recommences | 10:00 am |
+| **MARCH** | 
+| SUN Mar 03 | Vision and AGM | 9:30am and 11:15am |
+| FRI MAR 29 | Easter Friday Service | 9:30am (Canto), 11am (Eng) and 7:30pm (Mando) |
+
 
 ## General
 
