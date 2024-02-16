@@ -16,7 +16,7 @@ order: 4
 ## Weekly Prayer Points
 
 - **Prayerfulness**. 
-- **Our vision for 2024 - secure attachment to Jesus. **
+- **Our vision for 2024** - secure attachment to Jesus. 
 - **Other prayer points can be found here: https://stgeorgeshurstville.org.au/prayer**
 
 ## Mission Related Prayer Points
