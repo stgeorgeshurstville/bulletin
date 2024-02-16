@@ -18,7 +18,7 @@ order: 5
 
 - **Life Quarterly:** Latest edition of Life Quarterly is now available with all the reports and information for our upcoming AGM. More information available on church website: [Here](https://stgeorgeshurstville.org.au/agm) 
 
-- **English Discipleship Groups:** Join 😀 A great opportunity to spur each other on to love and good deeds. More information and to sign up [here](https://stgeorgeshurstville.org.au/discipleship-groups)
+- **English Discipleship Groups:** Join 😀 A great opportunity to spur each other on to love and good deeds. More information and to sign up: [here](https://stgeorgeshurstville.org.au/discipleship-groups)
 
 - **Easter:** All Gen on Good Friday (9:30am Canto, 11am English and 7:30pm Mando). NewGen still on Easter Sunday. 
 
