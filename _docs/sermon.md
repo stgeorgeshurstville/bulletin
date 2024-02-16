@@ -6,40 +6,34 @@ order: 2
 ## Bible Reading
 
 ### Prayer
-Lord make your word our rule, your Spirit our teacher, and your glory our supreme concern, for the sake of our Saviour, the Lord Jesus Christ. **Amen**.
+Heavenly Father, give us faith to receive your word, understanding to know what it means, and the will to put it into practice; through Jesus Christ our Lord. Amen. **Amen**.
 
-### Our Father in heaven, hallowed be your name - Matthew 6:5-13 and Galatians 4:1-7 (NIV)
+### Your kingdom come, your will be done, on earth as it is in heaven. - Matthew 6:10, Matthew 26:36-46 (NIV)
 
-**Matthew 6:5-13**
+**Matthew 6:10**
 
-*Prayer*
+¹² And forgive us our debts, as we also have forgiven our debtors.
 
-⁵ “And when you pray, do not be like the hypocrites, for they love to pray standing in the synagogues and on the street corners to be seen by others. Truly I tell you, they have received their reward in full. ⁶ But when you pray, go into your room, close the door and pray to your Father, who is unseen. Then your Father, who sees what is done in secret, will reward you. ⁷ And when you pray, do not keep on babbling like pagans, for they think they will be heard because of their many words. ⁸ Do not be like them, for your Father knows what you need before you ask him.
+**Matthew 26:36-46**
 
-⁹ “This, then, is how you should pray:
+³⁶ Then Jesus went with his disciples to a place called Gethsemane, and he said to them, “Sit here while I go over there and pray.” ³⁷ He took Peter and the two sons of Zebedee along with him, and he began to be sorrowful and troubled. ³⁸ Then he said to them, “My soul is overwhelmed with sorrow to the point of death. Stay here and keep watch with me.”
 
-“‘Our Father in heaven,
-hallowed be your name,
-¹⁰ your kingdom come,
-your will be done,
-on earth as it is in heaven.
-¹¹ Give us today our daily bread.
-¹² And forgive us our debts,
-as we also have forgiven our debtors.
-¹³ And lead us not into temptation, 
-but deliver us from the evil one. ’
+³⁹ Going a little farther, he fell with his face to the ground and prayed, “My Father, if it is possible, may this cup be taken from me. Yet not as I will, but as you will.”
 
-**Galatians 4:1-7**
+⁴⁰ Then he returned to his disciples and found them sleeping. “Couldn’t you men keep watch with me for one hour?” he asked Peter. ⁴¹ “Watch and pray so that you will not fall into temptation. The spirit is willing, but the flesh is weak.”
 
-What I am saying is that as long as an heir is underage, he is no different from a slave, although he owns the whole estate. ² The heir is subject to guardians and trustees until the time set by his father. ³ So also, when we were underage, we were in slavery under the elemental spiritual forces of the world. ⁴ But when the set time had fully come, God sent his Son, born of a woman, born under the law, ⁵ to redeem those under the law, that we might receive adoption to sonship. ⁶ Because you are his sons, God sent the Spirit of his Son into our hearts, the Spirit who calls out, “Abba, Father.” ⁷ So you are no longer a slave, but God’s child; and since you are his child, God has made you also an heir.
+⁴² He went away a second time and prayed, “My Father, if it is not possible for this cup to be taken away unless I drink it, may your will be done.”
+
+⁴³ When he came back, he again found them sleeping, because their eyes were heavy. ⁴⁴ So he left them and went away once more and prayed the third time, saying the same thing.
+
+⁴⁵ Then he returned to the disciples and said to them, “Are you still sleeping and resting? Look, the hour has come, and the Son of Man is delivered into the hands of sinners. ⁴⁶ Rise! Let us go! Here comes my betrayer!”
 
 ### Sermon Outline
-1. Father
-2. Our
-3. Heaven
-4. Hallowed
-5. Name
-6. Priorities
+1. Prayer reveals more about us than about God 
+2. Whose Kingdom/Will? 
+3. Why pray?
+4. God’s Kingdom and Ours 
+5. When our prayers aren't answered
 
 ## Q&A
 Got questions or comments? Send them [here](https://tinyurl.com/SGHACQuestionsAnswers)
