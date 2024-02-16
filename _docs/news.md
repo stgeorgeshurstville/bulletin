@@ -16,9 +16,9 @@ order: 5
  
 -  **Vision and AGM Sunday - March 3rd at 9:30am Combined Vision Sunday Service & 11:15am AGM Business Meeting:** Children including creche will be at 124 Forest Road. The children ministry needs 8 adults with WWCC and safe ministry training to help on the day. There will be no services on Wednesday 28/2 and Saturday 2/3 and Sunday 3/3 4pm. Instead, we will have church-wide prayer meetings on 28/2 at 1:30pm, Saturday 2/3 at 3pm and Sunday 3/3 at 4pm.   
 
-- **Life Quarterly:** Latest edition of Life Quarterly is now available with all the reports and information for our upcoming AGM. More information available on church website: https://stgeorgeshurstville.org.au/agm 
+- **Life Quarterly:** Latest edition of Life Quarterly is now available with all the reports and information for our upcoming AGM. More information available on church website: [Here](https://stgeorgeshurstville.org.au/agm) 
 
-- **English Discipleship Groups:** Join 😀 A great opportunity to spur each other on to love and good deeds. More information and to sign up here: https://stgeorgeshurstville.org.au/discipleship-groups
+- **English Discipleship Groups:** Join 😀 A great opportunity to spur each other on to love and good deeds. More information and to sign up here: [here](https://stgeorgeshurstville.org.au/discipleship-groups)
 
 - **Easter:** All Gen on Good Friday (9:30am Canto, 11am English and 7:30pm Mando). NewGen still on Easter Sunday. 
 
