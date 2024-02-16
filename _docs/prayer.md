@@ -17,7 +17,7 @@ order: 4
 
 - **Prayerfulness**. 
 - **Our vision for 2024** - secure attachment to Jesus. 
-- **Other prayer points can be found here: https://stgeorgeshurstville.org.au/prayer**
+- **Other prayer points can be found here**: https://stgeorgeshurstville.org.au/prayer
 
 ## Mission Related Prayer Points
 
