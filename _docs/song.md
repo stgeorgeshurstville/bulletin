@@ -10,9 +10,9 @@ order: 1
 4. Ancient Of Days
 
 ## 4pm 
-1. How Deep the Father's Love
-2. Creation Awaits
-3. Only A Holy God
-4. The Love of the Father
+1. In Christ Alone
+2. All GLory be to Christ
+3. Hear our Prayer
+4. Your Will be Done
    
 Check out the church spotify playlist [here](https://open.spotify.com/playlist/3gh0ZKXkJBDbNEnZqJJDXj?si=0908aa3f87544643)
