@@ -12,7 +12,7 @@ Heavenly Father, give us faith to receive your word, understanding to know what 
 
 **Matthew 6:10**
 
-¹² And forgive us our debts, as we also have forgiven our debtors.
+10 your kingdom come, your will be done, on earth as it is in heaven.
 
 **Matthew 26:36-46**
 
