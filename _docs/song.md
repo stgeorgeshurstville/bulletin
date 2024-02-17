@@ -11,7 +11,7 @@ order: 1
 
 ## 4pm 
 1. In Christ Alone
-2. All GLory be to Christ
+2. All Glory be to Christ
 3. Hear our Prayer
 4. Your Will be Done
    
