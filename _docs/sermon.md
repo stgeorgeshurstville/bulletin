@@ -6,34 +6,31 @@ order: 2
 ## Bible Reading
 
 ### Prayer
-Heavenly Father, give us faith to receive your word, understanding to know what it means, and the will to put it into practice; through Jesus Christ our Lord. Amen. **Amen**.
+We thank you heavenly Father, for inspiring all Scripture by the Holy Spirit. Help us by your Spirit so to hear your holy word that we may be equipped for every good work, through Jesus Christ our Lord. **Amen**.
 
-### Your kingdom come, your will be done, on earth as it is in heaven. - Matthew 6:10, Matthew 26:36-46 (NIV)
+### Give us today our daily bread - Matthew 6:11 and Matthew 6:19-34 (NIV)
 
-**Matthew 6:10**
+**Mathew 6:11**
 
-10 your kingdom come, your will be done, on earth as it is in heaven.
+11 Give us today our daily bread.
 
-**Matthew 26:36-46**
+**Mathew 6:19-34**
+19 “Do not store up for yourselves treasures on earth, where moths and vermin destroy, and where thieves break in and steal. 20 But store up for yourselves treasures in heaven, where moths and vermin do not destroy, and where thieves do not break in and steal. 21 For where your treasure is, there your heart will be also.
 
-³⁶ Then Jesus went with his disciples to a place called Gethsemane, and he said to them, “Sit here while I go over there and pray.” ³⁷ He took Peter and the two sons of Zebedee along with him, and he began to be sorrowful and troubled. ³⁸ Then he said to them, “My soul is overwhelmed with sorrow to the point of death. Stay here and keep watch with me.”
+22 “The eye is the lamp of the body. If your eyes are healthy,[c] your whole body will be full of light. 23 But if your eyes are unhealthy,[d] your whole body will be full of darkness. If then the light within you is darkness, how great is that darkness!
 
-³⁹ Going a little farther, he fell with his face to the ground and prayed, “My Father, if it is possible, may this cup be taken from me. Yet not as I will, but as you will.”
+24 “No one can serve two masters. Either you will hate the one and love the other, or you will be devoted to the one and despise the other. You cannot serve both God and money.
 
-⁴⁰ Then he returned to his disciples and found them sleeping. “Couldn’t you men keep watch with me for one hour?” he asked Peter. ⁴¹ “Watch and pray so that you will not fall into temptation. The spirit is willing, but the flesh is weak.”
+Do Not Worry
+25 “Therefore I tell you, do not worry about your life, what you will eat or drink; or about your body, what you will wear. Is not life more than food, and the body more than clothes? 26 Look at the birds of the air; they do not sow or reap or store away in barns, and yet your heavenly Father feeds them. Are you not much more valuable than they? 27 Can any one of you by worrying add a single hour to your life[e]?
 
-⁴² He went away a second time and prayed, “My Father, if it is not possible for this cup to be taken away unless I drink it, may your will be done.”
-
-⁴³ When he came back, he again found them sleeping, because their eyes were heavy. ⁴⁴ So he left them and went away once more and prayed the third time, saying the same thing.
-
-⁴⁵ Then he returned to the disciples and said to them, “Are you still sleeping and resting? Look, the hour has come, and the Son of Man is delivered into the hands of sinners. ⁴⁶ Rise! Let us go! Here comes my betrayer!”
+28 “And why do you worry about clothes? See how the flowers of the field grow. They do not labor or spin. 29 Yet I tell you that not even Solomon in all his splendor was dressed like one of these. 30 If that is how God clothes the grass of the field, which is here today and tomorrow is thrown into the fire, will he not much more clothe you—you of little faith? 31 So do not worry, saying, ‘What shall we eat?’ or ‘What shall we drink?’ or ‘What shall we wear?’ 32 For the pagans run after all these things, and your heavenly Father knows that you need them. 33 But seek first his kingdom and his righteousness, and all these things will be given to you as well. 34 Therefore do not worry about tomorrow, for tomorrow will worry about itself. Each day has enough trouble of its own.
 
 ### Sermon Outline
-1. Prayer reveals more about us than about God 
-2. Whose Kingdom/Will? 
-3. Why pray?
-4. God’s Kingdom and Ours 
-5. When our prayers aren't answered
+1. Simple is difficult 
+2. Bread is more than bread 
+3. Wonderland or Rabbit hole
+
 
 ## Q&A
 Got questions or comments? Send them [here](https://tinyurl.com/SGHACQuestionsAnswers)
