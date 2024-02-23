@@ -7,7 +7,9 @@ order: 5
 | Date | Event | Time |
 | ----- | ----- | ----- |
 | **MARCH** | 
-| SUN Mar 03 | Vision and AGM | 9:30am and 11:15am |
+| SUN MAR 03 | Vision | 9:30am |
+| SUN MAR 03 | AGM | 11:15am |
+| SAT MAR 23 | Working Bee | TBA |
 | FRI MAR 29 | Easter Friday Service | 9:30am (Canto), 11am (Eng) and 7:30pm (Mando) |
 
 
