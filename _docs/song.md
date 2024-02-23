@@ -11,8 +11,8 @@ order: 1
 
 ## 4pm 
 1. 
-2. 
-3. 
-4. 
+2. Creation awaits
+3. Only a Holy God
+4. The Love of the Father
    
 Check out the church spotify playlist [here](https://open.spotify.com/playlist/3gh0ZKXkJBDbNEnZqJJDXj?si=0908aa3f87544643)
