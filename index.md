@@ -3,9 +3,10 @@ title: Welcome
 ---
 
 ## The Lord's Prayer
-### Your kingdom come, your will be done, on earth as it is in heaven. Matthew 6:10, Matthew 26:36-46
+### Give us today our daily bread; Matthew 6:11 and Matthew 6:19-34
 
-#### When you call to me, says the Lord, I will answer you; I will be with you in trouble, I will rescue you and honour you. Psalm 91.15,16
+#### My heart says to the Lord, 'Your face, Lord do I seek.' Hide not your face from me. Turn not your servant away in anger, for you have been my help. 
+Psalm 27.8-9
 
 
 ##### 2 Corinthians 4:3-6
