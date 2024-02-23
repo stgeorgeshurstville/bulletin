@@ -9,7 +9,7 @@ title: Welcome
 Psalm 27.8-9
 
 
-##### 2 Corinthians 4:3-6
+##### Psalm 27.8-9
 
 ---
 - We are gathering in person! For people who can’t gather in person, you can watch online [here](https://stgeorgeshurstville.org.au/sunday-english-online)
