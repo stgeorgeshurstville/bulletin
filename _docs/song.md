@@ -10,9 +10,9 @@ order: 1
 4. Undivided
 
 ## 4pm 
-1. 
-2. Creation awaits
-3. Only a Holy God
-4. The Love of the Father
+1. All Glory Be to Christ
+2. Your Word
+3. Water Without Price
+4. Come Thou Fount
    
 Check out the church spotify playlist [here](https://open.spotify.com/playlist/3gh0ZKXkJBDbNEnZqJJDXj?si=0908aa3f87544643)
