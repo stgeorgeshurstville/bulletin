@@ -5,7 +5,7 @@ title: Welcome
 ## Secure attachment to Jesus
 
 ### Psalm 25:15-16
-#### My eyes are ever towards the Lord, for he will pluck my feet out of the net. Turn to me, and be gracious to me; for I am lonely and afflicted. Psalm 25:15-16
+#### My eyes are ever towards the Lord, for he will pluck my feet out of the net. Turn to me, and be gracious to me; for I am lonely and afflicted. 
 
 
 ---
