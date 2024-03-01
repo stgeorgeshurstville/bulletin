@@ -4,13 +4,13 @@ order: 1
 ---
 
 ## 9:30am 
-1. This is the Day
+1. 
 2. As the Deer
 3. I Am Not My Own
 4. Undivided
 
 ## 4pm 
-1. All Glory Be to Christ
+1. 
 2. Your Word
 3. Water Without Price
 4. Come Thou Fount
