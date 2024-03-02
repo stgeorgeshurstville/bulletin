@@ -19,9 +19,7 @@ The Father Revealed in the Son
 ²⁸ “Come to me, all you who are weary and burdened, and I will give you rest. ²⁹ Take my yoke upon you and learn from me, for I am gentle and humble in heart, and you will find rest for your souls. ³⁰ For my yoke is easy and my burden is light.”
 
 ### Sermon Outline
-1. Simple is difficult 
-2. Bread is more than bread 
-3. Wonderland or Rabbit hole
+
 
 
 ## Q&A
