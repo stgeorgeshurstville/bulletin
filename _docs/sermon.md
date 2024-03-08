@@ -6,19 +6,38 @@ order: 2
 ## Bible Reading
 
 ### Prayer
-We thank you heavenly Father, for inspiring all Scripture by the Holy Spirit. Help us by your Spirit so to hear your holy word that we may be equipped for every good work, through Jesus Christ our Lord. **Amen**.
+Almighty God, we thank you for the gift of your holy word. May it be a lantern to our feet, a light to our paths, and strength to our lives. Take us and use us to love and serve all people in the power of the Holy Spirit and in the name of your Son Jesus Christ our Lord. **Amen**.
 
-### Secure attachment to Jesus
+### Matthew 6:12
+And forgive us our debts,
+as we also have forgiven our debtors.
 
-**Matthew 11:25-30**
+### Matthew 18:21-35
 
-The Father Revealed in the Son
+**The Parable of the Unmerciful Servant**
 
-²⁵ At that time Jesus said, “I praise you, Father, Lord of heaven and earth, because you have hidden these things from the wise and learned, and revealed them to little children. ²⁶ Yes, Father, for this is what you were pleased to do.
-²⁷ “All things have been committed to me by my Father. No one knows the Son except the Father, and no one knows the Father except the Son and those to whom the Son chooses to reveal him.
-²⁸ “Come to me, all you who are weary and burdened, and I will give you rest. ²⁹ Take my yoke upon you and learn from me, for I am gentle and humble in heart, and you will find rest for your souls. ³⁰ For my yoke is easy and my burden is light.”
+²¹ Then Peter came to Jesus and asked, “Lord, how many times shall I forgive my brother or sister who sins against me? Up to seven times?”
+
+²² Jesus answered, “I tell you, not seven times, but seventy-seven times. 
+
+²³ “Therefore, the kingdom of heaven is like a king who wanted to settle accounts with his servants. ²⁴ As he began the settlement, a man who owed him ten thousand bags of gold was brought to him. ²⁵ Since he was not able to pay, the master ordered that he and his wife and his children and all that he had be sold to repay the debt.
+
+²⁶ “At this the servant fell on his knees before him. ‘Be patient with me,’ he begged, ‘and I will pay back everything.’ ²⁷ The servant’s master took pity on him, cancelled the debt and let him go.
+
+²⁸ “But when that servant went out, he found one of his fellow servants who owed him a hundred silver coins. He grabbed him and began to choke him. ‘Pay back what you owe me!’ he demanded.
+
+²⁹ “His fellow servant fell to his knees and begged him, ‘Be patient with me, and I will pay it back.’
+
+³⁰ “But he refused. Instead, he went off and had the man thrown into prison until he could pay the debt. ³¹ When the other servants saw what had happened, they were outraged and went and told their master everything that had happened.
+
+³² “Then the master called the servant in. ‘You wicked servant,’ he said, ‘I cancelled all that debt of yours because you begged me to. ³³ Shouldn’t you have had mercy on your fellow servant just as I had on you?’ ³⁴ In anger his master handed him over to the jailers to be tortured, until he should pay back all he owed.
+
+³⁵ “This is how my heavenly Father will treat each of you unless you forgive your brother or sister from your heart.”
+
 
 ### Sermon Outline
+- Forgive us our debts.
+- As we also have forgiven our debtors. 
 
 
 
