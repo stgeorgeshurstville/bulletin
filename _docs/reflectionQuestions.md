@@ -4,13 +4,19 @@ order: 7
 ---
 
 ### Big Idea: 
-Our Father in heaven, give us today our daily bread.
+And forgive us our debts, as we also have forgiven our debtors. 
 
 ### Questions
-1. What makes this petition so difficult and strange? Why don’t we pray this? 
-2. What do we pray about our daily bread? What does this show about what we think of God and ourselves? How does this shape our values, behaviour? 
-3. What does Jesus want us to pray for exactly? How is this a different vision of reality, God, ourselves? How does this give us freedom? What can you do with this freedom?  
-4. Pray this prayer everyday. 
+1.     Who do you find hard to forgive? What happens when you don’t fully and deeply forgive someone (e.g. ignore them, gossip etc)? 
+2.     What debt do we have towards God? 
+3.     How has God forgiven you? 
+4.     Who are your debtors (who has sinned against you)? 
+5.     Going Deeper (optional questions): Can we forgive others (isn’t it only God who can forgive)? Are we blackmailing God by saying that he needs to forgive us because we’ve forgiven others? How should we see forgiveness and understand the Lord’s Prayer before Jesus died on the cross?
+6.     Do we have to forgive everyone? How about if we don’t feel like it, they’ve died, they don’t deserve it or in cases of abuse? 
+7.     What would help us to forgive? 
+8.     What would your relationships look like if we were forgiven both by God and one another? 
+9.     What would church look like if we were forgiven both by God and one another? 
+
 
  
 
