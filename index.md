@@ -4,8 +4,9 @@ title: Welcome
 
 ## Secure attachment to Jesus
 
-### Psalm 25:15-16
-#### My eyes are ever towards the Lord, for he will pluck my feet out of the net. Turn to me, and be gracious to me; for I am lonely and afflicted. 
+### Isaiah 66.10-11
+#### Rejoice with Jerusalem and be glad for her, all you who love her, rejoice in her joy, all you who mourn over her, that you may drink deeply with delight from the abundance of her glory. Isaiah 66.10-11
+
 
 
 ---
