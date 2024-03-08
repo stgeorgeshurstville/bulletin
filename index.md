@@ -2,7 +2,7 @@
 title: Welcome
 ---
 
-## Secure attachment to Jesus
+## The Lord's Prayer
 
 
 #### Rejoice with Jerusalem and be glad for her, all you who love her, rejoice in her joy, all you who mourn over her, that you may drink deeply with delight from the abundance of her glory. Isaiah 66.10-11
