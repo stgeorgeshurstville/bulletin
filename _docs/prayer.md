@@ -5,27 +5,30 @@ order: 4
 
 ## Sunday Prayer Points
 
-- **Lord’s Prayer**: Our Father in heaven, hallowed be your name, your kingdom come, your will be done on earth as in heaven. Give us today our daily bread. Forgive us our sins as we forgive those who sin against us. Lead us not into temptation, but deliver us from evil. For the kingdom, the power, and the glory are yours now and forever.
+
   
-- **Collect**: We beseech you, almighty God, look on the heartfelt desires of your servants, and stretch forth the right hand of your power to be our defence against all our enemies; through Jesus Christ our Lord. Amen.
+- **Collect**: Almighty God, grant that we, who justly deserve to be punished for our sinful deeds, may in your mercy and kindness be pardoned and restored; through our Lord and Saviour Jesus Christ. Amen.
   
-- **Growing Out**:  Our gracious Father, thank you that the Gospel is the power of salvation to all people. Thank you that even now the just has the Gospel has come to us, it is bearing fruit and growing throughout the whole world. We pray that many in our generation will hear and truly understand you grace. Please help us to be godly in life, resilient in ministry, servant-hearted, Biblical in life, thought and ministry, and able to love and minister faithfully, compassionately and effectively in different and changing contexts, cooperating with one another, humble, wise, prayerful, reflective, energetic and effective. Please help us to take our faith in Jesus beyond the walls of the church into our workplace, school, where we live and where we holiday. Please help us to have a compassion for the lost like Jesus. Please help us to be willing to go into the world, to be interested in the lives of people we meet. Please give us opportunities to represent Jesus and to speak of Him. Please give us the words to say. Please save our neighbours through us.
-  
-- **Church Sermon**: Our Father in Heaven, You have provided and we are satisfied. We have clothes to wear and roofs over our heads. We have enough for today and the next. We have become proud and have forgotten you. We have foolishly said to our own hearts, ‘My power and the strength of my hands have produced this wealth for me.’ And we have failed to love our neighbours as ourselves. We have worried, coveted and hoarded. We withheld from those who are in need. Thank you that you have saved us and freed us in Jesus. From our guilt. From the worries of this life and the deception of wealth. To the hope of your Kingdom, to love and generosity. Our Father, give us our daily bread. Amen. 
+- **Growing Up**: Heavenly Father, we trust your love, grace and acceptance, and that you created and saved us to live for your glory. We trust in your Son Jesus Christ as the saviour of the world, and your gospel as your power for salvation for all who believe. We trust in your Son Jesus Christ as the holy, loving, powerful and generous saviour, head, lord, and judge of St George’s. We trust you as the just judge of all people, and that you will bring glory to yourself through our church and in Christ Jesus. Forgive us in living for trivial happiness and false securities rather than holiness. We pray that we will die to sin every day and live for righteousness; that we will deny ourselves, take up our cross and follow Jesus every day. 
+- **Church Sermon:** Our Father in heaven, we praise you for the debt that has been paid by Jesus on the Cross. May we be truthful, honest and vulnerable before God and others about the sins we’ve committed and also with the hurt we’ve experienced because of the sin of others. May we ask for forgiveness where appropriate and offer forgiveness where needed. When we find this hard, help us to focus on the grace, mercy and love of God. May this overflow to others. As this happens, may the world know that we are your disciples. Amen.
 
 
 
 ## Weekly Prayer Points
+- Lent - 40 days before Easter (14 Feb - 28 March). 
+- NSW Women’s Week and Day (4-10 & 8 March). 
+- Ramadan (9 Mar - 8 Apr).
+    - Our Heavenly Father, your eternal power and divine nature have been clearly perceived ever since creation. We ask that Muslims will find true revelation in Jesus and the Bible as they celebrate Ramadan. May they understand your love and mercy and how the Cross allows you to be just and the justifier of the one who has faith in Jesus. May we keep being mindful of our neighbours and love them.
+- Mission to Nepali.
+- Secure attachment to Jesus (2024 vision). 
 
-- **AGM**. 
-- **Mission to Nepali.**
-- **Secure attachment to Jesus (2024 vision).**
-- **Other prayer points can be found here**: https://stgeorgeshurstville.org.au/prayer
+- Other prayer points can be found [here](https://stgeorgeshurstville.org.au/prayer)
 
 ## Mission Related Prayer Points
 
 - You can go here for more information on how to pray, support and give: https://stgeorgeshurstville.org.au/mission-partners
-- 
+
+- You can go [here](https://stgeorgeshurstville.org.au/mission-partners) for more information on how to pray, support and give
 
 ## Regular Prayer Points
 - **Hurstville**: We pray that the 30,000 people in Hurstville, with many from different cultures and countries, will come to know Jesus as their Lord and Saviour. May we have a heart for the people you have placed around us. Please use us to represent Jesus and may your name be hallowed. May Chris Minns (NSW Premier and Legislative Assembly Member for Kogarah), Linda Burney (House Representative for Barton), David Coleman (House Representative for Banks) and Nick Katris (Mayor) know God as the one with ultimate authority and serve with love, justice and wisdom. 
