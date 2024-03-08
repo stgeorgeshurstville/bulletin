@@ -40,9 +40,9 @@ order: 5
 
  
  - **AGM**: The meeting accepted the vision for 2024: “secure attachment to Jesus” and the budget to support this vision (with an anticipated deficit of $60,000). Minutes of the meeting are now available. Please contact the office if you wish to have a copy. Please pray for those elected to office;
-  - wardens: Darren Chan and Mary Law (930E)
-  - parish council: Priscilla Lin (4E), David Wong (930E) and  Owen Zhou (4M) later appointed as member by the rector.
-  - Nominators: Jeff Fong (930C), Andy Zhu (4M), Ferdinand Chan (930E), Kai Xu (11M) and Yong Hui Li (11M).
+   - wardens: Darren Chan and Mary Law (930E)
+   - parish council: Priscilla Lin (4E), David Wong (930E) and  Owen Zhou (4M) later appointed as member by the rector.
+   - Nominators: Jeff Fong (930C), Andy Zhu (4M), Ferdinand Chan (930E), Kai Xu (11M) and Yong Hui Li (11M).
  
  - Federal government is cutting  $150 million funding to palliative care. Please pray and consider discussing this with your local member. This is just what we predicted would be the outcome of the introduction of VAD. The petition closes on 3 April 2024 and is currently just under 9000 signatures. More information [here](https://www.parliament.nsw.gov.au/lc/pages/epetition-details.aspx?q=TCDPkH-n_irjDpWLSkyyOA)
 - **LIFE Courses:** Jesus said “I have come that they may have life, and have it to the full” (John 10:10). Our church will be running a 5 week LIFE course to help people to know Jesus more and find true life in him. It’s for non-Christians who want to find out more about Jesus, Christians who want to be reminded of core foundational truths and people who want to be baptised. We’ll read the Bible, watch some videos and have ample time to share and ask questions. This year, we’ll be running our LIFE and baptism courses twice. Please speak to Rev. Alan for if you are interested or want more information. Please note the following dates including dates for baptism. 
