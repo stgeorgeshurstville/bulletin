@@ -5,8 +5,8 @@ title: Welcome
 ## The Lord's Prayer
 
 
-#### Rejoice with Jerusalem and be glad for her, all you who love her, rejoice in her joy, all you who mourn over her, that you may drink deeply with delight from the abundance of her glory. Isaiah 66.10-11
-##### Isaiah 66.10-11
+#### [In the name of Christ, the psalmist prays:] Vindicate me, O God, and defend my cause against an ungodly people; from deceitful and unjust men deliver me, for you are the God in whom I take refuge. 
+##### Psalm 43.1,2a
 
 
 ---
