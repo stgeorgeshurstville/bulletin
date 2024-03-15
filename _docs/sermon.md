@@ -22,6 +22,7 @@ _**Matthew 6:13**_
 
 
 _Jesus Is Tested in the Wilderness_
+
 Then Jesus was led by the Spirit into the wilderness to be tempted by the devil. ² After fasting forty days and forty nights, he was hungry. ³ The tempter came to him and said, “If you are the Son of God, tell these stones to become bread.”
 
 ¹ Jesus answered, “It is written: ‘Man shall not live on bread alone, but on every word that comes from the mouth of God.’ ”
