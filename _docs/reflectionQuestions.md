@@ -4,21 +4,20 @@ order: 7
 ---
 
 ### Big Idea: 
-And forgive us our debts, as we also have forgiven our debtors. 
+Actively engage in pursuing holiness by the power of God. Ask him for help. 
 
 ### Questions
-1. Who do you find hard to forgive? What happens when you don’t fully and deeply forgive someone (e.g. ignore them, gossip etc)?
-2. What debt do we have towards God?
-3. How has God forgiven you?
-4. Who are your debtors (who has sinned against you)?
-5. Going Deeper (optional questions):
-   - Can we forgive others (isn’t it only God who can forgive)?
-   - Are we blackmailing God by saying that he needs to forgive us because we’ve forgiven others?
-   - How should we see forgiveness and understand the Lord’s Prayer before Jesus died on the cross?
-7. Do we have to forgive everyone? How about if we don’t feel like it, they’ve died, they don’t deserve it or in cases of abuse?
-8. What would help us to forgive?
-9. What would your relationships look like if we were forgiven both by God and one another?
-10. What would church look like if we were forgiven both by God and one another? 
+1. What is this prayer asking for? 
+
+2. Why are we asking for help?
+   - How might we be underestimating sin?
+   - What is the ‘world, the flesh and the devil’? How do they work and what is their mission? 
+
+3. Is this prayer for protection from sin or overcoming sin? Do you believe that God will answer your prayer? Why?
+   - Is this a prayer for sin/evil free life or for holiness? Is there a difference (and what is the difference)?
+   - How is this prayer related to mission and evangelism?
+4. What might it look like if you were to daily pursue holiness and pray this prayer?
+
 
 
  
