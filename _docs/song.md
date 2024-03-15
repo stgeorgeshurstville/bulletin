@@ -4,10 +4,10 @@ order: 1
 ---
 
 ## 9:30am 
-1. Rock of Ages
-2. Before the Throne of God Above
-3. His Mercy is More
-4. And Can It Be
+1. How Great Is Our God
+2. Beautiful Saviour
+3. Holy Holy Holy
+4. Undivided
 
 ## 4pm 
 1. Hear Our Prayer
