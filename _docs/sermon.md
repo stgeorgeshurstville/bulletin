@@ -19,6 +19,8 @@ but deliver us from the evil one.
 
 **Matthew 6:13**
 
+
+
 _Jesus Is Tested in the Wilderness_
 Then Jesus was led by the Spirit into the wilderness to be tempted by the devil. ² After fasting forty days and forty nights, he was hungry. ³ The tempter came to him and said, “If you are the Son of God, tell these stones to become bread.”
 
@@ -39,6 +41,7 @@ so that you will not strike your foot against a stone.’ ”
 ¹¹ Then the devil left him, and angels came and attended him.
 
 **Matthew 4:1-11**
+
 
 
 ¹² So, if you think you are standing firm, be careful that you don’t fall! ¹³ No temptation has overtaken you except what is common to mankind. And God is faithful; he will not let you be tempted beyond what you can bear. But when you are tempted, he will also provide a way out so that you can endure it.
