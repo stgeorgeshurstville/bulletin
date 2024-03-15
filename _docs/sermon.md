@@ -16,20 +16,28 @@ Almighty God, we thank you for the gift of your holy word. May it be a lantern t
 
 And lead us not into temptation,
 but deliver us from the evil one.
+
 **Matthew 6:13**
 
-
-**Jesus Is Tested in the Wilderness**
+_Jesus Is Tested in the Wilderness_
 Then Jesus was led by the Spirit into the wilderness to be tempted by the devil. ² After fasting forty days and forty nights, he was hungry. ³ The tempter came to him and said, “If you are the Son of God, tell these stones to become bread.”
+
 ¹ Jesus answered, “It is written: ‘Man shall not live on bread alone, but on every word that comes from the mouth of God.’ ”
+
 ⁵ Then the devil took him to the holy city and had him stand on the highest point of the temple. ⁶ “If you are the Son of God,” he said, “throw yourself down. For it is written:
+
 “‘He will command his angels concerning you,
 and they will lift you up in their hands,
 so that you will not strike your foot against a stone.’ ”
+
 ⁷ Jesus answered him, “It is also written: ‘Do not put the Lord your God to the test.’ ”
+
 ⁸ Again, the devil took him to a very high mountain and showed him all the kingdoms of the world and their splendor. ⁹ “All this I will give you,” he said, “if you will bow down and worship me.”
+
 ¹⁰ Jesus said to him, “Away from me, Satan! For it is written: ‘Worship the Lord your God, and serve him only.’ ”
+
 ¹¹ Then the devil left him, and angels came and attended him.
+
 **Matthew 4:1-11**
 
 
