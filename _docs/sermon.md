@@ -17,7 +17,7 @@ Almighty God, we thank you for the gift of your holy word. May it be a lantern t
 And lead us not into temptation,
 but deliver us from the evil one.
 
-**Matthew 6:13**
+_**Matthew 6:13**_
 
 
 
@@ -40,13 +40,13 @@ so that you will not strike your foot against a stone.’ ”
 
 ¹¹ Then the devil left him, and angels came and attended him.
 
-**Matthew 4:1-11**
+_**Matthew 4:1-11**_
 
 
 
 ¹² So, if you think you are standing firm, be careful that you don’t fall! ¹³ No temptation has overtaken you except what is common to mankind. And God is faithful; he will not let you be tempted beyond what you can bear. But when you are tempted, he will also provide a way out so that you can endure it.
 
-**1 Corinthians 10:12-13**
+_**1 Corinthians 10:12-13**_
 
 
 
