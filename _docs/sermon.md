@@ -8,6 +8,9 @@ order: 2
 ### Prayer
 Almighty God, we thank you for the gift of your holy word. May it be a lantern to our feet, a light to our paths, and strength to our lives. Take us and use us to love and serve all people in the power of the Holy Spirit and in the name of your Son Jesus Christ our Lord. **Amen**.
 
+### The Lord's Prayer
+#### Lead us not into temptation, but deliver us from evil.
+
 
 **Matthew 6:13, Matthew 4:1-11, 1 Corinthians 10:12-13**
 
