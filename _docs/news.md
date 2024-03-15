@@ -39,11 +39,7 @@ order: 5
 ## General
 
  
- - **AGM**: The meeting accepted the vision for 2024: “secure attachment to Jesus” and the budget to support this vision (with an anticipated deficit of $60,000). Minutes of the meeting are now available. Please contact the office if you wish to have a copy. Please pray for those elected to office;
-   - wardens: Darren Chan and Mary Law (930E)
-   - parish council: Priscilla Lin (4E), David Wong (930E) and  Owen Zhou (4M) later appointed as member by the rector.
-   - Nominators: Jeff Fong (930C), Andy Zhu (4M), Ferdinand Chan (930E), Kai Xu (11M) and Yong Hui Li (11M).
- 
+- **Working Bee 23/3:** We’re making progress with a collaboration effort with different Anglican churches in our mission area with the goal of appointing a Nepalese church planter. In anticipation that we may need to host them for accommodation, significant effort is required to make the rectory house habitable again with lots of things to be moved and stored or thrown away; and come up with some minor repairs. Join us anytime between 9am-1pm where you can.
  - Federal government is cutting  $150 million funding to palliative care. Please pray and consider discussing this with your local member. This is just what we predicted would be the outcome of the introduction of VAD. The petition closes on 3 April 2024 and is currently just under 9000 signatures. More information [here](https://www.parliament.nsw.gov.au/lc/pages/epetition-details.aspx?q=TCDPkH-n_irjDpWLSkyyOA)
 - **LIFE Courses:** Jesus said “I have come that they may have life, and have it to the full” (John 10:10). Our church will be running a 5 week LIFE course to help people to know Jesus more and find true life in him. It’s for non-Christians who want to find out more about Jesus, Christians who want to be reminded of core foundational truths and people who want to be baptised. We’ll read the Bible, watch some videos and have ample time to share and ask questions. This year, we’ll be running our LIFE and baptism courses twice. Please speak to Rev. Alan for if you are interested or want more information. Please note the following dates including dates for baptism. 
     1. LIFE course. From 17 March for 5 weeks on Sundays 11am and 5:45pm (the content for both sessions are similar). 
@@ -54,7 +50,6 @@ order: 5
     6. Baptism on 17 Nov.
 
 
-- **Working Bee 23/3:** We’re making progress with a collaboration effort with different Anglican churches in our mission area with the goal of appointing a Nepalese church planter. In anticipation that we may need to host them for accommodation, significant effort is required to make the rectory house habitable again with lots of things to be moved and stored or thrown away; and come up with some minor repairs. Join us anytime between 9am-1pm where you can.
 
 
 - **Easter Weekend Services:** Good Friday (9:30am Canto, 11am English and 7:30pm Mandarin services). Holy Saturday (Cantonese 3pm service), Easter Sunday (9:30am Eng and Canto; 11am Mandarin; 4pm English and Mandarin services). 
