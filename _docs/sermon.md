@@ -10,7 +10,7 @@ We thank you heavenly Father, for inspiring all Scripture by the Holy Spirit. He
 
 # The garden "I am"
 
-###**Jesus Arrested**
+### Jesus Arrested
 
 ¹ When he had finished praying, Jesus left with his disciples and crossed the Kidron Valley. On the other side there was a garden, and he and his disciples went into it.
 
