@@ -6,55 +6,42 @@ order: 2
 ## Bible Reading
 
 ### Prayer
-Almighty God, we thank you for the gift of your holy word. May it be a lantern to our feet, a light to our paths, and strength to our lives. Take us and use us to love and serve all people in the power of the Holy Spirit and in the name of your Son Jesus Christ our Lord. **Amen**.
+We thank you heavenly Father, for inspiring all Scripture by the Holy Spirit. Help us by your Spirit so to hear your holy word that we may be equipped for every good work, through Jesus Christ our Lord.  **Amen.**
 
-# The Lord's Prayer
-## Lead us not into temptation, but deliver us from evil.
+# The garden "I am"
+## Jesus Arrested
+¹ When he had finished praying, Jesus left with his disciples and crossed the Kidron Valley. On the other side there was a garden, and he and his disciples went into it.
 
+² Now Judas, who betrayed him, knew the place, because Jesus had often met there with his disciples. ³ So Judas came to the garden, guiding a detachment of soldiers and some officials from the chief priests and the Pharisees. They were carrying torches, lanterns and weapons.
 
-**Matthew 6:13, Matthew 4:1-11, 1 Corinthians 10:12-13**
+⁴ Jesus, knowing all that was going to happen to him, went out and asked them, “Who is it you want?”
 
-And lead us not into temptation,
-but deliver us from the evil one.
+⁵ “Jesus of Nazareth,” they replied.
 
-_**Matthew 6:13**_
+“I am he,” Jesus said. (And Judas the traitor was standing there with them.) ⁶ When Jesus said, “I am he,” they drew back and fell to the ground.
 
+⁷ Again he asked them, “Who is it you want?”
 
+“Jesus of Nazareth,” they said.
 
-_Jesus Is Tested in the Wilderness_
+⁸ Jesus answered, “I told you that I am he. If you are looking for me, then let these men go.” ⁹ This happened so that the words he had spoken would be fulfilled: “I have not lost one of those you gave me.” 
 
-Then Jesus was led by the Spirit into the wilderness to be tempted by the devil. ² After fasting forty days and forty nights, he was hungry. ³ The tempter came to him and said, “If you are the Son of God, tell these stones to become bread.”
+¹⁰ Then Simon Peter, who had a sword, drew it and struck the high priest’s servant, cutting off his right ear. (The servant’s name was Malchus.)
 
-¹ Jesus answered, “It is written: ‘Man shall not live on bread alone, but on every word that comes from the mouth of God.’ ”
+¹¹ Jesus commanded Peter, “Put your sword away! Shall I not drink the cup the Father has given me?”
 
-⁵ Then the devil took him to the holy city and had him stand on the highest point of the temple. ⁶ “If you are the Son of God,” he said, “throw yourself down. For it is written:
+¹² Then the detachment of soldiers with its commander and the Jewish officials arrested Jesus. They bound him
 
-“‘He will command his angels concerning you,
-and they will lift you up in their hands,
-so that you will not strike your foot against a stone.’ ”
-
-⁷ Jesus answered him, “It is also written: ‘Do not put the Lord your God to the test.’ ”
-
-⁸ Again, the devil took him to a very high mountain and showed him all the kingdoms of the world and their splendor. ⁹ “All this I will give you,” he said, “if you will bow down and worship me.”
-
-¹⁰ Jesus said to him, “Away from me, Satan! For it is written: ‘Worship the Lord your God, and serve him only.’ ”
-
-¹¹ Then the devil left him, and angels came and attended him.
-
-_**Matthew 4:1-11**_
-
-
-
-¹² So, if you think you are standing firm, be careful that you don’t fall! ¹³ No temptation has overtaken you except what is common to mankind. And God is faithful; he will not let you be tempted beyond what you can bear. But when you are tempted, he will also provide a way out so that you can endure it.
-
-_**1 Corinthians 10:12-13**_
-
+**John 18:1-12**
 
 
 ### Sermon Outline
-- Praying for help
-- The danger is great
-- The help is greater 
+- Easter is the answer to Jesus’ prayer
+- Jesus’ arrest reveal:
+- Jesus’ authority
+- Jesus’ glory
+- How to apply this? 
+
 
 
 
