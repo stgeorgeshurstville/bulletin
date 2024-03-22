@@ -4,19 +4,17 @@ order: 7
 ---
 
 ### Big Idea: 
-Actively engage in pursuing holiness by the power of God. Ask him for help. 
+Come to Jesus, the one who uses all his power and authority to make His Father known to us. And keep going to him.  
 
 ### Questions
-1. What is this prayer asking for? 
+1. What does Jesus pray for in John 17:1-5? 
 
-2. Why are we asking for help?
-   - How might we be underestimating sin?
-   - What is the ‘world, the flesh and the devil’? How do they work and what is their mission? 
+2. How does the event of his arrest in John 18:1-12 answer Jesus’ prayer?
+      - How is Jesus’ authority demonstrated?
+      - How is the glory of Jesus and His Father revealed? 
 
-3. Is this prayer for protection from sin or overcoming sin? Do you believe that God will answer your prayer? Why?
-   - Is this a prayer for sin/evil free life or for holiness? Is there a difference (and what is the difference)?
-   - How is this prayer related to mission and evangelism?
-4. What might it look like if you were to daily pursue holiness and pray this prayer?
+3. How do we apply this knowledge to our life?  
+
 
 
 
