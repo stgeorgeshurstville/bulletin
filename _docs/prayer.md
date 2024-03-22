@@ -29,9 +29,9 @@ order: 4
 - You can go [here](https://stgeorgeshurstville.org.au/mission-partners) for more information on how to pray, support and give
 
 ## Regular Prayer Points
-- **Hurstville. **
+- **Hurstville.**
 - **Discipleship Groups.**
-- **Pastoral Care Team. **
+- **Pastoral Care Team.**
 - **People with Disabilities.**
 - **Support Ministries.**
 - **New Life Nepalese Church.**
