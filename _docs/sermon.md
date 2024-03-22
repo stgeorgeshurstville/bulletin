@@ -9,7 +9,8 @@ order: 2
 We thank you heavenly Father, for inspiring all Scripture by the Holy Spirit. Help us by your Spirit so to hear your holy word that we may be equipped for every good work, through Jesus Christ our Lord.  **Amen.**
 
 # The garden "I am"
-## Jesus Arrested
+
+**Jesus Arrested**
 ¹ When he had finished praying, Jesus left with his disciples and crossed the Kidron Valley. On the other side there was a garden, and he and his disciples went into it.
 
 ² Now Judas, who betrayed him, knew the place, because Jesus had often met there with his disciples. ³ So Judas came to the garden, guiding a detachment of soldiers and some officials from the chief priests and the Pharisees. They were carrying torches, lanterns and weapons.
