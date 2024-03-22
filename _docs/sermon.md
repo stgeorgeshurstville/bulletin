@@ -16,15 +16,15 @@ We thank you heavenly Father, for inspiring all Scripture by the Holy Spirit. He
 
 ⁴ Jesus, knowing all that was going to happen to him, went out and asked them, “Who is it you want?”
 
-⁵ “Jesus of Nazareth,” they replied.
+⁵ “Jesus of Nazareth,” they replied. “I am he,” Jesus said. (And Judas the traitor was standing there with them.)
 
-“I am he,” Jesus said. (And Judas the traitor was standing there with them.) ⁶ When Jesus said, “I am he,” they drew back and fell to the ground.
+⁶ When Jesus said, “I am he,” they drew back and fell to the ground.
 
-⁷ Again he asked them, “Who is it you want?”
+⁷ Again he asked them, “Who is it you want?” “Jesus of Nazareth,” they said.
 
-“Jesus of Nazareth,” they said.
+⁸ Jesus answered, “I told you that I am he. If you are looking for me, then let these men go.” 
 
-⁸ Jesus answered, “I told you that I am he. If you are looking for me, then let these men go.” ⁹ This happened so that the words he had spoken would be fulfilled: “I have not lost one of those you gave me.” 
+⁹ This happened so that the words he had spoken would be fulfilled: “I have not lost one of those you gave me.” 
 
 ¹⁰ Then Simon Peter, who had a sword, drew it and struck the high priest’s servant, cutting off his right ear. (The servant’s name was Malchus.)
 
