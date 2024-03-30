@@ -14,13 +14,88 @@ order: 4
 - **Church Sermon:**
 
 Great was the joy of Israel’s sons,
-  when Egypt died upon the shore,
+
+when Egypt died upon the shore,
 
 Far greater the joy
 
 when the Redeemer’s foe lay crushed
 
 in the dust.
+
+Jesus strides forth as the victor,
+
+conqueror of death, hell, and all opposing
+might;
+
+He bursts the bands of death,
+
+tramples the powers of darkness down,
+
+and lives forever.
+
+He, my gracious surety,
+
+apprehended for payment of my debt,
+
+comes forth from the prison house of the grave
+
+free, and triumphant over sin, Satan, and death.
+
+Show me herein the proof that his vicarious offering
+is accepted,
+
+that the claims of justice are satisfied,
+
+that the devil’s sceptre is shivered,
+
+that his wrongful throne is levelled.
+
+Give me the assurance that in Christ I died,
+
+in him I rose,
+
+in his life I live, in his victory I triumph,
+  
+in his ascension I shall be glorified.
+
+Adorable Redeemer,
+
+thou who wast lifted up upon a cross
+
+art ascended to highest heaven.
+
+Thou, who as Man of sorrows
+
+wast crowned with thorns,
+
+art now as Lord of life wreathed with glory.
+
+Once, no shame more deep than thine,
+
+no agony more bitter,
+
+no death more cruel.
+
+Now, no exaltation more high,
+
+no life more glorious,
+
+no advocate more effective.
+
+Thou art in the triumph car leading captive
+
+thine enemies behind thee.
+
+What more could be done than thou hast done!
+
+Thy death is my life,
+
+thy resurrection my peace,
+
+thy ascension my hope,
+
+thy prayers my comfort.
 
 
 
