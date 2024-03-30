@@ -12,6 +12,7 @@ We thank you heavenly Father, for inspiring all Scripture by the Holy Spirit. He
 
 ### John 20:1-18
 **The Empty Tomb**
+
 ²⁰ Early on the first day of the week, while it was still dark, Mary Magdalene went to the tomb and saw that the stone had been removed from the entrance. ² So she came running to Simon Peter and the other disciple, the one Jesus loved, and said, “They have taken the Lord out of the tomb, and we don’t know where they have put him!”
 
 ³ So Peter and the other disciple started for the tomb. ⁴ Both were running, but the other disciple outran Peter and reached the tomb first. ⁵ He bent over and looked in at the strips of linen lying there but did not go in. ⁶ Then Simon Peter came along behind him and went straight into the tomb. He saw the strips of linen lying there, ⁷ as well as the cloth that had been wrapped around Jesus’ head. The cloth was still lying in its place, separate from the linen. ⁸ Finally the other disciple, who had reached the tomb first, also went inside. He saw and believed. ⁹ (They still did not understand from Scripture that Jesus had to rise from the dead.) ¹⁰ Then the disciples went back to where they were staying.
