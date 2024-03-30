@@ -7,10 +7,54 @@ order: 4
 
 
   
-- **Collect**: Almighty and everlasting God, in tender love towards mankind you sent your Son, our Saviour Jesus Christ, to take our nature upon him and to suffer death on the cross, that all mankind should follow the example of his great humility: grant that we may follow the example of his suffering, and also be made partakers of his resurrection; through him who lives and reigns with you and the Holy Spirit, now and forever. Amen.
-- **Growing Out**: Our gracious Father, thank you that the Gospel is the power of salvation to all people. Thank you that even now the just has the Gospel has come to us, it is bearing fruit and growing throughout the whole world. We pray that many in our generation will hear and truly understand you grace. Please help us to be godly in life, resilient in ministry, servant-hearted, Biblical in life, thought and ministry, and able to love and minister faithfully, compassionately and effectively in different and changing contexts, cooperating with one another, humble, wise, prayerful, reflective, energetic and effective. Please help us to take our faith in Jesus beyond the walls of the church into our workplace, school, where we live and where we holiday. Please help us to have a compassion for the lost like Jesus. Please help us to be willing to go into the world, to be interested in the lives of people we meet. Please give us opportunities to represent Jesus and to speak of Him. Please give us the words to say. Please save our neighbours through us.
-- **Secure attachment to Jesus**: Loving and compassionate Father, You are full of grace and kindness, patient and overflowing with love and faithfulness. Your holiness and fairness shine brightly, yet you never turn away from those who seek you. We find our safety and comfort in you, our God. Our lives are entrusted to your care, and we trust in your unfailing love. O faithful God, as we come before your throne of grace through Jesus, we humbly ask for your mercy and grace to meet our every need. May your Spirit work within us, producing in us the beautiful fruit of love, joy, peace, patience, kindness, goodness, faithfulness, gentleness, and self-control. In the precious name of your beloved Son, we pray. Amen.
-- **Church Sermon**:  See above. 
+- **Collect:** We beseech you, almighty God, to look in mercy on your people: that by your great goodness they may be governed and preserved evermore; through Jesus Christ our Lord. Amen.
+- **Mission:** Our gracious Father, thank you for the privilege of calling us to join in your mission. Thank you that under you what we do makes a difference in the world. We pray therefore that you will save those around us and to transform them into the likeness of Jesus. Please use us to make disciples of the nations, love our neighbours. Please Father, glorify yourself, through our labour in your Son. We pray that we will not be consumers but contributors to the ministries that you have called us to. 
+- **Vision 2024:** Secure Attachment to Jesus: Loving and compassionate Father, You are full of grace and kindness, patient and overflowing with love and faithfulness. Your holiness and fairness shine brightly, yet you never turn away from those who seek you. We find our safety and comfort in you, our God. Our lives are entrusted to your care, and we trust in your unfailing love. O faithful God, as we come before your throne of grace through Jesus, we humbly ask for your mercy and grace to meet our every need. May your Spirit work within us, producing in us the beautiful fruit of love, joy, peace, patience, kindness, goodness, faithfulness, gentleness, and self-control. In the precious name of your beloved Son, we pray. Amen.
+- **Church Sermon:**   
+Great was the joy of Israel’s sons,
+      when Egypt died upon the shore,
+      Far greater the joy
+      when the Redeemer’s foe lay crushed
+      in the dust.
+Jesus strides forth as the victor,
+  conqueror of death, hell, and all opposing
+    might;
+He bursts the bands of death,
+  tramples the powers of darkness down,
+  and lives forever.
+He, my gracious surety,
+  apprehended for payment of my debt,
+  comes forth from the prison house of the grave
+  free, and triumphant over sin, Satan, and death.
+Show me herein the proof that his vicarious offering
+    is accepted,
+  that the claims of justice are satisfied,
+  that the devil’s sceptre is shivered,
+  that his wrongful throne is levelled.
+Give me the assurance that in Christ I died,
+  in him I rose,
+  in his life I live, in his victory I triumph,
+  in his ascension I shall be glorified.
+Adorable Redeemer,
+  thou who wast lifted up upon a cross
+  art ascended to highest heaven.
+Thou, who as Man of sorrows
+  wast crowned with thorns,
+  art now as Lord of life wreathed with glory.
+Once, no shame more deep than thine,
+  no agony more bitter,
+  no death more cruel.
+Now, no exaltation more high,
+  no life more glorious,
+  no advocate more effective.
+Thou art in the triumph car leading captive
+  thine enemies behind thee.
+What more could be done than thou hast done!
+  Thy death is my life,
+  thy resurrection my peace,
+  thy ascension my hope,
+  thy prayers my comfort.
+
 
 
 
