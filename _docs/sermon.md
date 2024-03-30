@@ -15,8 +15,7 @@ order: 2
 [comment]: ### "sermon title"  
 [comment]: "sermon outline content"  
 
-
-------
+[comment]: ------------------------------------------------------------------------------------
 
 ## Bible Reading
 
