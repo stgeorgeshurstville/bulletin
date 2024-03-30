@@ -14,13 +14,9 @@ order: 4
 - **Church Sermon:**
 
 Great was the joy of Israel’s sons,
-
   when Egypt died upon the shore,
-
   Far greater the joy
-
   when the Redeemer’s foe lay crushed
-
   in the dust.
 
 Jesus strides forth as the victor,
