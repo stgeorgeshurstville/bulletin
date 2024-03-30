@@ -25,7 +25,8 @@ What does John tell us about Jesus’ resurrection?
 
  - How can you remember and witness to the above with other Christians this Easter? 
 
-3. How do we apply this knowledge to our life?  
+
+4. How do we apply this knowledge to our life?  
 
 
 
