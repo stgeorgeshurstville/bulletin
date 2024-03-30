@@ -6,17 +6,6 @@ order: 5
 [comment]: Hi, please update the upcoming dates section. Dates that are passed please remove. Any new upcoming events that is mentioned under 'news' pleased add it here too!   
 [comment]: ------------------------------------------------------------------------------------- 
 
-[comment]: Please maintain the follow structure. Items in quotation marks is what you need to update
-
-[comment]: ## Bible Reading  
-[comment]: ### Prayer  
-[comment]: "prayer content"  **Amen.**  
-[comment]:  ### "Mark 1:10-13"  
-[comment]: "passage content. if there are title headings in the passage, please just bold it"  
-
-[comment]: ## Sermon Outline  
-[comment]: ### "sermon title"  
-[comment]: "sermon outline content"  
 
 ## Upcoming Dates
 
