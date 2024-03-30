@@ -7,10 +7,6 @@ order: 5
 | Date | Event | Time |
 | ----- | ----- | ----- |
 | **MARCH** | 
-| SUN MAR 17 | Life Course #1 | 11am and 5:45pm |
-| SAT MAR 23 | Working Bee | 9am to 1pm |
-| SUN MAR 24 | Life Course #2 | 11am and 5:45pm |
-| FRI MAR 29 | Easter Friday Service | 9:30am (Canto), 11am (Eng) and 7:30pm (Mando) |
 | SUN MAR 31 | Life Course #3 | 11am and 5:45pm |
 | **APR** | 
 | SUN APR 7 | Life Course #4 | 11am and 5:45pm |
@@ -39,7 +35,6 @@ order: 5
 ## General
 
  
-- **Working Bee 23/3**: Thanks.
 - **Easter Donation: the Nepali Church plant.** 
 - **Easter Weekend Services**: Good Friday (9:30am Canto, 11am English and 7:30pm Mandarin services). Holy Saturday (Cantonese 3pm service), Easter Sunday (9:30am Eng and Canto; 11am Mandarin; 4pm English and Mandarin services). 
 - **Growing in Our Welcoming**
