@@ -3,6 +3,22 @@ title: Sermon
 order: 2
 ---
 
+[comment]: Please maintain the follow structure
+
+[comment]: ## Bible Reading
+[comment]: ### Prayer
+[comment]: "prayer content"  **Amen.**
+
+[comment]: ### "e.g. Mark 1:10-13"
+[comment]: "passage content. if there are title headings in the passage, please just bold it"
+
+[comment]: ## Sermon Outline
+[comment]: ### "sermon title"
+[comment]: "sermon outline content"
+
+
+------
+
 ## Bible Reading
 
 ### Prayer
@@ -37,7 +53,8 @@ She turned toward him and cried out in Aramaic, “Rabboni!” (which means “T
 ¹⁸ Mary Magdalene went to the disciples with the news: “I have seen the Lord!” And she told them that he had said these things to her.
 
 
-### Sermon Outline
+## Sermon Outline
+### The empty tomb “My Father and your father” 
 - Lest we forget
 - Looking for Jesus
 - Why Easter matters
