@@ -3,7 +3,7 @@ title: Sermon
 order: 2
 ---
 
-[comment]: Please maintain the follow structure
+[comment]: Please maintain the follow structure. Items in quotation marks is what you need to update
 
 [comment]: ## Bible Reading  
 [comment]: ### Prayer  
