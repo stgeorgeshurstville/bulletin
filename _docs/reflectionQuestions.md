@@ -7,11 +7,23 @@ order: 7
 Come to Jesus, the one who uses all his power and authority to make His Father known to us. And keep going to him.  
 
 ### Questions
-1. What does Jesus pray for in John 17:1-5? 
+1. The Resurrection of Jesus is one of the things that makes the Christianity different from other religions and worldviews. How is it different? How does it make Christians/you different from other people? 
 
-2. How does the event of his arrest in John 18:1-12 answer Jesus’ prayer?
-      - How is Jesus’ authority demonstrated?
-      - How is the glory of Jesus and His Father revealed? 
+2. Please read John 20:1-18 
+What does John tell us about Jesus’ resurrection? 
+
+
+We often hear that Jesus’ Resurrection proves: that eEsus is God, there’s life beyond death. What do you think about these ideas? 
+
+What does Jesus’ Resurrection show us about:
+
+God 
+
+Eternal life 
+
+Jesus 
+
+How can you remember and witness to the above with other Christians this Easter? 
 
 3. How do we apply this knowledge to our life?  
 
