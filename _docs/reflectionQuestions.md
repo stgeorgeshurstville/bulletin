@@ -16,17 +16,11 @@ What does John tell us about Jesus’ resurrection?
  ideas?
  
   - What does Jesus’ Resurrection show us about:
- 
-  - God 
+   - God
+   - Eternal life
+   - Jesus 
 
-  - Eternal life 
-
-  - Jesus 
-
-  - How can you remember and witness to the above with other Christians this Easter? 
-
-
-4. How do we apply this knowledge to our life?  
+4. How can you remember and witness to the above with other Christians this Easter?  
 
 
 
