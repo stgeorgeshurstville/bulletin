@@ -15,15 +15,15 @@ What does John tell us about Jesus’ resurrection?
 3. We often hear that Jesus’ Resurrection proves: that Jesus is God, there’s life beyond death. What do you think about these
  ideas?
  
- What does Jesus’ Resurrection show us about:
+ - What does Jesus’ Resurrection show us about:
+ 
+ - God 
 
- God 
+ - Eternal life 
 
- Eternal life 
+ - Jesus 
 
- Jesus 
-
- How can you remember and witness to the above with other Christians this Easter? 
+ - How can you remember and witness to the above with other Christians this Easter? 
 
 3. How do we apply this knowledge to our life?  
 
