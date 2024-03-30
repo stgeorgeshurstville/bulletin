@@ -8,8 +8,7 @@ order: 2
 [comment]: ## Bible Reading  
 [comment]: ### Prayer  
 [comment]: "prayer content"  **Amen.**  
-
-[comment]: ### "e.g. Mark 1:10-13"  
+[comment]:  ### "Mark 1:10-13"  
 [comment]: "passage content. if there are title headings in the passage, please just bold it"  
 
 [comment]: ## Sermon Outline  
