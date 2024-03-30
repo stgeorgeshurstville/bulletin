@@ -14,8 +14,7 @@ order: 4
 - **Church Sermon:**
 
 Great was the joy of Israel’s sons,
-
-when Egypt died upon the shore,
+  when Egypt died upon the shore,
 
 Far greater the joy
 
