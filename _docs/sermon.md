@@ -5,16 +5,16 @@ order: 2
 
 [comment]: Please maintain the follow structure
 
-[comment]: ## Bible Reading
-[comment]: ### Prayer
-[comment]: "prayer content"  **Amen.**
+[comment]: ## Bible Reading  
+[comment]: ### Prayer  
+[comment]: "prayer content"  **Amen.**  
 
-[comment]: ### "e.g. Mark 1:10-13"
-[comment]: "passage content. if there are title headings in the passage, please just bold it"
+[comment]: ### "e.g. Mark 1:10-13"  
+[comment]: "passage content. if there are title headings in the passage, please just bold it"  
 
-[comment]: ## Sermon Outline
-[comment]: ### "sermon title"
-[comment]: "sermon outline content"
+[comment]: ## Sermon Outline  
+[comment]: ### "sermon title"  
+[comment]: "sermon outline content"  
 
 
 ------
