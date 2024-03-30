@@ -13,7 +13,7 @@ order: 4
 
 - **Church Sermon:**
 
-Great was the joy of Israel’s sons,
+  Great was the joy of Israel’s sons,
 
     when Egypt died upon the shore,
 
