@@ -15,13 +15,13 @@ order: 4
 
 Great was the joy of Israel’s sons,
 
-when Egypt died upon the shore,
+  when Egypt died upon the shore,
 
-Far greater the joy
+  Far greater the joy
 
-when the Redeemer’s foe lay crushed
+  when the Redeemer’s foe lay crushed
 
-in the dust.
+  in the dust.
 
 Jesus strides forth as the victor,
 
