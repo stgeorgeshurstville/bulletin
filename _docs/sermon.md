@@ -8,11 +8,10 @@ order: 2
 ### Prayer
 We thank you heavenly Father, for inspiring all Scripture by the Holy Spirit. Help us by your Spirit so to hear your holy word that we may be equipped for every good work, through Jesus Christ our Lord.  **Amen.**
 
-# The empty tomb “My Father and your father” 
 
-# John 20:1-18
 
-### The Empty Tomb
+### John 20:1-18
+**The Empty Tomb**
 ²⁰ Early on the first day of the week, while it was still dark, Mary Magdalene went to the tomb and saw that the stone had been removed from the entrance. ² So she came running to Simon Peter and the other disciple, the one Jesus loved, and said, “They have taken the Lord out of the tomb, and we don’t know where they have put him!”
 
 ³ So Peter and the other disciple started for the tomb. ⁴ Both were running, but the other disciple outran Peter and reached the tomb first. ⁵ He bent over and looked in at the strips of linen lying there but did not go in. ⁶ Then Simon Peter came along behind him and went straight into the tomb. He saw the strips of linen lying there, ⁷ as well as the cloth that had been wrapped around Jesus’ head. The cloth was still lying in its place, separate from the linen. ⁸ Finally the other disciple, who had reached the tomb first, also went inside. He saw and believed. ⁹ (They still did not understand from Scripture that Jesus had to rise from the dead.) ¹⁰ Then the disciples went back to where they were staying.
@@ -35,9 +34,6 @@ She turned toward him and cried out in Aramaic, “Rabboni!” (which means “T
 ¹⁷ Jesus said, “Do not hold on to me, for I have not yet ascended to the Father. Go instead to my brothers and tell them, ‘I am ascending to my Father and your Father, to my God and your God.’”
 
 ¹⁸ Mary Magdalene went to the disciples with the news: “I have seen the Lord!” And she told them that he had said these things to her.
-
-
-**John 201-18**
 
 
 ### Sermon Outline
