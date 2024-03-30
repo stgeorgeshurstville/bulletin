@@ -11,6 +11,7 @@ order: 4
 - **Mission:** Our gracious Father, thank you for the privilege of calling us to join in your mission. Thank you that under you what we do makes a difference in the world. We pray therefore that you will save those around us and to transform them into the likeness of Jesus. Please use us to make disciples of the nations, love our neighbours. Please Father, glorify yourself, through our labour in your Son. We pray that we will not be consumers but contributors to the ministries that you have called us to. 
 - **Vision 2024:** Secure Attachment to Jesus: Loving and compassionate Father, You are full of grace and kindness, patient and overflowing with love and faithfulness. Your holiness and fairness shine brightly, yet you never turn away from those who seek you. We find our safety and comfort in you, our God. Our lives are entrusted to your care, and we trust in your unfailing love. O faithful God, as we come before your throne of grace through Jesus, we humbly ask for your mercy and grace to meet our every need. May your Spirit work within us, producing in us the beautiful fruit of love, joy, peace, patience, kindness, goodness, faithfulness, gentleness, and self-control. In the precious name of your beloved Son, we pray. Amen.
 - **Church Sermon:**
+
 Great was the joy of Israel’s sons,
   when Egypt died upon the shore,
   Far greater the joy
