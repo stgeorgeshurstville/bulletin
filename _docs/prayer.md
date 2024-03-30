@@ -12,10 +12,15 @@ order: 4
 - **Vision 2024:** Secure Attachment to Jesus: Loving and compassionate Father, You are full of grace and kindness, patient and overflowing with love and faithfulness. Your holiness and fairness shine brightly, yet you never turn away from those who seek you. We find our safety and comfort in you, our God. Our lives are entrusted to your care, and we trust in your unfailing love. O faithful God, as we come before your throne of grace through Jesus, we humbly ask for your mercy and grace to meet our every need. May your Spirit work within us, producing in us the beautiful fruit of love, joy, peace, patience, kindness, goodness, faithfulness, gentleness, and self-control. In the precious name of your beloved Son, we pray. Amen.
 
 - **Church Sermon:**
+
 Great was the joy of Israel’s sons,
+
 when Egypt died upon the shore,
+
 Far greater the joy
+
 when the Redeemer’s foe lay crushed
+
 in the dust.
 
 
