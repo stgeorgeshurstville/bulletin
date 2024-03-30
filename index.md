@@ -2,10 +2,16 @@
 title: Welcome
 ---
 
+[comment]: Please maintain the following structure  
+[comment]: ## "sermon series. if there is none, put sermon title"  
+[comment]: #### "sentence"   
+[comment]: ##### "where the sentence came from, e.g. Psalm 1:1"  
+[comment]: ----------------------------------------------------  
+
 ## The empty tomb “My Father and your father”
 
 
-#### [In the name of Christ, the psalmist prays: Vindicate me, O God, and defend my cause against an ungodly people; from deceitful and unjust men deliver me, for you are the God in whom I take refuge.
+#### In the name of Christ, the psalmist prays: Vindicate me, O God, and defend my cause against an ungodly people; from deceitful and unjust men deliver me, for you are the God in whom I take refuge.
 ##### Psalm 43.1,2a
 
 
