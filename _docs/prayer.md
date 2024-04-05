@@ -6,56 +6,11 @@ order: 4
 ## Sunday Prayer Points
 
 
-  
-- **Collect:** We beseech you, almighty God, to look in mercy on your people: that by your great goodness they may be governed and preserved evermore; through Jesus Christ our Lord. Amen.
-- **Mission:** Our gracious Father, thank you for the privilege of calling us to join in your mission. Thank you that under you what we do makes a difference in the world. We pray therefore that you will save those around us and to transform them into the likeness of Jesus. Please use us to make disciples of the nations, love our neighbours. Please Father, glorify yourself, through our labour in your Son. We pray that we will not be consumers but contributors to the ministries that you have called us to. 
-- **Vision 2024:** Secure Attachment to Jesus: Loving and compassionate Father, You are full of grace and kindness, patient and overflowing with love and faithfulness. Your holiness and fairness shine brightly, yet you never turn away from those who seek you. We find our safety and comfort in you, our God. Our lives are entrusted to your care, and we trust in your unfailing love. O faithful God, as we come before your throne of grace through Jesus, we humbly ask for your mercy and grace to meet our every need. May your Spirit work within us, producing in us the beautiful fruit of love, joy, peace, patience, kindness, goodness, faithfulness, gentleness, and self-control. In the precious name of your beloved Son, we pray. Amen.
-
-- **Church Sermon:**
-
-    Great was the joy of Israel’s sons,  
-           when Egypt died upon the shore,  
-          Far greater the joy  
-          when the Redeemer’s foe lay crushed  
-          in the dust.  
-    Jesus strides forth as the victor,  
-      conqueror of death, hell, and all opposing  
-        might;  
-    He bursts the bands of death,  
-      tramples the powers of darkness down,  
-      and lives forever.
-    He, my gracious surety,  
-      apprehended for payment of my debt,  
-      comes forth from the prison house of the grave  
-      free, and triumphant over sin, Satan, and death.  
-    Show me herein the proof that his vicarious offering  
-        is accepted,  
-      that the claims of justice are satisfied,  
-      that the devil’s sceptre is shivered,  
-      that his wrongful throne is levelled.  
-    Give me the assurance that in Christ I died,  
-      in him I rose,  
-      in his life I live, in his victory I triumph,  
-      in his ascension I shall be glorified.  
-    Adorable Redeemer,  
-      thou who wast lifted up upon a cross  
-      art ascended to highest heaven.  
-    Thou, who as Man of sorrows  
-      wast crowned with thorns,  
-      art now as Lord of life wreathed with glory.    
-    Once, no shame more deep than thine,  
-      no agony more bitter,  
-      no death more cruel.  
-    Now, no exaltation more high,  
-      no life more glorious,  
-      no advocate more effective.  
-    Thou art in the triumph car leading captive  
-      thine enemies behind thee.  
-    What more could be done than thou hast done!  
-      Thy death is my life,  
-      thy resurrection my peace,  
-      thy ascension my hope,  
-      thy prayers my comfort.  
+- **Collect:** Almighty Father, you have given your only Son Jesus Christ to die for our sins and to rise again for our justification: grant that we may put away the old leaven of corruption and wickedness, and always serve you in sincerity and truth; through the merits of Jesus Christ our Lord. Amen.
+- **Vision 2024 - Secure Attachment to Jesus:** Loving and compassionate Father, You are full of grace and kindness, patient and overflowing with love and faithfulness. Your holiness and fairness shine brightly, yet you never turn away from those who seek you. We find our safety and comfort in you, our God. Our lives are entrusted to your care, and we trust in your unfailing love. O faithful God, as we come before your throne of grace through Jesus, we humbly ask for your mercy and grace to meet our every need. May your Spirit work within us, producing in us the beautiful fruit of love, joy, peace, patience, kindness, goodness, faithfulness, gentleness, and self-control. In the precious name of your beloved Son, we pray. Amen.
+- **Mission:** Our gracious Father, thank you for the privilege of calling us to join in your mission. Thank you that under you what we do makes a difference in the world. We pray therefore that you will save those around us and to transform them into the likeness of Jesus. Please use us to make disciples of the nations, love our neighbours. Please Father, glorify yourself, through our labour in your Son. We pray that we will not be consumers but contributors to the ministries that you have called us to. 
+- **Church Sermon:** Father,
+  0You are gracious and kind to have caused all Holy Scripture to be written for our learning. We have nowhere else to go, you have the words of eternal life. You have inspired the apostles to record down the gospels so that we might believe that Jesus is the Christ and that by believing, we would have true, everlasting life with Him. Please help us to see the gravity of this privilege, to worship and believe in Him. Help us to sing your praises all the days of our lives, to our good and gracious Lord and saviour Jesus, our king and Christ
 
 
 
@@ -70,12 +25,15 @@ order: 4
 
 ## Mission Related Prayer Points
 
-- **Nepali:** Thank God for his love for the Nepali people. For the growth of the Gospel in Nepal despite the prohibition of evangelism. For bringing Nepali among us. For hearing our prayer for yearning to reach Nepali around us, for raising Bijaya and Kate for this. Thank you for work done in making the house ready for the Shrestha. For providing the finance support so far. Praying for a spirit of cooperation, mutual encouragement and mutual engagement in a common this common Gospel project between churches in the area and ENC. Pray that God will raise up a mighty army of gospel workers to work with Bijaya and Kate. Pray that the planting team will be godly in life, resilient in ministry, servant-hearted in attitude, Biblical in life, thought, and ministry, able to minister effectively, cooperative with others, humble, wise, prayerful, reflective, and energetic and effective! Pray that the Gospel will be fruitful among the Nepali. That new converts will be quick to repent of their sins, quick to join in Christian fellowship, and quick to witness to their friends. Pray that non-Nepali Christians will be engaged in this work. We will repent of our innate cultural arrogance and indifference. Pray that we will be willing to become ‘all things to all people’, so that we may win Nepali for Christ. Praying that our Lord in his kindness would help us grow multi-racial churches, multi-cultural churches, multi-ethnic churches, multi-lingual churches, and multi-class churches! Praying that we as a church will be passionately committed to God global gospel plan.
+- **Nepali**: Thank God for his love for the Nepali people. For the growth of the Gospel in Nepal despite the prohibition of evangelism. For bringing Nepali among us. For hearing our prayer for yearning to reach Nepali around us, for raising Bijaya and Kate for this. Thank you for the work done in making the house ready for the Shrestha. For providing the finance support so far. Praying for a spirit of cooperation, mutual encouragement and mutual engagement in this common Gospel project between churches in the area and ENC. Pray that God will raise up a mighty army of gospel workers to work with Bijaya and Kate. Pray that the planting team will be godly in life, resilient in ministry, servant-hearted in attitude, Biblical in life, thought, and ministry, able to minister effectively, cooperative with others, humble, wise, prayerful, reflective, and energetic and effective! Pray that the Gospel will be fruitful among the Nepali. That new converts will be quick to repent of their sins, quick to join in Christian fellowship, and quick to witness to their friends. Pray that non-Nepali Christians will be engaged in this work. We will repent of our innate cultural arrogance and indifference. Pray that we will be willing to become ‘all things to all people’, so that we may win Nepali for Christ. Praying that our Lord in his kindness would help us grow multi-racial churches, multi-cultural churches, multi-ethnic churches, multi-lingual churches, and multi-class churches! Praying that we as a church will be passionately committed to God's global gospel plan.
+- **Persecuted Christians**: We thank you for sending Jesus who is sovereign and came to save the world by sacrificing himself. Thank you that you can sympathise and empathise with our weaknesses yet without sin. Please give patience and perseverance to those who are being persecuted for the faith. May they be a model and example of what it means to have a calling in this life and a confidence for the future. May they seek to do the will of you rather than of themselves. You can sign up for more prayer points and updates of persecuted Christians from [Open Doors](https://vom.com.au/pray-for-the-persecuted-church/) and [Voice of the Martyrs](https://vom.com.au/prayer/). 
+- **Compassion**: Jesus came to seek and to save the lost. You tell us that true religion is to visit orphans and widows in their affliction. May Compassion Australia seek to release children from poverty in Jesus’ name. May we do what we can to love children and their families so that they will mature physically, mentally, socially and most importantly spiritually. May we prayerfully invest in the lives of the children in Sumba Indonesia and see a whole region won and living for God. May you give wisdom to our 11 partner churches in the Sumba area to love and care for the children. May these children have enough sustenance, health and support as they participate in the program and activities. For those who personally sponsor a child, may we keep praying, communicating and supporting them and their family. May the planned mission trip to Sumba in Feb 2025 go well.
 
 - You can go [here](https://stgeorgeshurstville.org.au/mission-partners) for more information on how to pray, support and give
 
 ## Regular Prayer Points
-- **Moore College:** We thank you for providing stewards to equip your saints for the work of ministry. Praise God for using Moore Theological College to encourage Christians to be more like Jesus and share about Him in Sydney and the world. Pray that God will keep the board, faculty and students godly, prayerful and other people centred [here](https://moore.edu.au/missions). You can find more prayer points [here](https://moore.edu.au/support-moore/prayer-points/).
-- **Anglicare:** God of Life Giving Creation, You call us to act justly, to love mercy, to walk humbly with you. Enable Anglicare to meet human need through loving service and to build communities of resilience, hope and justice. Encourage us to work in mutual partnership to effect positive change. Empower the people we serve to reach their full potential, especially those who experience disadvantage and injustice. Guide us in our advocacy for social justice and strengthen our determination to respond with compassion. Remind us to care for ourselves and each other as we face the challenges of our work, and as we seek reconciliation, healing and community transformation. May you use Anglicare to see Jesus Christ honoured, lives enriched and communities strengthened. All this we pray in the name of Jesus Christ, our servant leader and friend. Amen. You can download the 2024 Anglicare Prayer Diary [here](https://www.anglicare.org.au/about-us/ministry-partnerships/prayer-diary/).
-- **Anglican Aid:** Heavenly Father, whose will it is that all people be saved, and come to a knowledge of the truth, and whose will it is that we care for the poor, needy, widows, orphans and refugees. We pray for the work of Anglican Aid. We pray for your grace to fulfil every good work that you have prepared for us in advance to do as we anticipate the triumphant return of our King and Saviour, in whose name we pray. You can sign up for more prayer points [here](https://anglicanaid.org.au/get-involved/pray/).
--  **Volunteers:** Everlasting God, we give thanks for the many volunteers who have been faithfully serving in different ministries at church. Please strengthen and sustain them with patience and compassion  that they may love and care for your people. Please grant that together they may follow Jesus Christ, offer you their given gifts and talents, and build up the church, the body of Christ.
+- **World**: We pray that you will lead the nations of the world in the ways of righteousness and peace. Please guide our rulers in wisdom and justice. May there be peace and tranquillity so that we can live godly and holy lives and non Christians can come to the knowledge of the truth. May we submit to those you’ve placed in authority yet ultimately to your reign and rule. May people live and long for the new world to come rather than seek to gain this world and forfeit our souls. 
+- **Redevelopment**: Our Gracious God and Heavenly Father, You know our needs. You have richly provided and we know that you will continue to provide what we need for the mission that you have called us to according to your plan. May our faithful stewardship bear witness to the love of Jesus Christ in our lives. We pray this in the name of the one who is building us into a spiritual house for a holy priesthood and to offer up spiritual sacrifices acceptable to you. Please give progress to the application processes such as for the DA. 
+- **Sunday Services**: Thank you heavenly Father for our ascended King. Thank you for the gifts of the apostles, evangelists, pastors, teachers, service leaders, musicians and all those who serve us. We pray that you will use their service for the building up of the church, that we may reach unity in the faith and in the knowledge of your Son and become mature in Christ. We ask this for our Bible readers, prayers, service leaders, musicians, welcomers and other volunteers. 
+- Staff and Parish Council: We praise you for the leaders you’ve appointed over us. May they love and care for the church of God which you obtained with your own blood. May they prayerfully set forth the life giving word through their lives and teaching. Clothe them with holiness, zeal and servant heartedness. We pray for our wardens and parish councillors, may they have wisdom, insight and passion to see our church family be spiritually transformed for your glory. Please use them to help us stay focused and accountable with the resources you’ve given us. Guide those who are new to the Parish Council and may we together have a secure attachment in Jesus. 
+- **Families**: We remember the families of our church community. We pray that despite the busyness, you will be an ever presence and comfort to them. Please help kids and their families to set the right priorities and have the discipline to say ‘no’. May our love for and devotion to you be our greatest desire. Help parents and spiritual uncles and aunties to impart the knowledge of you and of your love; and children to respond with love, joy and obedience. We praise you, God of love and the creator of the universe, for making us male and female, and giving us the gift of each other. We pray for those who, like our Lord Jesus Christ, are unmarried; either by external factors, their own decision and/or devotion to you. Lord, we praise you for the new family you have created, the household of all who believe in your Son. Father, help us to love one another in deep and meaningful friendships so that no one may feel alone or without the joy of companionship. Deepen our trust in your provision for all our needs so that we may live in contentment until we all come to your eternal kingdom; through Jesus Christ our Lord. 
