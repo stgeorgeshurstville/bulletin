@@ -37,7 +37,7 @@ But he said to them, “Unless I see the nail marks in his hands and put my fing
 
 ²⁹ Then Jesus told him, “Because you have seen me, you have believed; blessed are those who have not seen and yet have believed.”
 
-The Purpose of John’s Gospel
+**The Purpose of John’s Gospel**
 
 ³⁰ Jesus performed many other signs in the presence of his disciples, which are not recorded in this book. ³¹ But these are written that you may believe that Jesus is the Messiah, the Son of God, and that by believing you may have life in his name.
 
