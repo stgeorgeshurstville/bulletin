@@ -4,7 +4,7 @@ order: 7
 ---
 
 ### Big Idea: 
-The Word 121
+The power of God's Word to save and change
 
 ### Questions
 - Write down as many things as you can about the word of God from the passage. The word of God ...
