@@ -4,15 +4,15 @@ order: 1
 ---
 
 ## 9:30am 
-1. Be Thou My Vision
-2. Yet not I, but through Chirst in me
+1. Worthy of All Praise
+2. 10 000 Reasons
 3. Your Word
-4. Rejoice the Lord is King
+4. To God be the Glory
 
 ## 4pm 
-1. No other name
-2. Boss of the Cross
+1. Take Heart
+2. Jesus Strong and Kind
 3. Your Word
-4. Once for all
+4. Rock of Ages
    
 Check out the church spotify playlist [here](https://open.spotify.com/playlist/3gh0ZKXkJBDbNEnZqJJDXj?si=0908aa3f87544643)
