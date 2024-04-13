@@ -20,39 +20,20 @@ order: 2
 ## Bible Reading
 
 ### Prayer
-Gracious Lord, you have caused all holy scriptures to be written for our learning: help us so to hear them, read, mark, learn, and inwardly digest them, that, encouraged and supported by your holy Word, we may embrace and always hold fast the joyful hope of everlasting life, which you have given us in our Saviour Jesus Christ. **Amen.**
+Dear God, thank you for speaking to us through the Bible. Help us to listen to it, read it, understand it, and hide it in our hearts. May it give us hope and remind us of the life we can have in Jesus.  **Amen.**
 
 
+### Hebrews 4:12-13
 
-### John 20:24-31
-**Jesus Appears to Thomas**
-
-²⁴ Now Thomas (also known as Didymus ), one of the Twelve, was not with the disciples when Jesus came. ²⁵ So the other disciples told him, “We have seen the Lord!”
-
-But he said to them, “Unless I see the nail marks in his hands and put my finger where the nails were, and put my hand into his side, I will not believe.”
-
-²⁶ A week later his disciples were in the house again, and Thomas was with them. Though the doors were locked, Jesus came and stood among them and said, “Peace be with you!” ²⁷ Then he said to Thomas, “Put your finger here; see my hands. Reach out your hand and put it into my side. Stop doubting and believe.”
-
-²⁸ Thomas said to him, “My Lord and my God!”
-
-²⁹ Then Jesus told him, “Because you have seen me, you have believed; blessed are those who have not seen and yet have believed.”
-
-**The Purpose of John’s Gospel**
-
-³⁰ Jesus performed many other signs in the presence of his disciples, which are not recorded in this book. ³¹ But these are written that you may believe that Jesus is the Messiah, the Son of God, and that by believing you may have life in his name.
+¹² For the word of God is alive and active. Sharper than any double-edged sword, it penetrates even to dividing soul and spirit, joints and marrow; it judges the thoughts and attitudes of the heart. ¹³ Nothing in all creation is hidden from God’s sight. Everything is uncovered and laid bare before the eyes of him to whom we must give account.
 
 
 ## Sermon Outline
-### The locked room 'Stop doubting and believe' 
-- “If He appears right here I’ll believe” 
-- Jesus appeared for assurance
-- Doubt explored
-- Doubt leads to answers
-- The word is written so that you might believe
-
-
-
-
+### The power of God's Word to save and change 
+- The word of God is….
+- What will God do in the future v.13
+- What is God doing now? 
+- If the Bible can do this then…..
 
 
 ## Q&A
