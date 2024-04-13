@@ -23,7 +23,7 @@ order: 2
 Dear God, thank you for speaking to us through the Bible. Help us to listen to it, read it, understand it, and hide it in our hearts. May it give us hope and remind us of the life we can have in Jesus.  **Amen.**
 
 
-### Hebrews 4:12-13
+### Hebrews 4:12-13 (NIRV)
 
 ¹² The word of God is alive and active. It is sharper than any sword that has two edges. It cuts deep enough to separate soul from spirit. It can separate bones from joints. It judges the thoughts and purposes of the heart. ¹³ Nothing God created is hidden from him. His eyes see everything. He will hold us responsible for everything we do.
 
