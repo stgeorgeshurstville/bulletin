@@ -8,10 +8,13 @@ order: 5
 | Date | Event | Time |
 | ----- | ----- | ----- |
 | **APR** | 
-| SUN APR 7 | Life Course #4 | 11am and 5:45pm |
+| SUN APR 14 | All Gen Service |
 | SUN APR 14 | Life Course #5 | 11am and 5:45pm |
 | SUN APR 14 | Last Day of DGroup | |
+| SUN APR 21 | All Gen Service |
+| SUN APR 28 | All Gen Service |
 | **MAY** | 
+| SUN MAY 5 | NewGen resumes | |
 | MON MAY 6 | DGroup resumes this week | |
 | SUN MAY 26 | Baptism Course #1 | 11am and 5:45pm |
 | **JUNE** | 
@@ -35,10 +38,13 @@ order: 5
 
 ## General
  
-- **Easter Donation: the Nepali Church plant.** We praise God for collecting $2405 (in cash). 
-- **English Discipleship Groups**: The last day for this term is Sun 14th April. Term 2 starts on the week of Monday the 6th of May. Some groups may operate on a different schedule. Please speak to your leaders for more information and keep growing up, deep and out. 
-- **Coffee Cart**: We are serving baristas coffee after 9:30am church today. Order your coffee at the sign-in area. $3 (small) $4 (large). Why not buy coffee for someone you don’t know?
+- Find out what you can do with the Word of God [here](https://www.theword121.com/)
+- **Office Move**: Please note that the church office has been moved from the rectory to inside the church (the old rector’s vestry). You can access the office on the Avenue.
+- **Equality Legislation Amendment (14 April)**: More information [here](https://www.bullianglican.org.au/enews-content/equality-legislation-amendment). Link to the survey [here](https://forms.office.com/Pages/ResponsePage.aspx?id=vp9hlIknxEOBgN2_R2mBwKUb-E9sLYtNjeESRyYnllxUNFdJOUJCVFk3QVI2QzhQSVRLTkhSUUw0Qy4u) 
 
+- **English Discipleship Groups**: The last day for this term is Sun 14th April. Term 2 starts on the week of Monday the 6th of May. Some groups may operate on a different schedule. Please speak to your leaders for more information and keep growing up, deep and out. 
+- **NewGen** children programs are on break. We welcome all children to join any of our All-Gen services (Sunday E930, M1100, E400) on 14/4, 21/4 and 28/4. Term 2 will resume on 5/5.
+- **Leave**: Rev. Lam will be on leave from 15-21 April. Sunny. Carol is on leave from 11-25 April. Please speak to the other Pastoral Staff or contact the office for assistance. 
 - **Growing in Our Welcoming**
 
   <img width="236" alt="Screenshot 2023-07-01 134203" src="https://github.com/stgeorgeshurstville/bulletin/assets/119166299/b540ac1c-0ba4-481e-90a5-5464939f7e4c">
