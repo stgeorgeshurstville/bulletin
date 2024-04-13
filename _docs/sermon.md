@@ -25,7 +25,7 @@ Dear God, thank you for speaking to us through the Bible. Help us to listen to i
 
 ### Hebrews 4:12-13
 
-¹² For the word of God is alive and active. Sharper than any double-edged sword, it penetrates even to dividing soul and spirit, joints and marrow; it judges the thoughts and attitudes of the heart. ¹³ Nothing in all creation is hidden from God’s sight. Everything is uncovered and laid bare before the eyes of him to whom we must give account.
+¹² The word of God is alive and active. It is sharper than any sword that has two edges. It cuts deep enough to separate soul from spirit. It can separate bones from joints. It judges the thoughts and purposes of the heart. ¹³ Nothing God created is hidden from him. His eyes see everything. He will hold us responsible for everything we do.
 
 
 ## Sermon Outline
