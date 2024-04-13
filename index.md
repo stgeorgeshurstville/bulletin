@@ -9,11 +9,11 @@ title: Welcome
 [comment]: ##### "where the sentence came from, e.g. Psalm 1:1"  
 [comment]: ----------------------------------------------------  
 
-## The locked room 'Stop doubting and believe' 
+## The Word 1-2-1 
 
 
-#### The stone which the builders has rejected has become the head of the corner. This is the Lord's doing; it is marvellous in our eyes.
-##### Psalm 118:24-25 
+#### God has breathed life into all Scripture. It is useful for teaching us what is true. It is useful for correcting our mistakes. It is useful for making our lives whole again. It is useful for training us to do what is right.
+##### 2 Timothy 3:16 (NIRV)  
 
 
 ---
