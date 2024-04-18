@@ -10,9 +10,9 @@ order: 1
 4. To God be the Glory
 
 ## 4pm 
-1. Take Heart
+1. Your Word
 2. Jesus Strong and Kind
-3. Your Word
-4. Rock of Ages
+3. His Mercy is More
+4. You Alone
    
 Check out the church spotify playlist [here](https://open.spotify.com/playlist/3gh0ZKXkJBDbNEnZqJJDXj?si=0908aa3f87544643)
