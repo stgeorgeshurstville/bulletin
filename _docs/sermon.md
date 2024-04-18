@@ -23,9 +23,9 @@ order: 2
 Dear God, thank you for speaking to us through the Bible. Help us to listen to it, read it, understand it, and hide it in our hearts. May it give us hope and remind us of the life we can have in Jesus.  **Amen.**
 
 
-### Isaiah 52 : 7 (NIRV)
+### Romans 10:14-15 (NIRV)
 
-¹⁴ How can they call on him unless they believe in him? How can they believe in him unless they hear about him? How can they hear about him unless someone preaches to them? ¹⁵ And how can anyone preach without being sent? It is written, “How beautiful are the feet of those who bring good news!”
+¹⁴ How can they call on him unless they believe in him? How can they believe in him unless they hear about him? How can they hear about him unless someone preaches to them? ¹⁵ And how can anyone preach without being sent? It is written, “How beautiful are the feet of those who bring good news!” (Isaiah 52 : 7)
 
 
 ## Sermon Outline
