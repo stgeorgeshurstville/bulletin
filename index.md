@@ -12,8 +12,8 @@ title: Welcome
 ## The Word 1-2-1 
 
 
-#### God has breathed life into all Scripture. It is useful for teaching us what is true. It is useful for correcting our mistakes. It is useful for making our lives whole again. It is useful for training us to do what is right.
-##### 2 Timothy 3:16 (NIRV)  
+#### The Lord is my shepherd, I shall not want; the earth is full of the steadfast love of the Lord. by the word of the Lord the heavens were made, and all their host by the breath of his mouth. 
+##### Psalm 23.1 and 33.5-6 (NIRV)  
 
 
 ---
