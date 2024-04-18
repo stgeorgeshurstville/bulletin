@@ -36,7 +36,7 @@ order: 5
  
 - Find out what you can do with the Word of God [here](https://www.theword121.com/)
 - **Office Move**: Please note that the church office has been moved from the rectory to inside the church (the old rector’s vestry). You can access the office on the Avenue.
-- **Equality Legislation Amendment (14 April)**: More information [here](https://www.bullianglican.org.au/enews-content/equality-legislation-amendment). Link to the survey [here](https://forms.office.com/Pages/ResponsePage.aspx?id=vp9hlIknxEOBgN2_R2mBwKUb-E9sLYtNjeESRyYnllxUNFdJOUJCVFk3QVI2QzhQSVRLTkhSUUw0Qy4u) 
+
 
 - **English Discipleship Groups**: The last day for this term is Sun 14th April. Term 2 starts on the week of Monday the 6th of May. Some groups may operate on a different schedule. Please speak to your leaders for more information and keep growing up, deep and out. 
 - **NewGen** children programs are on break. We welcome all children to join any of our All-Gen services (Sunday E930, M1100, E400) on 14/4, 21/4 and 28/4. Term 2 will resume on 5/5.
