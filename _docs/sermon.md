@@ -23,17 +23,17 @@ order: 2
 Dear God, thank you for speaking to us through the Bible. Help us to listen to it, read it, understand it, and hide it in our hearts. May it give us hope and remind us of the life we can have in Jesus.  **Amen.**
 
 
-### Hebrews 4:12-13 (NIRV)
+### Isaiah 52 : 7 (NIRV)
 
-¹² The word of God is alive and active. It is sharper than any sword that has two edges. It cuts deep enough to separate soul from spirit. It can separate bones from joints. It judges the thoughts and purposes of the heart. ¹³ Nothing God created is hidden from him. His eyes see everything. He will hold us responsible for everything we do.
+¹⁴ How can they call on him unless they believe in him? How can they believe in him unless they hear about him? How can they hear about him unless someone preaches to them? ¹⁵ And how can anyone preach without being sent? It is written, “How beautiful are the feet of those who bring good news!”
 
 
 ## Sermon Outline
-### The power of God's Word to save and change 
-- The word of God is….
-- What will God do in the future v.13
-- What is God doing now? 
-- If the Bible can do this then…..
+### God chooses to work through His people
+- What kept William Carey going
+- God’s Word isn’t working!
+- How God works
+- The real William Carey 
 
 
 ## Q&A
