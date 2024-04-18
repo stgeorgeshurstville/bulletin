@@ -3,14 +3,10 @@ title: Reflection Questions
 order: 7
 ---
 
-### Big Idea: 
-The power of God's Word to save and change
+### Reflection Idea: 
+- Have a look at what you wrote at the beginning of the service.
+- Has what you wrote down happened? What else needs to happen?  
 
-### Questions
-- Write down as many things as you can about the word of God from the passage. The word of God ...
-- What will God do in the future v13?
-- What does God show us the truth now?
-- What can the Bible us life?
 - Let the Bible read you and help others. How? [The Word 1-2-1](https://www.theword121.com/)
  
 
