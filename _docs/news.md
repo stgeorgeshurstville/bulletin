@@ -8,10 +8,6 @@ order: 5
 | Date | Event | Time |
 | ----- | ----- | ----- |
 | **APR** | 
-| SUN APR 14 | All Gen Service |
-| SUN APR 14 | Life Course #5 | 11am and 5:45pm |
-| SUN APR 14 | Last Day of DGroup | |
-| SUN APR 21 | All Gen Service |
 | SUN APR 28 | All Gen Service |
 | **MAY** | 
 | SUN MAY 5 | NewGen resumes | |
