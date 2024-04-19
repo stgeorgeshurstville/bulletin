@@ -4,10 +4,10 @@ order: 1
 ---
 
 ## 9:30am 
-1. Worthy of All Praise
-2. 10 000 Reasons
+1. Lord I Lift Your Name on High
+2. Jesus Strong and Kind
 3. Your Word
-4. To God be the Glory
+4. Let Your Kingdom Come
 
 ## 4pm 
 1. Your Word
