@@ -4,15 +4,15 @@ order: 1
 ---
 
 ## 9:30am 
-1. Lord I Lift Your Name on High
-2. Jesus Strong and Kind
-3. Your Word
-4. Let Your Kingdom Come
+1. I Am Not My Own
+2. Yet Not I But Through Christ In Me
+3. Living Hope
+4. In Christ Alone
 
 ## 4pm 
-1. Your Word
+1. Rejoice
 2. Jesus Strong and Kind
-3. His Mercy is More
-4. You Alone
+3. You Alone
+4. Creation Awaits
    
 Check out the church spotify playlist [here](https://open.spotify.com/playlist/3gh0ZKXkJBDbNEnZqJJDXj?si=0908aa3f87544643)
