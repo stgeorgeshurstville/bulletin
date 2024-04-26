@@ -12,8 +12,7 @@ title: Welcome
 ## The Word 1-2-1 
 
 
-#### The Lord is my shepherd, I shall not want; the earth is full of the steadfast love of the Lord. by the word of the Lord the heavens were made, and all their host by the breath of his mouth. 
-##### Psalm 23.1 and 33.5-6 (NIRV)  
+#### [O sing to the Lord a new song, for he has done marvellous things.] The Lord has made known his victory, and he has revealed his vindication in the sight of the nation. Psalm 98.2
 
 
 ---
