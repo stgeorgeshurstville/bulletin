@@ -20,20 +20,21 @@ order: 2
 ## Bible Reading
 
 ### Prayer
-Dear God, thank you for speaking to us through the Bible. Help us to listen to it, read it, understand it, and hide it in our hearts. May it give us hope and remind us of the life we can have in Jesus.  **Amen.**
+Dear God, thank you for speaking to us through the Bible. Help us to listen to it, read it, understand it, and hide it in our hearts. May it give us hope and remind us of the life we can have in Jesus. Amen.
 
 
-### Romans 10:14-15 (NIRV)
+### 1 Peter 3:15-16 NIRV
 
-¹⁴ How can they call on him unless they believe in him? How can they believe in him unless they hear about him? How can they hear about him unless someone preaches to them? ¹⁵ And how can anyone preach without being sent? It is written, “How beautiful are the feet of those who bring good news!” (Isaiah 52 : 7)
+¹⁵ But make sure that in your hearts you honor Christ as Lord. Always be ready to give an answer to anyone who asks you about the hope you have. Be ready to give the reason for it. But do it gently and with respect. ¹⁶ Live so that you don’t have to feel you’ve done anything wrong. Some people may say evil things about your good conduct as believers in Christ. If they do, they will be put to shame for speaking like this about you.
 
 
 ## Sermon Outline
-### God chooses to work through His people
-- What kept William Carey going
-- God’s Word isn’t working!
-- How God works
-- The real William Carey 
+### The Word 1-2-1 
+- The light of the World 
+- The Christian difference 
+- A different kinda of love 
+- God given opportunity 
+
 
 
 ## Q&A
