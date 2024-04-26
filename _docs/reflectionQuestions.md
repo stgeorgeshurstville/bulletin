@@ -4,11 +4,11 @@ order: 7
 ---
 
 ### Reflection Idea: 
-- Have a look at what you wrote at the beginning of the service.
-- Has what you wrote down happened? What else needs to happen?  
-
-- Let the Bible read you and help others. How? [The Word 1-2-1](https://www.theword121.com/)
- 
+- How are Christians meant to be different to other people?
+- Are you different?
+- Has anyone ever asked you about being a Christian?
+- Why/why not do you think
+- How will you answer if you think? 
 
 
 
