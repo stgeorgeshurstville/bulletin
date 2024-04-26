@@ -33,14 +33,16 @@ order: 5
 
 
 ## General
- 
+ - **Rubbish**: 
+Thank you for your cooperation in keeping the church site clean and tidy. Bins have been set up for your convenience. Please make sure that all rubbish is disposed of properly and that the right bin is being used. 
 - Find out what you can do with the Word of God [here](https://www.theword121.com/)
 - **Office Move**: Please note that the church office has been moved from the rectory to inside the church (the old rector’s vestry). You can access the office on the Avenue.
 
 
+- **Donations to Berkeley Life Centre**: Please place them in the stage area of the Hall. This is the new collection area since our previous area (Rectory) will be used by Bijaya and his family. Berkeley is asking for donations especially as the weather gets colder. Items that will be helpful include: non perishable food, warm clothing, blankets, doonas and rugs. We give thanks for your generosity and partnership.  
 - **English Discipleship Groups**: The last day for this term is Sun 14th April. Term 2 starts on the week of Monday the 6th of May. Some groups may operate on a different schedule. Please speak to your leaders for more information and keep growing up, deep and out. 
 - **NewGen** children programs are on break. We welcome all children to join any of our All-Gen services (Sunday E930, M1100, E400) on 14/4, 21/4 and 28/4. Term 2 will resume on 5/5.
-- **Leave**: Rev. Lam will be on leave from 15-21 April. Sunny. Carol is on leave from 11-25 April. Please speak to the other Pastoral Staff or contact the office for assistance. 
+- **Foster Care Information Evening (7 May)**: more info [here](https://www.anglicare.org.au/community/events-courses-training/foster-care-information-evening-may2024/)
 - **Growing in Our Welcoming**
 
   <img width="236" alt="Screenshot 2023-07-01 134203" src="https://github.com/stgeorgeshurstville/bulletin/assets/119166299/b540ac1c-0ba4-481e-90a5-5464939f7e4c">
