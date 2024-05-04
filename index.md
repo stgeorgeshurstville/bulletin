@@ -9,10 +9,10 @@ title: Welcome
 [comment]: ##### "where the sentence came from, e.g. Psalm 1:1"  
 [comment]: ----------------------------------------------------  
 
-## The Word 1-2-1 
+## Jeremiah - A New Destiny Amidst Death & Destruction 
 
 
-#### [O sing to the Lord a new song, for he has done marvellous things.] The Lord has made known his victory, and he has revealed his vindication in the sight of the nation. Psalm 98.2
+#### Declare this with a shout of joy, proclaim it, send it forth to the end of the earth: say, 'The Lord has set his people free.' Isaiah 48.20
 
 
 ---
