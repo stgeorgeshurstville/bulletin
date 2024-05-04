@@ -18,5 +18,6 @@ What does the Word of God do? And how does it do it?
 2. God would speak to the nations and to Jerusalem to Jeremiah. What would He be saying?
 How would Jerusalem respond to what God says?
 
+(https://github.com/stgeorgeshurstville/bulletin/blob/bb069686d751790193c46d4c8cc93d0b96462ea3/images/Michelangelo_Buonarroti_027.jpg)
 
 ![Our Mission; Make disciples, Love Neighbors Glorify God. Our Vision; Growing up, Growing Deep, Growing Out](https://raw.githubusercontent.com/stgeorgeshurstville/bulletin/main/images/upload.JPG)
