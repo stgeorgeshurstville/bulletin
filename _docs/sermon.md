@@ -23,46 +23,44 @@ order: 2
 Dear God, thank you for speaking to us through the Bible. Help us to listen to it, read it, understand it, and hide it in our hearts. May it give us hope and remind us of the life we can have in Jesus. **Amen**.
 
 
-### Jeremiah 1 NIRV
+### Jeremiah 1 NIV
 
-¹ These are the words Jeremiah received from the Lord. Jeremiah was the son of Hilkiah. Jeremiah was one of the priests at Anathoth. That’s a town in the territory of Benjamin. ² A message from the Lord came to Jeremiah. It came in the ¹³ th year that Josiah was king over Judah. Josiah was the son of Amon. ³ After Josiah, his son Jehoiakim was king over Judah. The Lord’s message also came to Jeremiah during the whole time Jehoiakim ruled. The Lord continued to speak to Jeremiah while Zedekiah was king over Judah. He did this until the fifth month of the ¹¹ th year of Zedekiah’s rule. That’s when the people of Jerusalem were forced to leave their country. Zedekiah was the son of Josiah. Here is what Jeremiah said.
+¹ The words of Jeremiah son of Hilkiah, one of the priests at Anathoth in the territory of Benjamin. ² The word of the Lord came to him in the thirteenth year of the reign of Josiah son of Amon king of Judah, ³ and through the reign of Jehoiakim son of Josiah king of Judah, down to the fifth month of the eleventh year of Zedekiah son of Josiah king of Judah, when the people of Jerusalem went into exile.
 
-The Lord Appoints Jeremiah to Speak for Him
+The Call of Jeremiah
 
-⁴ A message from the Lord came to me. The Lord said,
+⁴ The word of the Lord came to me, saying,
 
-⁵ “Before I formed you in your mother’s body I chose you.
-Before you were born I set you apart to serve me.
-I appointed you to be a prophet to the nations.”
-⁶ “You are my Lord and King,” I said. “I don’t know how to speak. I’m too young.”
+⁵ “Before I formed you in the womb I knew you,
+before you were born I set you apart;
+I appointed you as a prophet to the nations.”
+⁶ “Alas, Sovereign Lord,” I said, “I do not know how to speak; I am too young.”
 
-⁷ But the Lord said to me, “Do not say, ‘I’m too young.’ You must go to everyone I send you to. You must say everything I command you to say. ⁸ Do not be afraid of the people I send you to. I am with you. I will save you,” announces the Lord.
+⁷ But the Lord said to me, “Do not say, ‘I am too young.’ You must go to everyone I send you to and say whatever I command you. ⁸ Do not be afraid of them, for I am with you and will rescue you,” declares the Lord.
 
-⁹ Then the Lord reached out his hand. He touched my mouth and spoke to me. He said, “I have put my words in your mouth. ¹⁰ Today I am appointing you to speak to nations and kingdoms. I give you authority to pull them up by the roots and tear them down. I give you authority to destroy them and crush them. I give you authority to build them up and plant them.”
+⁹ Then the Lord reached out his hand and touched my mouth and said to me, “I have put my words in your mouth. ¹⁰ See, today I appoint you over nations and kingdoms to uproot and tear down, to destroy and overthrow, to build and to plant.”
 
-¹¹ A message from the Lord came to me. The Lord asked me, “What do you see, Jeremiah?”
+¹¹ The word of the Lord came to me: “What do you see, Jeremiah?”
 
-“The branch of an almond tree,” I replied.
+“I see the branch of an almond tree,” I replied.
 
-¹² The Lord said to me, “You have seen correctly. I am watching to see that my word comes true.”
+¹² The Lord said to me, “You have seen correctly, for I am watching to see that my word is fulfilled.”
 
-¹³ Another message from the Lord came to me. The Lord asked me, “What do you see?”
+¹³ The word of the Lord came to me again: “What do you see?”
 
-“A pot that has boiling water in it,” I answered. “It’s leaning toward us from the north.”
+“I see a pot that is boiling,” I answered. “It is tilting toward us from the north.”
 
-¹⁴ The Lord said to me, “Something very bad will be poured out on everyone who lives in this land. It will come from the north. ¹⁵ I am about to send for all the armies in the northern kingdoms,” announces the Lord.
+¹⁴ The Lord said to me, “From the north disaster will be poured out on all who live in the land. ¹⁵ I am about to summon all the peoples of the northern kingdoms,” declares the Lord.
 
-“Their kings will come to Jerusalem.
-They will set up their thrones at the very gates of the city.
-They will attack all the walls that surround the city.
-They will go to war against all the towns of Judah.
-¹⁶ I will judge my people.
-They have done many evil things.
-They have deserted me.
-They have burned incense to other gods.
-They have worshiped the gods
-their own hands have made.
-¹⁷ “So get ready! Stand up! Tell them everything I command you to. Do not let them terrify you. If you do, I will terrify you in front of them. ¹⁸ Today I have made you like a city that has a high wall around it. I have made you like an iron pillar and a bronze wall. Now you can stand up against the whole land. You can stand against the kings and officials of Judah. You can stand against its priests and its people. ¹⁹ They will fight against you. But they will not win the battle over you. I am with you. I will save you,” announces the Lord.
+“Their kings will come and set up their thrones
+in the entrance of the gates of Jerusalem;
+they will come against all her surrounding walls
+and against all the towns of Judah.
+¹⁶ I will pronounce my judgments on my people
+because of their wickedness in forsaking me,
+in burning incense to other gods
+and in worshiping what their hands have made.
+¹⁷ “Get yourself ready! Stand up and say to them whatever I command you. Do not be terrified by them, or I will terrify you before them. ¹⁸ Today I have made you a fortified city, an iron pillar and a bronze wall to stand against the whole land—against the kings of Judah, its officials, its priests and the people of the land. ¹⁹ They will fight against you but will not overcome you, for I am with you and will rescue you,” declares the Lord.
 
 
 ## Sermon Outline
