@@ -7,7 +7,9 @@ order: 7
 There is no salvation withour judgement. God judges and saves through speaking. He speaks through people. 
 
 **Reflection questions:**
+
 ![Michelangelo_Buonarroti_027](https://github.com/stgeorgeshurstville/bulletin/assets/119166299/84a5bc71-9bdb-4061-9334-4b53791fdd29)
+
 The above is Michaelangelo's depiction of Jeremiah on the ceiling of the Sistine Chapel. If you were to use a picture to say what the book of Jeremiah is about, what would you use?
 
 Please read Jeremiah 1:1-12
