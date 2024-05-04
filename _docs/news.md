@@ -7,8 +7,6 @@ order: 5
 
 | Date | Event | Time |
 | ----- | ----- | ----- |
-| **APR** | 
-| SUN APR 28 | All Gen Service |
 | **MAY** | 
 | SUN MAY 5 | NewGen resumes | |
 | MON MAY 6 | DGroup resumes this week | |
