@@ -27,7 +27,7 @@ Dear God, thank you for speaking to us through the Bible. Help us to listen to i
 
 ¹ The words of Jeremiah son of Hilkiah, one of the priests at Anathoth in the territory of Benjamin. ² The word of the Lord came to him in the thirteenth year of the reign of Josiah son of Amon king of Judah, ³ and through the reign of Jehoiakim son of Josiah king of Judah, down to the fifth month of the eleventh year of Zedekiah son of Josiah king of Judah, when the people of Jerusalem went into exile.
 
-The Call of Jeremiah
+**The Call of Jeremiah**
 
 ⁴ The word of the Lord came to me, saying,
 
