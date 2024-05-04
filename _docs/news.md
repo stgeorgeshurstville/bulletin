@@ -33,16 +33,13 @@ order: 5
 
 
 ## General
- - **Rubbish**: 
-Thank you for your cooperation in keeping the church site clean and tidy. Bins have been set up for your convenience. Please make sure that all rubbish is disposed of properly and that the right bin is being used. 
-- Find out what you can do with the Word of God [here](https://www.theword121.com/)
-- **Office Move**: Please note that the church office has been moved from the rectory to inside the church (the old rector’s vestry). You can access the office on the Avenue.
-
-
-- **Donations to Berkeley Life Centre**: Please place them in the stage area of the Hall. This is the new collection area since our previous area (Rectory) will be used by Bijaya and his family. Berkeley is asking for donations especially as the weather gets colder. Items that will be helpful include: non perishable food, warm clothing, blankets, doonas and rugs. We give thanks for your generosity and partnership.  
-- **English Discipleship Groups**: The last day for this term is Sun 14th April. Term 2 starts on the week of Monday the 6th of May. Some groups may operate on a different schedule. Please speak to your leaders for more information and keep growing up, deep and out. 
-- **NewGen** children programs are on break. We welcome all children to join any of our All-Gen services (Sunday E930, M1100, E400) on 14/4, 21/4 and 28/4. Term 2 will resume on 5/5.
-- **Foster Care Information Evening (7 May)**: more info [here](https://www.anglicare.org.au/community/events-courses-training/foster-care-information-evening-may2024/)
+ - **Term 2 - A new series - The book of Jeremiah (the longest book in the Bible)**
+- **Nepali church plant**: Bijaya and Kate have now moved into the rectory. Please say ‘hello’ to them if you see them around and warmly welcome them. Use the following link to support them [here](https://encministries.org.au/ministry/nepali/)
+- **The Word 1-2-1**: Find out what you can do with the Word of God [here](https://www.theword121.com/)
+- **KYCK**: There were about 2000 people who went on a high school Christian camp last weekend (KYCK). We heard from the book of Genesis about God’s word which spoke creation into existence and gives it purpose. Humans are made in the image of God to reflect God’s glory. Yet we’ve all sinned and are like broken mirrors that don’t reflect God’s glory. It’s Jesus who is THE image of the invisible God. We all are to find our purpose by trusting in Jesus. As we do this, we can once again reflect God’s glory through the Spirit in our words and actions. About 40 people from our church went to KYCK. Over the weekend, there were about 50 people who decided to become Christian including 1 from our Church. He was a high schooler who has only recently been coming to our Friday Youth Program after being invited by his friend. We praise God for his grace and mercy and ask that God will keep holding onto him and the other 50 people. Other highlights include a non-Christian who only decided to come 2 hours before we were due to leave (he could only come because another youth was sick and couldn’t come). He said the weekend was amazing and he wished he went last year. A girl was challenged to take her faith seriously and be a witness at school where she knows that many don’t believe what she believes. We are thankful for your prayers and partnership with our youth ministry. Please thank God with us for all those who helped organise, cook, drive etc. We ask for your continued prayers as we keep walking with the youths and keep finding our identity in Jesus. We’ll now watch a clip of one of the songs we sang before praying.
+- **English Discipleship Groups**: Term 2 starts on the week of Monday the 6th of May. Some groups may operate on a different schedule. Please speak to your leaders for more information and keep growing up, deep and out. 
+- **NewGen**: Term 2 of NewGen children programs resume on Sunday 5 May. 
+- **Coffee cart**: We are serving baristas coffee after 9:30am church today. Order your coffee at the sign-in area. $3 (small) $4 (large). Why not buy coffee for someone you don’t know?
 - **Growing in Our Welcoming**
 
   <img width="236" alt="Screenshot 2023-07-01 134203" src="https://github.com/stgeorgeshurstville/bulletin/assets/119166299/b540ac1c-0ba4-481e-90a5-5464939f7e4c">
