@@ -20,4 +20,16 @@ What does the Word of God do? And how does it do it?
 2. God would speak to the nations and to Jerusalem to Jeremiah. What would He be saying?
 How would Jerusalem respond to what God says?
 
+3. Jeremiah's ministy is both different to ours and same as ours. We too carry the Word of God. We are to hold out that Word in words and in our lives. What warning and encouragement does Jeremiah 1 give us?
+
+**Resources for Jeremiah:**
+Andrew Shead introduces the book [here](https://moorecollege.access.preservica.com/IO_150994cd-7330-4a42-a2d8-894e4b492258/)
+Andrew is the head of Old Testament at Moore College and his PhD on it. This is his commentary (https://www.amazon.com.au/Mouth-Full-Fire-Words-Jeremiah/dp/0830826300)
+
+Some brief articles on Jeremiah by him: 
+1. (http://thebriefing.com.au/2012/09/judgement-in-the-words-of-jeremiah/)
+2. ⁠(http://thebriefing.com.au/2013/01/forgiveness-in-the-words-of-jeremiah/)
+3. ⁠(http://thebriefing.com.au/2013/05/re-creation-in-the-words-of-jeremiah/)
+
+
 
