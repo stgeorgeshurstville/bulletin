@@ -20,21 +20,57 @@ order: 2
 ## Bible Reading
 
 ### Prayer
-Dear God, thank you for speaking to us through the Bible. Help us to listen to it, read it, understand it, and hide it in our hearts. May it give us hope and remind us of the life we can have in Jesus. Amen.
+Dear God, thank you for speaking to us through the Bible. Help us to listen to it, read it, understand it, and hide it in our hearts. May it give us hope and remind us of the life we can have in Jesus. **Amen**.
 
 
-### 1 Peter 3:15-16 NIRV
+### Jeremiah 1 NIRV
 
-¹⁵ But make sure that in your hearts you honor Christ as Lord. Always be ready to give an answer to anyone who asks you about the hope you have. Be ready to give the reason for it. But do it gently and with respect. ¹⁶ Live so that you don’t have to feel you’ve done anything wrong. Some people may say evil things about your good conduct as believers in Christ. If they do, they will be put to shame for speaking like this about you.
+¹ These are the words Jeremiah received from the Lord. Jeremiah was the son of Hilkiah. Jeremiah was one of the priests at Anathoth. That’s a town in the territory of Benjamin. ² A message from the Lord came to Jeremiah. It came in the ¹³ th year that Josiah was king over Judah. Josiah was the son of Amon. ³ After Josiah, his son Jehoiakim was king over Judah. The Lord’s message also came to Jeremiah during the whole time Jehoiakim ruled. The Lord continued to speak to Jeremiah while Zedekiah was king over Judah. He did this until the fifth month of the ¹¹ th year of Zedekiah’s rule. That’s when the people of Jerusalem were forced to leave their country. Zedekiah was the son of Josiah. Here is what Jeremiah said.
+
+The Lord Appoints Jeremiah to Speak for Him
+
+⁴ A message from the Lord came to me. The Lord said,
+
+⁵ “Before I formed you in your mother’s body I chose you.
+Before you were born I set you apart to serve me.
+I appointed you to be a prophet to the nations.”
+⁶ “You are my Lord and King,” I said. “I don’t know how to speak. I’m too young.”
+
+⁷ But the Lord said to me, “Do not say, ‘I’m too young.’ You must go to everyone I send you to. You must say everything I command you to say. ⁸ Do not be afraid of the people I send you to. I am with you. I will save you,” announces the Lord.
+
+⁹ Then the Lord reached out his hand. He touched my mouth and spoke to me. He said, “I have put my words in your mouth. ¹⁰ Today I am appointing you to speak to nations and kingdoms. I give you authority to pull them up by the roots and tear them down. I give you authority to destroy them and crush them. I give you authority to build them up and plant them.”
+
+¹¹ A message from the Lord came to me. The Lord asked me, “What do you see, Jeremiah?”
+
+“The branch of an almond tree,” I replied.
+
+¹² The Lord said to me, “You have seen correctly. I am watching to see that my word comes true.”
+
+¹³ Another message from the Lord came to me. The Lord asked me, “What do you see?”
+
+“A pot that has boiling water in it,” I answered. “It’s leaning toward us from the north.”
+
+¹⁴ The Lord said to me, “Something very bad will be poured out on everyone who lives in this land. It will come from the north. ¹⁵ I am about to send for all the armies in the northern kingdoms,” announces the Lord.
+
+“Their kings will come to Jerusalem.
+They will set up their thrones at the very gates of the city.
+They will attack all the walls that surround the city.
+They will go to war against all the towns of Judah.
+¹⁶ I will judge my people.
+They have done many evil things.
+They have deserted me.
+They have burned incense to other gods.
+They have worshiped the gods
+their own hands have made.
+¹⁷ “So get ready! Stand up! Tell them everything I command you to. Do not let them terrify you. If you do, I will terrify you in front of them. ¹⁸ Today I have made you like a city that has a high wall around it. I have made you like an iron pillar and a bronze wall. Now you can stand up against the whole land. You can stand against the kings and officials of Judah. You can stand against its priests and its people. ¹⁹ They will fight against you. But they will not win the battle over you. I am with you. I will save you,” announces the Lord.
 
 
 ## Sermon Outline
-### The Word 1-2-1 
-- The light of the World 
-- The Christian difference 
-- A different kinda of love 
-- God given opportunity 
-
+### Jeremiah in a picture
+- God works through speaking
+- What does God says?
+- Words with signs
+- We have the words of eternal life
 
 
 ## Q&A
