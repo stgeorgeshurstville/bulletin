@@ -4,7 +4,7 @@ order: 7
 ---
 
 ### Key Idea: 
-There is no salvation withour judgement. God judges and saves through speaking. He speaks through people. 
+There is no salvation without judgement. God judges and saves through speaking. He speaks through people. 
 
 **Reflection questions:**
 
