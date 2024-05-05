@@ -28,8 +28,8 @@ Andrew is the head of Old Testament at Moore College and his PhD on it. This is 
 
 Some brief articles on Jeremiah by him: 
 1. [Judgement in the words of Jermiah](http://thebriefing.com.au/2012/09/judgement-in-the-words-of-jeremiah/)
-2. [Forgiveness in the words of Jeremiah]⁠(http://thebriefing.com.au/2013/01/forgiveness-in-the-words-of-jeremiah/)
-3. [Re-creation in the words of Jeremiah]⁠(http://thebriefing.com.au/2013/05/re-creation-in-the-words-of-jeremiah/)
+2. [Forgiveness in the words of Jeremiah](http://thebriefing.com.au/2013/01/forgiveness-in-the-words-of-jeremiah/)
+3. [Re-creation in the words of Jeremiah](http://thebriefing.com.au/2013/05/re-creation-in-the-words-of-jeremiah/)
 
 ![upload](https://github.com/stgeorgeshurstville/bulletin/assets/119166299/148ee660-ee69-46d7-bbc8-139ef05558f8)
 
