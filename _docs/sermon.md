@@ -23,7 +23,7 @@ order: 2
 Dear God, thank you for speaking to us through the Bible. Help us to listen to it, read it, understand it, and hide it in our hearts. May it give us hope and remind us of the life we can have in Jesus. **Amen**.
 
 
-### Jeremiah 1 NIV
+### Jeremiah 7 NIV
 
 **False Religion Worthless**
 
