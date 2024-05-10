@@ -9,7 +9,7 @@ order: 5
 | ----- | ----- | ----- |
 | **MAY** | 
 | SUN MAY 5 | NewGen resumes | |
-| MON MAY 6 | DGroup resumes this week | |
+| MON MAY 6 | DGroup resumes this week |[DGroup times and sign up](https://stgeorgeshurstville.org.au/discipleship-groups) |
 | SUN MAY 26 | Baptism Course #1 | 11am and 5:45pm |
 | **JUNE** | 
 | SUN JUN 2 | Baptism Course #2 | 11am and 5:45pm |
