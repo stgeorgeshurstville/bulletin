@@ -25,50 +25,34 @@ Dear God, thank you for speaking to us through the Bible. Help us to listen to i
 
 ### Jeremiah 1 NIV
 
-¹ The words of Jeremiah son of Hilkiah, one of the priests at Anathoth in the territory of Benjamin. ² The word of the Lord came to him in the thirteenth year of the reign of Josiah son of Amon king of Judah, ³ and through the reign of Jehoiakim son of Josiah king of Judah, down to the fifth month of the eleventh year of Zedekiah son of Josiah king of Judah, when the people of Jerusalem went into exile.
+**False Religion Worthless**
 
-**The Call of Jeremiah**
+¹ This is the word that came to Jeremiah from the Lord: ² “Stand at the gate of the Lord’s house and there proclaim this message:
 
-⁴ The word of the Lord came to me, saying,
+“‘Hear the word of the Lord, all you people of Judah who come through these gates to worship the Lord. ³ This is what the Lord Almighty, the God of Israel, says: Reform your ways and your actions, and I will let you live in this place. ⁴ Do not trust in deceptive words and say, “This is the temple of the Lord, the temple of the Lord, the temple of the Lord!” ⁵ If you really change your ways and your actions and deal with each other justly, ⁶ if you do not oppress the foreigner, the fatherless or the widow and do not shed innocent blood in this place, and if you do not follow other gods to your own harm, ⁷ then I will let you live in this place, in the land I gave your ancestors for ever and ever. ⁸ But look, you are trusting in deceptive words that are worthless.
 
-⁵ “Before I formed you in the womb I knew you,
-before you were born I set you apart;
-I appointed you as a prophet to the nations.”
-⁶ “Alas, Sovereign Lord,” I said, “I do not know how to speak; I am too young.”
+⁹ “‘Will you steal and murder, commit adultery and perjury, burn incense to Baal and follow other gods you have not known, ¹⁰ and then come and stand before me in this house, which bears my Name, and say, “We are safe”—safe to do all these detestable things? ¹¹ Has this house, which bears my Name, become a den of robbers to you? But I have been watching! declares the Lord.
 
-⁷ But the Lord said to me, “Do not say, ‘I am too young.’ You must go to everyone I send you to and say whatever I command you. ⁸ Do not be afraid of them, for I am with you and will rescue you,” declares the Lord.
+¹² “‘Go now to the place in Shiloh where I first made a dwelling for my Name, and see what I did to it because of the wickedness of my people Israel. ¹³ While you were doing all these things, declares the Lord, I spoke to you again and again, but you did not listen; I called you, but you did not answer. ¹⁴ Therefore, what I did to Shiloh I will now do to the house that bears my Name, the temple you trust in, the place I gave to you and your ancestors. ¹⁵ I will thrust you from my presence, just as I did all your fellow Israelites, the people of Ephraim.’
 
-⁹ Then the Lord reached out his hand and touched my mouth and said to me, “I have put my words in your mouth. ¹⁰ See, today I appoint you over nations and kingdoms to uproot and tear down, to destroy and overthrow, to build and to plant.”
+¹⁶ “So do not pray for this people nor offer any plea or petition for them; do not plead with me, for I will not listen to you. ¹⁷ Do you not see what they are doing in the towns of Judah and in the streets of Jerusalem? ¹⁸ The children gather wood, the fathers light the fire, and the women knead the dough and make cakes to offer to the Queen of Heaven. They pour out drink offerings to other gods to arouse my anger. ¹⁹ But am I the one they are provoking? declares the Lord. Are they not rather harming themselves, to their own shame?
 
-¹¹ The word of the Lord came to me: “What do you see, Jeremiah?”
+²⁰ “‘Therefore this is what the Sovereign Lord says: My anger and my wrath will be poured out on this place—on man and beast, on the trees of the field and on the crops of your land—and it will burn and not be quenched.
 
-“I see the branch of an almond tree,” I replied.
+²¹ “‘This is what the Lord Almighty, the God of Israel, says: Go ahead, add your burnt offerings to your other sacrifices and eat the meat yourselves! ²² For when I brought your ancestors out of Egypt and spoke to them, I did not just give them commands about burnt offerings and sacrifices, ²³ but I gave them this command: Obey me, and I will be your God and you will be my people. Walk in obedience to all I command you, that it may go well with you. ²⁴ But they did not listen or pay attention; instead, they followed the stubborn inclinations of their evil hearts. They went backward and not forward. ²⁵ From the time your ancestors left Egypt until now, day after day, again and again I sent you my servants the prophets. ²⁶ But they did not listen to me or pay attention. They were stiff-necked and did more evil than their ancestors.’
 
-¹² The Lord said to me, “You have seen correctly, for I am watching to see that my word is fulfilled.”
+²⁷ “When you tell them all this, they will not listen to you; when you call to them, they will not answer. ²⁸ Therefore say to them, ‘This is the nation that has not obeyed the Lord its God or responded to correction. Truth has perished; it has vanished from their lips.
 
-¹³ The word of the Lord came to me again: “What do you see?”
+²⁹ “‘Cut off your hair and throw it away; take up a lament on the barren heights, for the Lord has rejected and abandoned this generation that is under his wrath.
 
-“I see a pot that is boiling,” I answered. “It is tilting toward us from the north.”
+**The Valley of Slaughter**
 
-¹⁴ The Lord said to me, “From the north disaster will be poured out on all who live in the land. ¹⁵ I am about to summon all the peoples of the northern kingdoms,” declares the Lord.
-
-“Their kings will come and set up their thrones
-in the entrance of the gates of Jerusalem;
-they will come against all her surrounding walls
-and against all the towns of Judah.
-¹⁶ I will pronounce my judgments on my people
-because of their wickedness in forsaking me,
-in burning incense to other gods
-and in worshiping what their hands have made.
-¹⁷ “Get yourself ready! Stand up and say to them whatever I command you. Do not be terrified by them, or I will terrify you before them. ¹⁸ Today I have made you a fortified city, an iron pillar and a bronze wall to stand against the whole land—against the kings of Judah, its officials, its priests and the people of the land. ¹⁹ They will fight against you but will not overcome you, for I am with you and will rescue you,” declares the Lord.
-
+³⁰ “‘The people of Judah have done evil in my eyes, declares the Lord. They have set up their detestable idols in the house that bears my Name and have defiled it. ³¹ They have built the high places of Topheth in the Valley of Ben Hinnom to burn their sons and daughters in the fire—something I did not command, nor did it enter my mind. ³² So beware, the days are coming, declares the Lord, when people will no longer call it Topheth or the Valley of Ben Hinnom, but the Valley of Slaughter, for they will bury the dead in Topheth until there is no more room. ³³ Then the carcasses of this people will become food for the birds and the wild animals, and there will be no one to frighten them away. ³⁴ I will bring an end to the sounds of joy and gladness and to the voices of bride and bridegroom in the towns of Judah and the streets of Jerusalem, for the land will become desolate.
 
 ## Sermon Outline
-### Jeremiah in a picture
-- God works through speaking
-- What does God says?
-- Words with signs
-- We have the words of eternal life
+1. Context
+2. Repent
+3. Disaster & Death
 
 
 ## Q&A
