@@ -32,7 +32,7 @@ order: 5
 ## General
 - **Nepali church plant**: Bijaya and Kate have now moved into the rectory. Please say ‘hello’ to them if you see them around and warmly welcome them. Use the following link to support them [here](https://encministries.org.au/ministry/nepali/)
 - **The Word 1-2-1**: Find out what you can do with the Word of God [here](https://www.theword121.com/)
-- **Baptism & Confirmation courses**: TWe have a 2 week course starting on May 26th. Please speak with Rev. Lam if you want to express your faith in Christ through baptism or confirmation (those who want to confirm the baptismal promises made on their behalf and were baptised before high school). 
+- **Baptism & Confirmation courses**: We have a 2 week course starting on May 26th. Please speak with Rev. Lam if you want to express your faith in Christ through baptism or confirmation (those who want to confirm the baptismal promises made on their behalf and were baptised before high school). 
 - **Coffee cart**: We are serving baristas coffee after 9:30am church today. Order your coffee at the sign-in area. $3 (small) $4 (large). Why not buy coffee for someone you don’t know?
 - **Growing in Our Welcoming**
 
