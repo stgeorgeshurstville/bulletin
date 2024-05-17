@@ -12,7 +12,7 @@ title: Welcome
 ## Jeremiah - A New Destiny Amidst Death & Destruction
 
 
-#### Lord, you have said, 'Seek my face.' My heart says to you, 'Your face, Lord, do I seek.' Do not hide your face from me. Psalm 27.8-9
+#### God's love has been poured out into our hearts through the Holy Spirit who has been given to us. Romans 5.5
 
 
 ---
