@@ -13,10 +13,6 @@ order: 4
 - **Sermon:** Merciful Father, power, wealth, health and wisdom have made us foolishly self reliant and arrogant towards you and unloving towards our fellow human beings. Our hearts are hard and we cannot change and save ourselves. Thank you for your compassion towards us. Thank you for stepping into the world to save the lost. Thank you for our Messiah, Jesus who bore our judgement so that we can experience your mercy. We long for all the lost to be found and saved but above all we long for all to honour Jesus as the Lord. Please hear our prayers in His name, Amen.  
 
 
-## Weekly Prayer Points
-- Other prayer points can be found [here] (https://stgeorgeshurstville.org.au/prayer)
-
-
 ## Mission Partner Focus
 - **JC in SE Asia:** You call us to make and mature disciples of all nations. We ask that you’ll allow JC to courageously, lovingly and prayerfully share the gospel in a country where evangelism is not allowed and even publicly practicing one’s faith is difficult (including the recent events over Easter). May you soften the hearts of the authorities and the people so that they’ll hear and accept the peace, purpose and real spiritual prosperity in Jesus. May you save JC’s family. May you raise up Christians and leaders in the university and church. 
 - You can go here for more information on how to pray, support and give [here](https://stgeorgeshurstville.org.au/mission-partners)
