@@ -10,7 +10,7 @@ order: 1
 4. Blessed Be Your Name
 
 ## 4pm 
-1.Yet Not I But Through Christ In Me
+1. Yet Not I But Through Christ In Me
 2. My God is so big!
 3. Before The Throne of God Above
 4. All Glory be to Christ
