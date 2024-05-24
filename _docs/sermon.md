@@ -25,8 +25,6 @@ Thank you Father for making yourself known to us, showing us the way of salvatio
 
 ### Jeremiah 31:27-40 NIV
 
-**The Righteous Branch**
-
 ²⁷ “The days are coming,” declares the Lord, “when I will plant the kingdoms of Israel and Judah with the offspring of people and of animals. ²⁸ Just as I watched over them to uproot and tear down, and to overthrow, destroy and bring disaster, so I will watch over them to build and to plant,” declares the Lord. ²⁹ “In those days people will no longer say,
 
 ‘The parents have eaten sour grapes,
