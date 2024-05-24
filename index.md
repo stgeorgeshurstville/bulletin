@@ -12,7 +12,7 @@ title: Welcome
 ## Jeremiah - A New Destiny Amidst Death & Destruction
 
 
-#### God's love has been poured out into our hearts through the Holy Spirit who has been given to us. Romans 5.5
+#### Blessed be God the Father and His only begotten Son and the Holy Spirit; for He has shown that He loves us. Ephesians 2.17-18
 
 
 ---
