@@ -4,19 +4,28 @@ order: 7
 ---
 
 ### Key Idea: 
-The world can only be saved by a messiah who is unlike all others.
+Jesus brings in the new covenant through his sacrifice and the Spirit. 
+
 
 **Reflection questions:**
 
-1. Please read Jeremiah 21-23. Who is the judgement of the Lord against? and why? 
-2. The kings of Judah were confident that they were untouchable Jer 21:13. Why?
-3. Josiah knew the Lord, unlike his sons and the people of Judah Jer 22.16. In what way was this demonstrated? How would oppression of the vulnerable prove an ignorance of God?
-4. What does the Lord promise in Jer 23.1-8?
-5. The Lord promised the end of the Davidic kings in Jer 22.30. Yet He also promised to keep His promise to David in Jer 23.1-8. How can these be reconciled?
-6. How will this promised messiah be different to the previous messiahs and all subsequent messiahs?
-7. How does Jesus fulfil the promise of Jer 23? How is Jesus different from all human leaders?
-8. How might Jer 21-23 be a warning to christian leaders, including christian parents?
-9. How might Jesus change the type of relationship and community for those who belong to His kingdom and who has the knowledge of God? 
+1. We didn’t look at Jeremiah 31:1-26. As you read these verses, what’s the picture of the future that’s painted?
+2. In verses 27-40, what’s the future that’s painted?
+-  In v27-28, why does it include man, beast and plants?
+-  In v29-30, why was there this saying and does it make sense?
+-  In v31-34, what’s new about this new covenant?
+-  In v35-37, what is God trying to say about himself and Israel?
+-  In v38-40, what’s different about this city?
+3. What does covenant mean?
+4. What do we find out about the new covenant in the New Testament?
+   - Luke 22:19-21
+   - 2 Cor 3:1-6
+   - Hebrews 8:7-10:35 (Jeremiah is quoted in Hebrews 8:8, 10:5, 10:16)
+ 5. One of the key things in this chapter (and in the book of Jeremiah) is the new covenant. What’s different between the old and new covenant? How is the new better? 
+6. What do you appreciate the most about the new covenant? 
+7. Does this mean that the old covenant was faulty? 
+8. What does it mean for us to have new hearts and minds? What does this look like for you? 
+
 
 
 ![upload](https://github.com/stgeorgeshurstville/bulletin/assets/119166299/148ee660-ee69-46d7-bbc8-139ef05558f8)
