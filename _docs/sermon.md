@@ -69,8 +69,8 @@ For I will restore the fortunes of the land as they were before,’ says the Lor
 1. The problem of Abdulrahman
 2. Background - a confusing message 
 3. A answer to prayer 
-Judgment/Death 
-Mercy/Resurrection 
+- Judgment/Death 
+- Mercy/Resurrection 
 4. Conclusions
 
 ## Q&A
