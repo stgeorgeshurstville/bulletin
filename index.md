@@ -12,7 +12,8 @@ title: Welcome
 ## Jeremiah - A New Destiny Amidst Death & Destruction
 
 
-#### Blessed be God the Father and His only begotten Son and the Holy Spirit; for He has shown that He loves us. Ephesians 2.17-18
+#### O sing to the Lord a new song; sing to the Lord, all the earth. Honour and majesty are before him; strength and beauty are in his sanctuary. Psalm 96:1,6
+
 
 
 ---
