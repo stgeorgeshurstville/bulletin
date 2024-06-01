@@ -25,7 +25,7 @@ Thank you, Father, for revealing yourself to us and showing us the way to be sav
 
 ### Jeremiah 33 NIV11
 
-³³ While Jeremiah was still confined in the courtyard of the guard, the word of the Lord came to him a second time: ² “This is what the Lord says, he who made the earth, the Lord who formed it and established it—the Lord is his name: 
+¹While Jeremiah was still confined in the courtyard of the guard, the word of the Lord came to him a second time: ² “This is what the Lord says, he who made the earth, the Lord who formed it and established it—the Lord is his name: 
 ³ ‘Call to me and I will answer you and tell you great and unsearchable things you do not know.’ 
 ⁴ For this is what the Lord, the God of Israel, says about the houses in this city and the royal palaces of Judah that have been torn down to be used against the siege ramps and the sword 
 ⁵ in the fight with the Babylonians : ‘They will be filled with the dead bodies of the people I will slay in my anger and wrath. I will hide my face from this city because of all its wickedness.
