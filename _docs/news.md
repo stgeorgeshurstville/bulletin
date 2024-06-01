@@ -10,6 +10,7 @@ order: 5
 | **JUNE** | 
 | SUN JUN 2 | Baptism Course #2 | 11am and 5:45pm |
 | SUN JUN 16 | Baptism |  |
+| SUN JUN 22 | Equip | 9:30-4:00pm |
 | **AUGUST** | 
 | SUN AUG 4 | Life Course #1 | 11am and 5:45pm |
 | SUN AUG 11 | Life Course #2 | 11am and 5:45pm |
