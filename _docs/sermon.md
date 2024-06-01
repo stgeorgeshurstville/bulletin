@@ -57,60 +57,6 @@ For I will restore the fortunes of the land as they were before,’ says the Lor
 ²⁵ This is what the Lord says: ‘If I have not made my covenant with day and night and established the laws of heaven and earth, 
 ²⁶ then I will reject the descendants of Jacob and David my servant and will not choose one of his sons to rule over the descendants of Abraham, Isaac and Jacob. For I will restore their fortunes and have compassion on them.’”
 
-‘The parents have eaten sour grapes,
-and the children’s teeth are set on edge.’
-
-³⁰ Instead, everyone will die for their own sin; whoever eats sour grapes—their own teeth will be set on edge.
-
-³¹ “The days are coming,” declares the Lord,
-“when I will make a new covenant
-with the people of Israel
-and with the people of Judah.
-³² It will not be like the covenant
-I made with their ancestors
-when I took them by the hand
-to lead them out of Egypt,
-because they broke my covenant,
-though I was a husband to them, ”
-declares the Lord.
-³³ “This is the covenant I will make with the people of Israel
-after that time,” declares the Lord.
-“I will put my law in their minds
-and write it on their hearts.
-I will be their God,
-and they will be my people.
-³⁴ No longer will they teach their neighbor,
-or say to one another, ‘Know the Lord,’
-because they will all know me,
-from the least of them to the greatest,”
-declares the Lord.
-“For I will forgive their wickedness
-and will remember their sins no more.”
-
-³⁵ This is what the Lord says,
-
-he who appoints the sun
-to shine by day,
-who decrees the moon and stars
-to shine by night,
-who stirs up the sea
-so that its waves roar—
-the Lord Almighty is his name:
-³⁶ “Only if these decrees vanish from my sight,”
-declares the Lord,
-“will Israel ever cease
-being a nation before me.”
-
-³⁷ This is what the Lord says:
-
-“Only if the heavens above can be measured
-and the foundations of the earth below be searched out
-will I reject all the descendants of Israel
-because of all they have done,”
-declares the Lord.
-
-³⁸ “The days are coming,” declares the Lord, “when this city will be rebuilt for me from the Tower of Hananel to the Corner Gate. ³⁹ The measuring line will stretch from there straight to the hill of Gareb and then turn to Goah. ⁴⁰ The whole valley where dead bodies and ashes are thrown, and all the terraces out to the Kidron Valley on the east as far as the corner of the Horse Gate, will be holy to the Lord. The city will never again be uprooted or demolished.”
-
 
 ### Hebrews 9:13-15
 
