@@ -29,16 +29,21 @@ Thank you, Father, for revealing yourself to us and showing us the way to be sav
 ³ ‘Call to me and I will answer you and tell you great and unsearchable things you do not know.’ 
 ⁴ For this is what the Lord, the God of Israel, says about the houses in this city and the royal palaces of Judah that have been torn down to be used against the siege ramps and the sword 
 ⁵ in the fight with the Babylonians : ‘They will be filled with the dead bodies of the people I will slay in my anger and wrath. I will hide my face from this city because of all its wickedness.
+
 ⁶ “‘Nevertheless, I will bring health and healing to it; I will heal my people and will let them enjoy abundant peace and security. ⁷ I will bring Judah and Israel back from captivity and will rebuild them as they were before. ⁸ I will cleanse them from all the sin they have committed against me and will forgive all their sins of rebellion against me. ⁹ Then this city will bring me renown, joy, praise and honor before all nations on earth that hear of all the good things I do for it; and they will be in awe and will tremble at the abundant prosperity and peace I provide for it.’
+
 ¹⁰ “This is what the Lord says: ‘You say about this place, “It is a desolate waste, without people or animals.” Yet in the towns of Judah and the streets of Jerusalem that are deserted, inhabited by neither people nor animals, there will be heard once more 
 ¹¹ the sounds of joy and gladness, the voices of bride and bridegroom, and the voices of those who bring thank offerings to the house of the Lord, saying,
 “Give thanks to the Lord Almighty, for the Lord is good; his love endures forever.”
 For I will restore the fortunes of the land as they were before,’ says the Lord.
+
 ¹² “This is what the Lord Almighty says: ‘In this place, desolate and without people or animals—in all its towns there will again be pastures for shepherds to rest their flocks.
 ¹³ In the towns of the hill country, of the western foothills and of the Negev, in the territory of Benjamin, in the villages around Jerusalem and in the towns of Judah, flocks will again pass under the hand of the one who counts them,’ says the Lord.
+
 ¹⁴ “‘The days are coming,’ declares the Lord, ‘when I will fulfill the good promise I made to the people of Israel and Judah.
 ¹⁵ “‘In those days and at that time I will make a righteous Branch sprout from David’s line; he will do what is just and right in the land.
 ¹⁶ In those days Judah will be saved and Jerusalem will live in safety. This is the name by which it will be called: The Lord Our Righteous Savior.’
+
 ¹⁷ For this is what the Lord says: ‘David will never fail to have a man to sit on the throne of Israel, 
 ¹⁸ nor will the Levitical priests ever fail to have a man to stand before me continually to offer burnt offerings, to burn grain offerings and to present sacrifices.’”
 
