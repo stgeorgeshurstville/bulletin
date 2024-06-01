@@ -66,12 +66,12 @@ For I will restore the fortunes of the land as they were before,’ says the Lor
 
 
 ## Sermon Outline
-1. A new Israel and Judah (v27-28)
-2. A new start (v29-30)
-3. A new covenant (v31-34)
-4. A new nation (v35-37)
-5. A new city (v38-40)
-
+1. The problem of Abdulrahman
+2. Background - a confusing message 
+3. A answer to prayer 
+Judgment/Death 
+Mercy/Resurrection 
+4. Conclusions
 
 ## Q&A
 Got questions or comments? Send them [here](https://tinyurl.com/SGHACQuestionsAnswers)
