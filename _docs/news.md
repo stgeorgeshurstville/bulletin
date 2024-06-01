@@ -7,9 +7,6 @@ order: 5
 
 | Date | Event | Time |
 | ----- | ----- | ----- |
-| **MAY** | 
-| MON MAY 6 | DGroup resumes this week |[DGroup times and sign up](https://stgeorgeshurstville.org.au/discipleship-groups) |
-| SUN MAY 26 | Baptism Course #1 | 11am and 5:45pm |
 | **JUNE** | 
 | SUN JUN 2 | Baptism Course #2 | 11am and 5:45pm |
 | SUN JUN 16 | Baptism |  |
@@ -32,9 +29,8 @@ order: 5
 ## General
 - **Nepali church plant**: Bijaya and Kate have now moved into the rectory. Please say ‘hello’ to them if you see them around and warmly welcome them. Use the following link to support them [here](https://encministries.org.au/ministry/nepali/)
 - **The Word 1-2-1**: Find out what you can do with the Word of God [here](https://www.theword121.com/)
-- **Baptism & Confirmation courses**: We have a 2 week course starting on May 26th. Please speak with Rev. Lam if you want to express your faith in Christ through baptism or confirmation (those who want to confirm the baptismal promises made on their behalf and were baptised before high school).
-- **EQUIP:** Equip Women’s Conference will be held on June 22nd, and we will participate via Livestream of the event here at church. For more information, contact Pastor Carol Chiu.
-- **CASS Playgroup:** A local community group from CASS is seeking to launch a playgroup at our church during school terms on Tuesday mornings 10am from June 4th. For enrolment or inquiries, please email cassfdc@cass.org.au
+- **EQUIP:** Equip Women’s Conference - Hope for the Weary (Revelation 1-5) will be held on Saturday June 22nd from 9:30-4:00 via livestream at church. Conference tickets are $20 for adults and free for teens.  We will be enjoying lunch together with proceeds going towards the new Nepalese Ministry. Pay on the day. RSVP via [church](https://stgeorgeshurstville.org.au/equip24) 
+- **CASS Playgroup:** A local community group from CASS is seeking to launch a playgroup at our church during school terms on Tuesday mornings 10am from June 4th. For enrolment or inquiries, please email [CASS](cassfdc@cass.org.au)
 - **Mental Health Survey:** Our church participated in a mental health survey. These are the results.
 - Survey Results: [Click here](https://anglicare.us12.list-manage.com/track/click?u=c55d32470f9080e352c9fa9ee&id=73909ce03c&e=cae2a969f1)
 - Survey Insights: [Click here](https://anglicare.us12.list-manage.com/track/click?u=c55d32470f9080e352c9fa9ee&id=7ae7c7f622&e=cae2a969f1)
