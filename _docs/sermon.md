@@ -20,58 +20,28 @@ order: 2
 ## Bible Reading
 
 ### Prayer
-Thank you, Father, for revealing yourself to us and showing us the way to be saved through faith in your Son. Please teach us through your word now, so we can be ready to serve you and bring glory to our Lord Jesus Christ. **Amen**.
+Almighty God, we thank you for the gift of your holy word. May it be a lantern to our feet, a light to our paths, and strength to our lives. Take us and use us to love and serve all people in the power of the Holy Spirit and in the name of your Son Jesus Christ our Lord. **Amen**.
 
 
-### Jeremiah 33 NIV11
+### Jeremiah 39 NIV11
 
-¹ While Jeremiah was still confined in the courtyard of the guard, the word of the Lord came to him a second time: ² “This is what the Lord says, he who made the earth, the Lord who formed it and established it—the Lord is his name: 
-³ ‘Call to me and I will answer you and tell you great and unsearchable things you do not know.’ 
-⁴ For this is what the Lord, the God of Israel, says about the houses in this city and the royal palaces of Judah that have been torn down to be used against the siege ramps and the sword 
-⁵ in the fight with the Babylonians : ‘They will be filled with the dead bodies of the people I will slay in my anger and wrath. I will hide my face from this city because of all its wickedness.
+¹ In the ninth year of Zedekiah king of Judah, in the tenth month, Nebuchadnezzar king of Babylon marched against Jerusalem with his whole army and laid siege to it. ² And on the ninth day of the fourth month of Zedekiah’s eleventh year, the city wall was broken through. ³ Then all the officials of the king of Babylon came and took seats in the Middle Gate: Nergal-Sharezer of Samgar, Nebo-Sarsekim a chief officer, Nergal-Sharezer a high official and all the other officials of the king of Babylon. ⁴ When Zedekiah king of Judah and all the soldiers saw them, they fled; they left the city at night by way of the king’s garden, through the gate between the two walls, and headed toward the Arabah. 
 
-⁶ “‘Nevertheless, I will bring health and healing to it; I will heal my people and will let them enjoy abundant peace and security. ⁷ I will bring Judah and Israel back from captivity and will rebuild them as they were before. ⁸ I will cleanse them from all the sin they have committed against me and will forgive all their sins of rebellion against me. ⁹ Then this city will bring me renown, joy, praise and honor before all nations on earth that hear of all the good things I do for it; and they will be in awe and will tremble at the abundant prosperity and peace I provide for it.’
+⁵ But the Babylonian army pursued them and overtook Zedekiah in the plains of Jericho. They captured him and took him to Nebuchadnezzar, king of Babylon at Riblah in the land of Hamath, where he pronounced sentence on him. ⁶ There at Riblah the king of Babylon slaughtered the sons of Zedekiah before his eyes and also killed all the nobles of Judah. ⁷ Then he put out Zedekiah’s eyes and bound him with bronze shackles to take him to Babylon.
 
-¹⁰ “This is what the Lord says: ‘You say about this place, “It is a desolate waste, without people or animals.” Yet in the towns of Judah and the streets of Jerusalem that are deserted, inhabited by neither people nor animals, there will be heard once more 
-¹¹ the sounds of joy and gladness, the voices of bride and bridegroom, and the voices of those who bring thank offerings to the house of the Lord, saying,
-“Give thanks to the Lord Almighty, for the Lord is good; his love endures forever.”
-For I will restore the fortunes of the land as they were before,’ says the Lord.
+⁸ The Babylonians set fire to the royal palace and the houses of the people and broke down the walls of Jerusalem. ⁹ Nebuzaradan commander of the imperial guard carried into exile to Babylon the people who remained in the city, along with those who had gone over to him, and the rest of the people. ¹⁰ But Nebuzaradan the commander of the guard left behind in the land of Judah some of the poor people, who owned nothing; and at that time he gave them vineyards and fields.
 
-¹² “This is what the Lord Almighty says: ‘In this place, desolate and without people or animals—in all its towns there will again be pastures for shepherds to rest their flocks.
-¹³ In the towns of the hill country, of the western foothills and of the Negev, in the territory of Benjamin, in the villages around Jerusalem and in the towns of Judah, flocks will again pass under the hand of the one who counts them,’ says the Lord.
+¹¹ Now Nebuchadnezzar king of Babylon had given these orders about Jeremiah through Nebuzaradan commander of the imperial guard: ¹² “Take him and look after him; don’t harm him but do for him whatever he asks.” ¹³ So Nebuzaradan the commander of the guard, Nebushazban a chief officer, Nergal-Sharezer a high official and all the other officers of the king of Babylon ¹⁴ sent and had Jeremiah taken out of the courtyard of the guard. They turned him over to Gedaliah son of Ahikam, the son of Shaphan, to take him back to his home. So he remained among his own people.
 
-¹⁴ “‘The days are coming,’ declares the Lord, ‘when I will fulfill the good promise I made to the people of Israel and Judah.
-¹⁵ “‘In those days and at that time I will make a righteous Branch sprout from David’s line; he will do what is just and right in the land.
-¹⁶ In those days Judah will be saved and Jerusalem will live in safety. This is the name by which it will be called: The Lord Our Righteous Savior.’
+¹⁵ While Jeremiah had been confined in the courtyard of the guard, the word of the Lord came to him: ¹⁶ “Go and tell Ebed-Melek the Cushite, ‘This is what the Lord Almighty, the God of Israel, says: I am about to fulfill my words against this city—words concerning disaster, not prosperity. At that time they will be fulfilled before your eyes. ¹⁷ But I will rescue you on that day, declares the Lord; you will not be given into the hands of those you fear. ¹⁸ I will save you; you will not fall by the sword but will escape with your life, because you trust in me, declares the Lord.’”
 
-¹⁷ For this is what the Lord says: ‘David will never fail to have a man to sit on the throne of Israel, 
-¹⁸ nor will the Levitical priests ever fail to have a man to stand before me continually to offer burnt offerings, to burn grain offerings and to present sacrifices.’”
-
-¹⁹ The word of the Lord came to Jeremiah: 
-²⁰ “This is what the Lord says: ‘If you can break my covenant with the day and my covenant with the night, so that day and night no longer come at their appointed time, 
-²¹ then my covenant with David my servant—and my covenant with the Levites who are priests ministering before me—can be broken and David will no longer have a descendant to reign on his throne. 
-²² I will make the descendants of David my servant and the Levites who minister before me as countless as the stars in the sky and as measureless as the sand on the seashore.’”
-
-²³ The word of the Lord came to Jeremiah: 
-²⁴ “Have you not noticed that these people are saying, ‘The Lord has rejected the two kingdoms he chose’? So they despise my people and no longer regard them as a nation. 
-²⁵ This is what the Lord says: ‘If I have not made my covenant with day and night and established the laws of heaven and earth, 
-²⁶ then I will reject the descendants of Jacob and David my servant and will not choose one of his sons to rule over the descendants of Abraham, Isaac and Jacob. For I will restore their fortunes and have compassion on them.’”
-
-
-### Hebrews 9:13-15
-
-¹³ The blood of goats and bulls and the ashes of a heifer sprinkled on those who are ceremonially unclean sanctify them so that they are outwardly clean. ¹⁴ How much more, then, will the blood of Christ, who through the eternal Spirit offered himself unblemished to God, cleanse our consciences from acts that lead to death, so that we may serve the living God!
-
-¹⁵ For this reason Christ is the mediator of a new covenant, that those who are called may receive the promised eternal inheritance—now that he has died as a ransom to set them free from the sins committed under the first covenant.
 
 
 ## Sermon Outline
-1. The problem of Abdulrahman
-2. Background - a confusing message 
-3. A answer to prayer 
-- Judgment/Death 
-- Mercy/Resurrection 
-4. Conclusions
+1.	Jeremiah’s Message. 
+2.	Judgement and Justice (v1-10). 
+3.	Salvation and Safety (v11-18). 
+4.	Our Message.
 
 ## Q&A
 Got questions or comments? Send them [here](https://tinyurl.com/SGHACQuestionsAnswers)
