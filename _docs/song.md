@@ -4,10 +4,10 @@ order: 1
 ---
 
 ## 9:30am 
-1. All Creatures of our God & King
-2. How Deep the Fathers Love for Us
-3.  And Can It Be
-4. It Was Finished Upon That Cross
+1. Worthy of Praise  
+2. Holy Forever
+3. Have Mercy on Me
+4. Jesus Christ, The King and Saviour
 
 ## 4pm 
 1. Only a Holy God 
