@@ -12,7 +12,7 @@ title: Welcome
 ## Jeremiah - A New Destiny Amidst Death & Destruction
 
 
-#### O sing to the Lord a new song; sing to the Lord, all the earth. Honour and majesty are before him; strength and beauty are in his sanctuary. Psalm 96:1,6
+#### The Lord is the strength of his people, he is the saving refuge of his anointed. O save your people, and bless your heirtage; be their shepherd and carry them forever. Psalm 28:8-9
 
 
 
