@@ -150,10 +150,6 @@ I will not let you go entirely unpunished.”
 2.	The battle of Carchemish and its meaning
 3.	Conclusions 
 
-The battle of Carchemish and its meaning 
-
-Conclusions 
-
 
 ## Q&A
 Got questions or comments? Send them [here](https://tinyurl.com/SGHACQuestionsAnswers)
