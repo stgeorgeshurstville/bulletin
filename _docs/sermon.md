@@ -20,29 +20,140 @@ order: 2
 ## Bible Reading
 
 ### Prayer
-Almighty God, we thank you for the gift of your holy word. May it be a lantern to our feet, a light to our paths, and strength to our lives. Take us and use us to love and serve all people in the power of the Holy Spirit and in the name of your Son Jesus Christ our Lord. **Amen**.
+We thank you heavenly Father, for inspiring all Scripture by the Holy Spirit. Help us by your Spirit so to hear your holy word that we may be equipped for every good work, through Jesus Christ our Lord. **Amen**.
 
-## The Fall of Jerusalem
+## Judgement of Nations
 
-### Jeremiah 39 NIV11
+### 9:30am: Jeremiah 46:1-28 NIV11
+### 4pm: Jeremiah 46:1-12 NIV11
 
-¹ In the ninth year of Zedekiah king of Judah, in the tenth month, Nebuchadnezzar king of Babylon marched against Jerusalem with his whole army and laid siege to it. ² And on the ninth day of the fourth month of Zedekiah’s eleventh year, the city wall was broken through. ³ Then all the officials of the king of Babylon came and took seats in the Middle Gate: Nergal-Sharezer of Samgar, Nebo-Sarsekim a chief officer, Nergal-Sharezer a high official and all the other officials of the king of Babylon. ⁴ When Zedekiah king of Judah and all the soldiers saw them, they fled; they left the city at night by way of the king’s garden, through the gate between the two walls, and headed toward the Arabah. 
+¹ This is the word of the Lord that came to Jeremiah the prophet concerning the nations:
 
-⁵ But the Babylonian army pursued them and overtook Zedekiah in the plains of Jericho. They captured him and took him to Nebuchadnezzar, king of Babylon at Riblah in the land of Hamath, where he pronounced sentence on him. ⁶ There at Riblah the king of Babylon slaughtered the sons of Zedekiah before his eyes and also killed all the nobles of Judah. ⁷ Then he put out Zedekiah’s eyes and bound him with bronze shackles to take him to Babylon.
+² Concerning Egypt:
 
-⁸ The Babylonians set fire to the royal palace and the houses of the people and broke down the walls of Jerusalem. ⁹ Nebuzaradan commander of the imperial guard carried into exile to Babylon the people who remained in the city, along with those who had gone over to him, and the rest of the people. ¹⁰ But Nebuzaradan the commander of the guard left behind in the land of Judah some of the poor people, who owned nothing; and at that time he gave them vineyards and fields.
+This is the message against the army of Pharaoh Necho king of Egypt, which was defeated at Carchemish on the Euphrates River by Nebuchadnezzar king of Babylon in the fourth year of Jehoiakim son of Josiah king of Judah:
 
-¹¹ Now Nebuchadnezzar king of Babylon had given these orders about Jeremiah through Nebuzaradan commander of the imperial guard: ¹² “Take him and look after him; don’t harm him but do for him whatever he asks.” ¹³ So Nebuzaradan the commander of the guard, Nebushazban a chief officer, Nergal-Sharezer a high official and all the other officers of the king of Babylon ¹⁴ sent and had Jeremiah taken out of the courtyard of the guard. They turned him over to Gedaliah son of Ahikam, the son of Shaphan, to take him back to his home. So he remained among his own people.
+³ “Prepare your shields, both large and small,
+and march out for battle!
+⁴ Harness the horses,
+mount the steeds!
+Take your positions
+with helmets on!
+Polish your spears,
+put on your armor!
+⁵ What do I see?
+They are terrified,
+they are retreating,
+their warriors are defeated.
+They flee in haste
+without looking back,
+and there is terror on every side,”
+declares the Lord.
+⁶ “The swift cannot flee
+nor the strong escape.
+In the north by the River Euphrates
+they stumble and fall.
 
-¹⁵ While Jeremiah had been confined in the courtyard of the guard, the word of the Lord came to him: ¹⁶ “Go and tell Ebed-Melek the Cushite, ‘This is what the Lord Almighty, the God of Israel, says: I am about to fulfill my words against this city—words concerning disaster, not prosperity. At that time they will be fulfilled before your eyes. ¹⁷ But I will rescue you on that day, declares the Lord; you will not be given into the hands of those you fear. ¹⁸ I will save you; you will not fall by the sword but will escape with your life, because you trust in me, declares the Lord.’”
+⁷ “Who is this that rises like the Nile,
+like rivers of surging waters?
+⁸ Egypt rises like the Nile,
+like rivers of surging waters.
+She says, ‘I will rise and cover the earth;
+I will destroy cities and their people.’
+⁹ Charge, you horses!
+Drive furiously, you charioteers!
+March on, you warriors—men of Cush and Put who carry shields,
+men of Lydia who draw the bow.
+¹⁰ But that day belongs to the Lord, the Lord Almighty—
+a day of vengeance, for vengeance on his foes.
+The sword will devour till it is satisfied,
+till it has quenched its thirst with blood.
+For the Lord, the Lord Almighty, will offer sacrifice
+in the land of the north by the River Euphrates.
+
+¹¹ “Go up to Gilead and get balm,
+Virgin Daughter Egypt.
+But you try many medicines in vain;
+there is no healing for you.
+¹² The nations will hear of your shame;
+your cries will fill the earth.
+One warrior will stumble over another;
+both will fall down together.”
+
+¹³ This is the message the Lord spoke to Jeremiah the prophet about the coming of Nebuchadnezzar king of Babylon to attack Egypt:
+
+¹⁴ “Announce this in Egypt, and proclaim it in Migdol;
+proclaim it also in Memphis and Tahpanhes:
+‘Take your positions and get ready,
+for the sword devours those around you.’
+¹⁵ Why will your warriors be laid low?
+They cannot stand, for the Lord will push them down.
+¹⁶ They will stumble repeatedly;
+they will fall over each other.
+They will say, ‘Get up, let us go back
+to our own people and our native lands,
+away from the sword of the oppressor.’
+¹⁷ There they will exclaim,
+‘Pharaoh king of Egypt is only a loud noise;
+he has missed his opportunity.’
+
+¹⁸ “As surely as I live,” declares the King,
+whose name is the Lord Almighty,
+“one will come who is like Tabor among the mountains,
+like Carmel by the sea.
+¹⁹ Pack your belongings for exile,
+you who live in Egypt,
+for Memphis will be laid waste
+and lie in ruins without inhabitant.
+
+²⁰ “Egypt is a beautiful heifer,
+but a gadfly is coming
+against her from the north.
+²¹ The mercenaries in her ranks
+are like fattened calves.
+They too will turn and flee together,
+they will not stand their ground,
+for the day of disaster is coming upon them,
+the time for them to be punished.
+²² Egypt will hiss like a fleeing serpent
+as the enemy advances in force;
+they will come against her with axes,
+like men who cut down trees.
+²³ They will chop down her forest,”
+declares the Lord,
+“dense though it be.
+They are more numerous than locusts,
+they cannot be counted.
+²⁴ Daughter Egypt will be put to shame,
+given into the hands of the people of the north.”
+
+²⁵ The Lord Almighty, the God of Israel, says: “I am about to bring punishment on Amon god of Thebes, on Pharaoh, on Egypt and her gods and her kings, and on those who rely on Pharaoh. ²⁶ I will give them into the hands of those who want to kill them—Nebuchadnezzar king of Babylon and his officers. Later, however, Egypt will be inhabited as in times past,” declares the Lord.
+
+²⁷ “Do not be afraid, Jacob my servant;
+do not be dismayed, Israel.
+I will surely save you out of a distant place,
+your descendants from the land of their exile.
+Jacob will again have peace and security,
+and no one will make him afraid.
+²⁸ Do not be afraid, Jacob my servant,
+for I am with you,” declares the Lord.
+“Though I completely destroy all the nations
+among which I scatter you,
+I will not completely destroy you.
+I will discipline you but only in due measure;
+I will not let you go entirely unpunished.”
 
 
 
 ## Sermon Outline
-1.	Jeremiah’s Message. 
-2.	Judgement and Justice (v1-10). 
-3.	Salvation and Safety (v11-18). 
-4.	Our Message.
+1.	World news
+2.	The battle of Carchemish and its meaning
+3.	Conclusions 
+
+The battle of Carchemish and its meaning 
+
+Conclusions 
+
 
 ## Q&A
 Got questions or comments? Send them [here](https://tinyurl.com/SGHACQuestionsAnswers)
