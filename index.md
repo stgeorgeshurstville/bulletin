@@ -12,7 +12,7 @@ title: Welcome
 ## Jeremiah - A New Destiny Amidst Death & Destruction
 
 
-#### The Lord is the strength of his people, he is the saving refuge of his anointed. O save your people, and bless your heritage; be their shepherd and carry them forever. Psalm 28:8-9
+#### If you, O Lord, should mark iniquity, Lord, who could stand? But there is forgivneness with you, God of ISrael. Psalm 130:3-4
 
 
 
