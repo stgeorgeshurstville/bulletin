@@ -8,7 +8,6 @@ order: 5
 | Date | Event | Time |
 | ----- | ----- | ----- |
 | **JUNE** | 
-| SUN JUN 16 | Baptism |  |
 | SUN JUN 22 | Equip Women's Conference | 9:30-4:00pm |
 | **AUGUST** | 
 | SUN AUG 4 | Life Course #1 | 11am and 5:45pm |
@@ -27,14 +26,12 @@ order: 5
 
 
 ## General
-- **Nepali church plant**: Bijaya and Kate have now moved into the rectory. Please say ‘hello’ to them if you see them around and warmly welcome them. Use the following link to support them [here](https://encministries.org.au/ministry/nepali/)
-- **The Word 1-2-1**: Find out what you can do with the Word of God [here](https://www.theword121.com/)
-- **Baptism Location Change (4pm 16th June)**: In light of people getting baptised in 4pm English and space issues, we’ll be swapping locations (English in Chapel and Mandarin in Hall). 
-- **EQUIP**: Equip Women’s Conference - Hope for the Weary (Revelation 1-5) will be held on Saturday June 22nd from 9:30-4:00 via livestream at church. Conference tickets are $20 for adults and free for teens.  We will be enjoying lunch together with proceeds going towards the new Nepalese Ministry. Pay on the day. RSVP via [church](https://stgeorgeshurstville.org.au/equip24)
-- **St George’s Week of Prayer**: will be held from 24-30 June. There will be a series of Lunch Break Prayers each day of the week meeting online with in-person meeting on Wednesday and Sunday. It will be a great opportunity for our church to grow in our dependence and delight in God together. Please save the dates. More details to come. 
-- **Mental Health Survey:** Our church participated in a mental health survey. These are the results.
-  - Survey Results: [Click here](https://anglicare.us12.list-manage.com/track/click?u=c55d32470f9080e352c9fa9ee&id=73909ce03c&e=cae2a969f1)
-  - Survey Insights: [Click here](https://anglicare.us12.list-manage.com/track/click?u=c55d32470f9080e352c9fa9ee&id=7ae7c7f622&e=cae2a969f1)
+- **Week of Prayer**: from 24-30 June. During this week, we will meet and pray at 1pm - 1:30pm. It is a chance for us to pause in the middle of our busyness and come before God in dependence and delight together. The prayer meetings will be online except for Wednesday and Sunday, when we meet in person. You can join the online meetings by:
+[https://meet.google.com/pwh-tfzy-pip](CHINESE only)
+[https://meet.google.com/ocd-wdai-jpq](ENGLISH only)
+- **All Generation Services**: are the opportunities for adults and kids to do church together as God’s family and enjoy mutual encouragement from each other! They are coming up on 7 July, 14 July and 21 July and will be held at 9:30 English, 11am Mandarin and 4pm Mandarin services. Please look out for people you don’t normally see and make a point of saying hi and speaking to them!
+- **Staff on Leave**: Carol will be away on leave from 24 June to 15 July. Brian will be on leave from 29 June to 8 July.  Alan will be on leave 8-21 July. Please speak to other pastoral staff or contact the office for any inquiries. 
+- **Discipleship Groups**: The last day of Discipleship Group this term is Sun the 7th of July. Term 2 starts on the week of Mon 29th of July. Your groups may operate differently so please do what you think is best including having time for yourself to reflect, rest and grow in our secure attachment to Jesus. 
 
 - **Growing in Our Welcoming**
 
