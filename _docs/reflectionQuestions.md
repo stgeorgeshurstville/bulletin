@@ -4,17 +4,18 @@ order: 7
 ---
 
 ### Key Idea: 
-The Lord, the God of all nations will humble the proud and lift up the humble. Trust him and not Egypt or Babylon.
+Salvation comes through the defeat of evil (Babylon). And the salvation that results is a complete transformation of sinners where they are made holy.  
 
 
 **Reflection questions:**
+1.Please read Jeremiah 50
+    a. Who is this oracle about?
+    b. What will happen to Babylon?
+    c. What will happen when Babylon falls? 
+    d. How is the salvation of God’s people described here?
+2.Jeremiah talked about the forgiveness of God’s people in Chapters 31-33. He mentions this again in the context of the oracle against Babylon. What is the relationship between the Fall of Babylon and the salvation of God’s people? How might this teach us what Jesus would do to save? 
 
-1. What is happening in the news around the world at the moment? What do they mean?
-    - Jeremiah 45 begins a new section in the book. From chapters 45 to 51, Jeremiah’s attention turns to the nations. 10 in all. Some large (Egypt and Babylon) and some small (Ammon). We’ll look at the message about Egypt as a sample of the type of things being said.  
-3. The message about Egypt was set at a certain time and about a particular event. What was the event?
-4. What was the message about Egypt? 
-5. Who was this message about Egypt given to? Where were they? What’s the message to them, and why was it given to them?
-6. We Christians are ‘in Babylon’ tempted to ‘go back to Egypt’. What are some examples of this? What is the message of Jeremiah 46 to us then? 
+
 
 
 ![upload](https://github.com/stgeorgeshurstville/bulletin/assets/119166299/148ee660-ee69-46d7-bbc8-139ef05558f8)
