@@ -22,133 +22,111 @@ order: 2
 ### Prayer
 We thank you heavenly Father, for inspiring all Scripture by the Holy Spirit. Help us by your Spirit so to hear your holy word that we may be equipped for every good work, through Jesus Christ our Lord. **Amen**.
 
-## Judgement of Nations
+### Jeremiah 50:1-20 NIV11
 
-### 9:30am: Jeremiah 46:1-28 NIV11
-### 4pm: Jeremiah 46:1-12 NIV11
+¹ This is the word the Lord spoke through Jeremiah the prophet concerning Babylon and the land of the Babylonians :
 
-¹ This is the word of the Lord that came to Jeremiah the prophet concerning the nations:
+² “Announce and proclaim among the nations,
+lift up a banner and proclaim it;
+keep nothing back, but say,
+‘Babylon will be captured;
+Bel will be put to shame,
+Marduk filled with terror.
+Her images will be put to shame
+and her idols filled with terror.’
+³ A nation from the north will attack her
+and lay waste her land.
+No one will live in it;
+both people and animals will flee away.
 
-² Concerning Egypt:
-
-This is the message against the army of Pharaoh Necho king of Egypt, which was defeated at Carchemish on the Euphrates River by Nebuchadnezzar king of Babylon in the fourth year of Jehoiakim son of Josiah king of Judah:
-
-³ “Prepare your shields, both large and small,
-and march out for battle!
-⁴ Harness the horses,
-mount the steeds!
-Take your positions
-with helmets on!
-Polish your spears,
-put on your armor!
-⁵ What do I see?
-They are terrified,
-they are retreating,
-their warriors are defeated.
-They flee in haste
-without looking back,
-and there is terror on every side,”
-declares the Lord.
-⁶ “The swift cannot flee
-nor the strong escape.
-In the north by the River Euphrates
-they stumble and fall.
-
-⁷ “Who is this that rises like the Nile,
-like rivers of surging waters?
-⁸ Egypt rises like the Nile,
-like rivers of surging waters.
-She says, ‘I will rise and cover the earth;
-I will destroy cities and their people.’
-⁹ Charge, you horses!
-Drive furiously, you charioteers!
-March on, you warriors—men of Cush and Put who carry shields,
-men of Lydia who draw the bow.
-¹⁰ But that day belongs to the Lord, the Lord Almighty—
-a day of vengeance, for vengeance on his foes.
-The sword will devour till it is satisfied,
-till it has quenched its thirst with blood.
-For the Lord, the Lord Almighty, will offer sacrifice
-in the land of the north by the River Euphrates.
-
-¹¹ “Go up to Gilead and get balm,
-Virgin Daughter Egypt.
-But you try many medicines in vain;
-there is no healing for you.
-¹² The nations will hear of your shame;
-your cries will fill the earth.
-One warrior will stumble over another;
-both will fall down together.”
-
-¹³ This is the message the Lord spoke to Jeremiah the prophet about the coming of Nebuchadnezzar king of Babylon to attack Egypt:
-
-¹⁴ “Announce this in Egypt, and proclaim it in Migdol;
-proclaim it also in Memphis and Tahpanhes:
-‘Take your positions and get ready,
-for the sword devours those around you.’
-¹⁵ Why will your warriors be laid low?
-They cannot stand, for the Lord will push them down.
-¹⁶ They will stumble repeatedly;
-they will fall over each other.
-They will say, ‘Get up, let us go back
-to our own people and our native lands,
-away from the sword of the oppressor.’
-¹⁷ There they will exclaim,
-‘Pharaoh king of Egypt is only a loud noise;
-he has missed his opportunity.’
-
-¹⁸ “As surely as I live,” declares the King,
-whose name is the Lord Almighty,
-“one will come who is like Tabor among the mountains,
-like Carmel by the sea.
-¹⁹ Pack your belongings for exile,
-you who live in Egypt,
-for Memphis will be laid waste
-and lie in ruins without inhabitant.
-
-²⁰ “Egypt is a beautiful heifer,
-but a gadfly is coming
-against her from the north.
-²¹ The mercenaries in her ranks
-are like fattened calves.
-They too will turn and flee together,
-they will not stand their ground,
-for the day of disaster is coming upon them,
-the time for them to be punished.
-²² Egypt will hiss like a fleeing serpent
-as the enemy advances in force;
-they will come against her with axes,
-like men who cut down trees.
-²³ They will chop down her forest,”
+⁴ “In those days, at that time,”
 declares the Lord,
-“dense though it be.
-They are more numerous than locusts,
-they cannot be counted.
-²⁴ Daughter Egypt will be put to shame,
-given into the hands of the people of the north.”
+“the people of Israel and the people of Judah together
+will go in tears to seek the Lord their God.
+⁵ They will ask the way to Zion
+and turn their faces toward it.
+They will come and bind themselves to the Lord
+in an everlasting covenant
+that will not be forgotten.
 
-²⁵ The Lord Almighty, the God of Israel, says: “I am about to bring punishment on Amon god of Thebes, on Pharaoh, on Egypt and her gods and her kings, and on those who rely on Pharaoh. ²⁶ I will give them into the hands of those who want to kill them—Nebuchadnezzar king of Babylon and his officers. Later, however, Egypt will be inhabited as in times past,” declares the Lord.
+⁶ “My people have been lost sheep;
+their shepherds have led them astray
+and caused them to roam on the mountains.
+They wandered over mountain and hill
+and forgot their own resting place.
+⁷ Whoever found them devoured them;
+their enemies said, ‘We are not guilty,
+for they sinned against the Lord, their verdant pasture,
+the Lord, the hope of their ancestors.’
 
-²⁷ “Do not be afraid, Jacob my servant;
-do not be dismayed, Israel.
-I will surely save you out of a distant place,
-your descendants from the land of their exile.
-Jacob will again have peace and security,
-and no one will make him afraid.
-²⁸ Do not be afraid, Jacob my servant,
-for I am with you,” declares the Lord.
-“Though I completely destroy all the nations
-among which I scatter you,
-I will not completely destroy you.
-I will discipline you but only in due measure;
-I will not let you go entirely unpunished.”
+⁸ “Flee out of Babylon;
+leave the land of the Babylonians,
+and be like the goats that lead the flock.
+⁹ For I will stir up and bring against Babylon
+an alliance of great nations from the land of the north.
+They will take up their positions against her,
+and from the north she will be captured.
+Their arrows will be like skilled warriors
+who do not return empty-handed.
+¹⁰ So Babylonia will be plundered;
+all who plunder her will have their fill,”
+declares the Lord.
 
+¹¹ “Because you rejoice and are glad,
+you who pillage my inheritance,
+because you frolic like a heifer threshing grain
+and neigh like stallions,
+¹² your mother will be greatly ashamed;
+she who gave you birth will be disgraced.
+She will be the least of the nations—
+a wilderness, a dry land, a desert.
+¹³ Because of the Lord’s anger she will not be inhabited
+but will be completely desolate.
+All who pass Babylon will be appalled;
+they will scoff because of all her wounds.
+
+¹⁴ “Take up your positions around Babylon,
+all you who draw the bow.
+Shoot at her! Spare no arrows,
+for she has sinned against the Lord.
+¹⁵ Shout against her on every side!
+She surrenders, her towers fall,
+her walls are torn down.
+Since this is the vengeance of the Lord,
+take vengeance on her;
+do to her as she has done to others.
+¹⁶ Cut off from Babylon the sower,
+and the reaper with his sickle at harvest.
+Because of the sword of the oppressor
+let everyone return to their own people,
+let everyone flee to their own land.
+
+¹⁷ “Israel is a scattered flock
+that lions have chased away.
+The first to devour them
+was the king of Assyria;
+the last to crush their bones
+was Nebuchadnezzar king of Babylon.”
+
+¹⁸ Therefore this is what the Lord Almighty, the God of Israel, says:
+
+“I will punish the king of Babylon and his land
+as I punished the king of Assyria.
+¹⁹ But I will bring Israel back to their own pasture,
+and they will graze on Carmel and Bashan;
+their appetite will be satisfied
+on the hills of Ephraim and Gilead.
+²⁰ In those days, at that time,”
+declares the Lord,
+“search will be made for Israel’s guilt,
+but there will be none,
+and for the sins of Judah,
+but none will be found,
+for I will forgive the remnant I spare.
 
 
 ## Sermon Outline
-1.	World news
-2.	The battle of Carchemish and its meaning
-3.	Conclusions 
+
 
 
 ## Q&A
