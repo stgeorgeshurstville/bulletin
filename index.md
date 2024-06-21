@@ -10,9 +10,8 @@ title: Welcome
 [comment]: ----------------------------------------------------  
 
 ## Jeremiah - A New Destiny Amidst Death & Destruction
-
-
-#### If you, O Lord, should mark iniquity, Lord, who could stand? But there is forgivneness with you, God of ISrael. Psalm 130:3-4
+#### God is in his holy habitation. God gives the desolate a home to dwell in; he gives power and strength to his people. 
+#### Psalm 68.5-6,35
 
 
 
