@@ -127,6 +127,13 @@ for I will forgive the remnant I spare.
 
 ## Sermon Outline
 
+- Solving the problem of sin 
+
+- Those who live by the sword 
+
+- The flock of God 
+
+- Conclusions 
 
 
 ## Q&A
