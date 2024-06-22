@@ -30,6 +30,7 @@ order: 5
 [https://meet.google.com/pwh-tfzy-pip] (CHINESE only)
 [https://meet.google.com/ocd-wdai-jpq] (ENGLISH only)
 - **All Generation Services**: are the opportunities for adults and kids to do church together as God’s family and enjoy mutual encouragement from each other! They are coming up on 7 July, 14 July and 21 July and will be held at 9:30 English, 11am Mandarin and 4pm Mandarin services. Please look out for people you don’t normally see and make a point of saying hi and speaking to them!
+- **Communion**: please speak to one of the pastoral staff if you wish your child to participate in the communion during the all-gen services. 
 - **Staff on Leave**: Carol will be away on leave from 24 June to 15 July. Brian will be on leave from 29 June to 8 July.  Alan will be on leave 8-21 July. Please speak to other pastoral staff or contact the office for any inquiries. 
 - **Discipleship Groups**: The last day of Discipleship Group this term is Sun the 7th of July. Term 2 starts on the week of Mon 29th of July. Your groups may operate differently so please do what you think is best including having time for yourself to reflect, rest and grow in our secure attachment to Jesus. 
 
