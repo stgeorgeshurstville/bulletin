@@ -10,8 +10,8 @@ title: Welcome
 [comment]: ----------------------------------------------------  
 
 ## Jeremiah - A New Destiny Amidst Death & Destruction
-#### God is in his holy habitation. God gives the desolate a home to dwell in; he gives power and strength to his people. 
-#### Psalm 68.5-6,35
+#### O people in Zion who dwell in Jerusalem; you shall weep no more. The Lord will surely be gracious to you at the sound of your cry; he will cause his majestic voice to be heard.
+#### Isaiah 30.19a,30b
 
 
 
