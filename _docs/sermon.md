@@ -20,109 +20,44 @@ order: 2
 ## Bible Reading
 
 ### Prayer
-We thank you heavenly Father, for inspiring all Scripture by the Holy Spirit. Help us by your Spirit so to hear your holy word that we may be equipped for every good work, through Jesus Christ our Lord. **Amen**.
+Gracious Lord, you have caused all holy scriptures to be written for our learning: help us so to hear them, read, mark, learn, and inwardly digest them, that, encouraged and supported by your holy Word, we may embrace and always hold fast the joyful hope of everlasting life, which you have given us in our Saviour Jesus Christ. **Amen**.
 
-### Jeremiah 50:1-20 NIV11
+### Jeremiah 52 NIV11
 
-¹ This is the word the Lord spoke through Jeremiah the prophet concerning Babylon and the land of the Babylonians :
+⁵² Zedekiah was twenty-one years old when he became king, and he reigned in Jerusalem eleven years. His mother’s name was Hamutal daughter of Jeremiah; she was from Libnah. ² He did evil in the eyes of the Lord, just as Jehoiakim had done. ³ It was because of the Lord’s anger that all this happened to Jerusalem and Judah, and in the end he thrust them from his presence.
 
-² “Announce and proclaim among the nations,
-lift up a banner and proclaim it;
-keep nothing back, but say,
-‘Babylon will be captured;
-Bel will be put to shame,
-Marduk filled with terror.
-Her images will be put to shame
-and her idols filled with terror.’
-³ A nation from the north will attack her
-and lay waste her land.
-No one will live in it;
-both people and animals will flee away.
+Now Zedekiah rebelled against the king of Babylon.
 
-⁴ “In those days, at that time,”
-declares the Lord,
-“the people of Israel and the people of Judah together
-will go in tears to seek the Lord their God.
-⁵ They will ask the way to Zion
-and turn their faces toward it.
-They will come and bind themselves to the Lord
-in an everlasting covenant
-that will not be forgotten.
+⁴ So in the ninth year of Zedekiah’s reign, on the tenth day of the tenth month, Nebuchadnezzar king of Babylon marched against Jerusalem with his whole army. They encamped outside the city and built siege works all around it. ⁵ The city was kept under siege until the eleventh year of King Zedekiah.
 
-⁶ “My people have been lost sheep;
-their shepherds have led them astray
-and caused them to roam on the mountains.
-They wandered over mountain and hill
-and forgot their own resting place.
-⁷ Whoever found them devoured them;
-their enemies said, ‘We are not guilty,
-for they sinned against the Lord, their verdant pasture,
-the Lord, the hope of their ancestors.’
+⁶ By the ninth day of the fourth month the famine in the city had become so severe that there was no food for the people to eat. ⁷ Then the city wall was broken through, and the whole army fled. They left the city at night through the gate between the two walls near the king’s garden, though the Babylonians were surrounding the city. They fled toward the Arabah, ⁸ but the Babylonian army pursued King Zedekiah and overtook him in the plains of Jericho. All his soldiers were separated from him and scattered, ⁹ and he was captured.
 
-⁸ “Flee out of Babylon;
-leave the land of the Babylonians,
-and be like the goats that lead the flock.
-⁹ For I will stir up and bring against Babylon
-an alliance of great nations from the land of the north.
-They will take up their positions against her,
-and from the north she will be captured.
-Their arrows will be like skilled warriors
-who do not return empty-handed.
-¹⁰ So Babylonia will be plundered;
-all who plunder her will have their fill,”
-declares the Lord.
+He was taken to the king of Babylon at Riblah in the land of Hamath, where he pronounced sentence on him. ¹⁰ There at Riblah the king of Babylon killed the sons of Zedekiah before his eyes; he also killed all the officials of Judah. ¹¹ Then he put out Zedekiah’s eyes, bound him with bronze shackles and took him to Babylon, where he put him in prison till the day of his death.
 
-¹¹ “Because you rejoice and are glad,
-you who pillage my inheritance,
-because you frolic like a heifer threshing grain
-and neigh like stallions,
-¹² your mother will be greatly ashamed;
-she who gave you birth will be disgraced.
-She will be the least of the nations—
-a wilderness, a dry land, a desert.
-¹³ Because of the Lord’s anger she will not be inhabited
-but will be completely desolate.
-All who pass Babylon will be appalled;
-they will scoff because of all her wounds.
+¹² On the tenth day of the fifth month, in the nineteenth year of Nebuchadnezzar king of Babylon, Nebuzaradan commander of the imperial guard, who served the king of Babylon, came to Jerusalem. ¹³ He set fire to the temple of the Lord, the royal palace and all the houses of Jerusalem. Every important building he burned down. ¹⁴ The whole Babylonian army, under the commander of the imperial guard, broke down all the walls around Jerusalem. ¹⁵ Nebuzaradan the commander of the guard carried into exile some of the poorest people and those who remained in the city, along with the rest of the craftsmen and those who had deserted to the king of Babylon. ¹⁶ But Nebuzaradan left behind the rest of the poorest people of the land to work the vineyards and fields.
 
-¹⁴ “Take up your positions around Babylon,
-all you who draw the bow.
-Shoot at her! Spare no arrows,
-for she has sinned against the Lord.
-¹⁵ Shout against her on every side!
-She surrenders, her towers fall,
-her walls are torn down.
-Since this is the vengeance of the Lord,
-take vengeance on her;
-do to her as she has done to others.
-¹⁶ Cut off from Babylon the sower,
-and the reaper with his sickle at harvest.
-Because of the sword of the oppressor
-let everyone return to their own people,
-let everyone flee to their own land.
+¹⁷ The Babylonians broke up the bronze pillars, the movable stands and the bronze Sea that were at the temple of the Lord and they carried all the bronze to Babylon. ¹⁸ They also took away the pots, shovels, wick trimmers, sprinkling bowls, dishes and all the bronze articles used in the temple service. ¹⁹ The commander of the imperial guard took away the basins, censers, sprinkling bowls, pots, lampstands, dishes and bowls used for drink offerings—all that were made of pure gold or silver.
 
-¹⁷ “Israel is a scattered flock
-that lions have chased away.
-The first to devour them
-was the king of Assyria;
-the last to crush their bones
-was Nebuchadnezzar king of Babylon.”
+²⁰ The bronze from the two pillars, the Sea and the twelve bronze bulls under it, and the movable stands, which King Solomon had made for the temple of the Lord, was more than could be weighed. ²¹ Each pillar was eighteen cubits high and twelve cubits in circumference ; each was four fingers thick, and hollow. ²² The bronze capital on top of one pillar was five cubits high and was decorated with a network and pomegranates of bronze all around. The other pillar, with its pomegranates, was similar. ²³ There were ninety-six pomegranates on the sides; the total number of pomegranates above the surrounding network was a hundred.
 
-¹⁸ Therefore this is what the Lord Almighty, the God of Israel, says:
+²⁴ The commander of the guard took as prisoners Seraiah the chief priest, Zephaniah the priest next in rank and the three doorkeepers. ²⁵ Of those still in the city, he took the officer in charge of the fighting men, and seven royal advisers. He also took the secretary who was chief officer in charge of conscripting the people of the land, sixty of whom were found in the city. ²⁶ Nebuzaradan the commander took them all and brought them to the king of Babylon at Riblah. ²⁷ There at Riblah, in the land of Hamath, the king had them executed.
 
-“I will punish the king of Babylon and his land
-as I punished the king of Assyria.
-¹⁹ But I will bring Israel back to their own pasture,
-and they will graze on Carmel and Bashan;
-their appetite will be satisfied
-on the hills of Ephraim and Gilead.
-²⁰ In those days, at that time,”
-declares the Lord,
-“search will be made for Israel’s guilt,
-but there will be none,
-and for the sins of Judah,
-but none will be found,
-for I will forgive the remnant I spare.
+So Judah went into captivity, away from her land. ²⁸ This is the number of the people Nebuchadnezzar carried into exile:
+
+in the seventh year, 3023 Jews;
+
+²⁹ in Nebuchadnezzar’s eighteenth year,
+
+832 people from Jerusalem;
+
+³⁰ in his twenty-third year,
+
+745 Jews taken into exile by Nebuzaradan the commander of the imperial guard.
+
+There were ⁴ , ⁶⁰⁰ people in all.
+Jehoiachin Released
+³¹ In the thirty-seventh year of the exile of Jehoiachin king of Judah, in the year Awel-Marduk became king of Babylon, on the twenty-fifth day of the twelfth month, he released Jehoiachin king of Judah and freed him from prison. ³² He spoke kindly to him and gave him a seat of honor higher than those of the other kings who were with him in Babylon. ³³ So Jehoiachin put aside his prison clothes and for the rest of his life ate regularly at the king’s table. ³⁴ Day by day the king of Babylon gave Jehoiachin a regular allowance as long as he lived, till the day of his death.
+
 
 
 ## Sermon Outline
