@@ -10,9 +10,8 @@ order: 1
 4. To God be the Glory
 
 ## 4pm 
-1. In Christ Alone
+1. Ancient of Days
 2. Jesus is the Mighty Mighty King
-3. All Creatures of Our God and King
-4. Take Heart
+3. Come Behold the Wondrous Mystery
 
 Check out the church spotify playlist [here](https://open.spotify.com/playlist/3gh0ZKXkJBDbNEnZqJJDXj?si=0908aa3f87544643)
