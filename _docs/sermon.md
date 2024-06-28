@@ -54,7 +54,7 @@ in the seventh year, 3023 Jews;
 
 745 Jews taken into exile by Nebuzaradan the commander of the imperial guard.
 
-There were ⁴ , ⁶⁰⁰ people in all.
+There were 4,600 people in all.
 Jehoiachin Released
 ³¹ In the thirty-seventh year of the exile of Jehoiachin king of Judah, in the year Awel-Marduk became king of Babylon, on the twenty-fifth day of the twelfth month, he released Jehoiachin king of Judah and freed him from prison. ³² He spoke kindly to him and gave him a seat of honor higher than those of the other kings who were with him in Babylon. ³³ So Jehoiachin put aside his prison clothes and for the rest of his life ate regularly at the king’s table. ³⁴ Day by day the king of Babylon gave Jehoiachin a regular allowance as long as he lived, till the day of his death.
 
