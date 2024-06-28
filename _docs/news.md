@@ -8,7 +8,6 @@ order: 5
 | Date | Event | Time |
 | ----- | ----- | ----- |
 | **JUNE** | 
-| SUN JUN 22 | Equip Women's Conference | 9:30-4:00pm |
 | JUN 24-30 | Week of Prayer | 1pm - 1:30pm |
 | **JULY** | 
 | SUN JUL 7 | Last Day of DGroup | |
