@@ -62,13 +62,13 @@ Jehoiachin Released
 
 ## Sermon Outline
 
-- Solving the problem of sin 
+- Glimmer of hope
 
-- Those who live by the sword 
+- God's punishment
 
-- The flock of God 
+- God's presence
 
-- Conclusions 
+- God's promise
 
 
 ## Q&A
