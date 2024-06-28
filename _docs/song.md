@@ -4,10 +4,9 @@ order: 1
 ---
 
 ## 9:30am 
-1. Speak, O Lord
-2. There is a Redeemer
-3. The Lights
-4. To God be the Glory
+1. Be Thou My Vision
+2. Yet Not I But Through Christ In Me
+3. Living Hope 
 
 ## 4pm 
 1. Ancient of Days
