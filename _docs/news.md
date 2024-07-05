@@ -33,7 +33,7 @@ order: 5
 
 ## General
 - **Week of Prayer:** Great that we can pray together!
-- **LIFE Quarterly:** The Winter Edition of Life 2024 is now available. You can get a printed copy after church service, or download from our church website https://stgeorgeshurstville.org.au/life/
+- **LIFE Quarterly:** The Winter Edition of Life 2024 is now available. You can get a printed copy after church service, or download from our church [website](https://stgeorgeshurstville.org.au/life/)
 - **All Generation Services:** Opportunities for adults and kids to do church together as God’s family and enjoy mutual encouragement from each other! They are coming up on 7 July, 14 July and 21 July and will be held at 9:30am English, 11am Mandarin and 4pm Mandarin services. Please look out for people you don’t normally see and make a point of saying hi and speaking to them!
 - **Communion:** Please speak to one of the pastoral staff if you wish your child to participate in the communion during the all-gen services. 
 - **Staff on Leave:** Carol will be away on leave from 24 June to 15 July. Brian will be on leave from 29 June to 8 July.  Alan will be on leave 8-21 July. Please speak to other pastoral staff or contact the office for any inquiries. 
