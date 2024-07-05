@@ -32,17 +32,13 @@ order: 5
 
 
 ## General
-- **Week of Prayer**: from 24-30 June. During this week, we will meet and pray at 1pm - 1:30pm. It is a chance for us to pause in the middle of our busyness and come before God in dependence and delight together. The prayer meetings will be online except for Wednesday and Sunday, when we meet in person. You can join the online meetings:
-  - Chinese only [here](https://meet.google.com/pwh-tfzy-pip) 
-  - English only [here](https://meet.google.com/ocd-wdai-jpq) 
-- **All Generation Services**: are the opportunities for adults and kids to do church together as God’s family and enjoy mutual encouragement from each other! They are coming up on 7 July, 14 July and 21 July and will be held at 9:30 English, 11am Mandarin and 4pm Mandarin services. Please look out for people you don’t normally see and make a point of saying hi and speaking to them!
-- **Communion**: Please speak to one of the pastoral staff if you wish your child to participate in the communion during the All-Gen services. 
-- **Staff on Leave**: Please speak to other pastoral staff or contact the office for any inquiries. 
-  - Carol: 24 June - 15 July.
-  - Brian: 29 June - 8 July.
-  - Alan: 8-21 July.
-
-- **Discipleship Groups**: The last day of Discipleship Group this term is Sun the 7th of July. Term 2 starts on the week of Mon 29th of July. Your groups may operate differently so please do what you think is best including having time for yourself to reflect, rest and grow in our secure attachment to Jesus. 
+- **Week of Prayer:** Great that we can pray together!
+- **LIFE Quarterly:** The Winter Edition of Life 2024 is now available. You can get a printed copy after church service, or download from our church website https://stgeorgeshurstville.org.au/life/
+- **All Generation Services:** Opportunities for adults and kids to do church together as God’s family and enjoy mutual encouragement from each other! They are coming up on 7 July, 14 July and 21 July and will be held at 9:30am English, 11am Mandarin and 4pm Mandarin services. Please look out for people you don’t normally see and make a point of saying hi and speaking to them!
+- **Communion:** Please speak to one of the pastoral staff if you wish your child to participate in the communion during the all-gen services. 
+- **Staff on Leave:** Carol will be away on leave from 24 June to 15 July. Brian will be on leave from 29 June to 8 July.  Alan will be on leave 8-21 July. Please speak to other pastoral staff or contact the office for any inquiries. 
+- **Discipleship Groups:** The last day of Discipleship Group this term is Sun the 7th of July. Term 3 starts on the week of Mon 29th of July. Your groups may operate differently so please do what you think is best including having time for yourself to reflect, rest and grow in our secure attachment to Jesus. 
+- **Coffee Cart:** We are serving baristas coffee after 9:30am church today. Order your coffee at the sign-in area. $3 (small) $4 (large). Why not buy coffee for someone you don’t know?
 
 - **Growing in Our Welcoming**
 
