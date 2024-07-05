@@ -9,9 +9,9 @@ title: Welcome
 [comment]: ##### "where the sentence came from, e.g. Psalm 1:1"  
 [comment]: ----------------------------------------------------  
 
-## Jeremiah - A New Destiny Amidst Death & Destruction
-#### O people in Zion who dwell in Jerusalem; you shall weep no more. The Lord will surely be gracious to you at the sound of your cry; he will cause his majestic voice to be heard.
-#### Isaiah 30.19a,30b
+## The Heart of Jesus 
+#### Jesus said: I tell you, whatever you ask in prayer, believe that you receive it, and you will.  
+#### 
 
 
 
