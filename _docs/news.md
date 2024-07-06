@@ -7,8 +7,6 @@ order: 5
 
 | Date | Event | Time |
 | ----- | ----- | ----- |
-| **JUNE** | 
-| JUN 24-30 | Week of Prayer | 1pm - 1:30pm |
 | **JULY** | 
 | SUN JUL 7 | Last Day of DGroup | |
 | SUN JUL 7 | All-gen service | |
