@@ -4,19 +4,15 @@ order: 7
 ---
 
 ### Key Idea: 
-God remains faithful to his promises despite punishing his people and place.  
+Have a secure attachment to Jesus who is God, humble and exalted. 
 
 **Reflection questions:**
-1. What has stood out from the book of Jeremiah? 
-2. What questions do you still have from the book of Jeremiah? 
-3. What’s the state of God’s people and place at the end of the book of Jeremiah? 
-4. Why did it end up like this? 
-5. What did it impact? 
-6. What hope is there? 
-7. What happens after this period? 
-8. How does God fulfil his promise? 
-9. When do you feel hopeless and helpless?
-10. How does Jesus change this? 
+1. What are we tempted to be attached to? Why?
+2. Who is Jesus?
+3. What does it mean for him to be God, humble and exalted?
+4. Why does Jesus need to be 100% God and 100% human?
+5. How are we to have the same mindset as Jesus? What would this look like? 
+
 
 
 
