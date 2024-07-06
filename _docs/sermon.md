@@ -20,7 +20,7 @@ order: 2
 ## Bible Reading
 
 ### Prayer
-Gracious Lord, you have caused all holy scriptures to be written for our learning: help us so to hear them, read, mark, learn, and inwardly digest them, that, encouraged and supported by your holy Word, we may embrace and always hold fast the joyful hope of everlasting life, which you have given us in our Saviour Jesus Christ. **Amen**.
+Dear God, thank you for giving us the Bible. Let it guide us like a light and give us strength. Help us to love and help everyone, with the power of the Holy Spirit and in the name of Jesus Christ. **Amen.**
 
 ### Philippians 2:5-13
 ⁵ In your relationships with one another, have the same mindset as Christ Jesus:
@@ -46,13 +46,11 @@ to the glory of God the Father.
 
 ## Sermon Outline
 
-- Glimmer of hope
+Jesus is God
 
-- God's punishment
+Jesus is humble
 
-- God's presence
-
-- God's promise
+Jesus is exalted
 
 
 ## Q&A
