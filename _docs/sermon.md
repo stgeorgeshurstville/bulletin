@@ -22,7 +22,7 @@ order: 2
 ### Prayer
 Dear God, thank you for giving us the Bible. Let it guide us like a light and give us strength. Help us to love and help everyone, with the power of the Holy Spirit and in the name of Jesus Christ. **Amen.**
 
-### Philippians 2:5-13
+### Philippians 2:5-11
 ⁵ In your relationships with one another, have the same mindset as Christ Jesus:
 
 ⁶ Who, being in very nature God,
