@@ -22,36 +22,13 @@ order: 2
 ### Prayer
 Dear God, thank you for giving us the Bible. Let it guide us like a light and give us strength. Help us to love and help everyone, with the power of the Holy Spirit and in the name of Jesus Christ. **Amen.**
 
-### Philippians 2:5-11
-⁵ In your relationships with one another, have the same mindset as Christ Jesus:
-
-⁶ Who, being in very nature God,
-did not consider equality with God something to be used to his own advantage;
-⁷ rather, he made himself nothing
-by taking the very nature of a servant,
-being made in human likeness.
-⁸ And being found in appearance as a man,
-he humbled himself
-by becoming obedient to death—
-even death on a cross!
-
-⁹ Therefore God exalted him to the highest place
-and gave him the name that is above every name,
-¹⁰ that at the name of Jesus every knee should bow,
-in heaven and on earth and under the earth,
-¹¹ and every tongue acknowledge that Jesus Christ is Lord,
-to the glory of God the Father.
-
-
+### Hebrews 4:14-15 (NIRV) 
+¹⁴ We have a great high priest. He has gone up into heaven. He is Jesus the Son of God. So let us hold firmly to what we say we believe. ¹⁵ We have a high priest who can feel it when we are weak and hurting. We have a high priest who has been tempted in every way, just as we are. But he did not sin. ¹⁶ So let us boldly approach God’s throne of grace. Then we will receive mercy. We will find grace to help us when we need it.
 
 ## Sermon Outline
-
-Jesus is God
-
-Jesus is humble
-
-Jesus is exalted
-
+1. Jesus is kind and sympathetic 
+2.	Jesus deals gently 
+3.	Conclusion
 
 ## Q&A
 Got questions or comments? Send them [here](https://tinyurl.com/SGHACQuestionsAnswers)
