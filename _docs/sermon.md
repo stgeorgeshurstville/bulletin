@@ -26,6 +26,7 @@ Dear God, thank you for giving us the Bible. Let it guide us like a light and gi
 ¹⁴ We have a great high priest. He has gone up into heaven. He is Jesus the Son of God. So let us hold firmly to what we say we believe. ¹⁵ We have a high priest who can feel it when we are weak and hurting. We have a high priest who has been tempted in every way, just as we are. But he did not sin. ¹⁶ So let us boldly approach God’s throne of grace. Then we will receive mercy. We will find grace to help us when we need it.
 
 ## Sermon Outline
+### Jesus can deal gently 
 1. Jesus is kind and sympathetic 
 2.	Jesus deals gently 
 3.	Conclusion
