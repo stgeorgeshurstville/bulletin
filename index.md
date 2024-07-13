@@ -10,9 +10,8 @@ title: Welcome
 [comment]: ----------------------------------------------------  
 
 ## The Heart of Jesus 
-#### Jesus said: I tell you, whatever you ask in prayer, believe that you receive it, and you will.  
-
-
+#### Come to me, all you who are tired and are carrying heavy loads. I will give you rest.
+##### Matthew 11:28 NIRV
 
 
 ---
