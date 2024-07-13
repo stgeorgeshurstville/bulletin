@@ -3,15 +3,20 @@ title: Reflection Questions
 order: 7
 ---
 
-### Key Idea: 
-Have a secure attachment to Jesus who is God, humble and exalted. 
+### Key Idea
+Jesus is able to help because he understands/knows us. 
 
-**Reflection questions:**
-1. What are we tempted to be attached to? Why?
-2. Who is Jesus?
-3. What does it mean for him to be God, humble and exalted?
-4. Why does Jesus need to be 100% God and 100% human?
-5. How are we to have the same mindset as Jesus? What would this look like? 
+### Reflection questions
+1. Who knows and understands you? How does it feel that they know and understand you?
+2. Have you thought about what Jesus is doing now? Why might it be important to know and remember what Jesus is doing now? 
+
+**Please read Hebrews 4:14-15 
+1. What is Jesus doing now?
+2. What reason does the Bible give (in v.15) for coming to Jesus for help?
+   - What difference does it make for you knowing that Jesus understands you?
+3. How does Jesus feel about you when you fail, or are in need, or ask him for help?
+  - What is stopping you from asking Jesus for help? 
+  - What are you doing that might be stopping other people (your kids for example) asking you for help? 
 
 
 
