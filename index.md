@@ -10,8 +10,8 @@ title: Welcome
 [comment]: ----------------------------------------------------  
 
 ## The Heart of Jesus 
-#### Come to me, all you who are tired and are carrying heavy loads. I will give you rest.
-##### Matthew 11:28 NIRV
+#### When John came, he didn’t eat or drink as you do. And people say, ‘He has a demon.’ But when the Son of Man came, he ate and drank as you do. And people say, ‘This fellow is always eating and drinking far too much. He’s a friend of tax collectors and “sinners.” ’
+##### Matthew 11:18,19 NIRV
 
 
 ---
