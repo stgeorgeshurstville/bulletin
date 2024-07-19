@@ -22,14 +22,19 @@ order: 2
 ### Prayer
 Dear God, thank you for giving us the Bible. Let it guide us like a light and give us strength. Help us to love and help everyone, with the power of the Holy Spirit and in the name of Jesus Christ. **Amen.**
 
-### Hebrews 4:14-15 (NIRV) 
-¹⁴ We have a great high priest. He has gone up into heaven. He is Jesus the Son of God. So let us hold firmly to what we say we believe. ¹⁵ We have a high priest who can feel it when we are weak and hurting. We have a high priest who has been tempted in every way, just as we are. But he did not sin. ¹⁶ So let us boldly approach God’s throne of grace. Then we will receive mercy. We will find grace to help us when we need it.
+### Matthew 9:9-13 (NIRV) 
+**Jesus Chooses Matthew and Eats With Sinners**
+⁹ As Jesus went on from there, he saw a man named Matthew. He was sitting at the tax collector’s booth. “Follow me,” Jesus told him. Matthew got up and followed him.
+
+¹⁰ Later Jesus was having dinner at Matthew’s house. Many tax collectors and sinners came. They ate with Jesus and his disciples. ¹¹ The Pharisees saw this. So they asked the disciples, “Why does your teacher eat with tax collectors and sinners?”
+
+¹² Jesus heard this. So he said, “Those who are healthy don’t need a doctor. Sick people do. ¹³ Go and learn what this means, ‘I want mercy and not sacrifice.’ I have not come to get those who think they are right with God to follow me. I have come to get sinners to follow me.”
 
 ## Sermon Outline
-### Jesus can deal gently 
-1. Jesus is kind and sympathetic 
-2.	Jesus deals gently 
-3.	Conclusion
+### Jesus our tender friend 
+1. Who to invite to your party?
+2. A ‘friend of sinners’
+3. Your friend, Jesus 
 
 ## Q&A
 Got questions or comments? Send them [here](https://tinyurl.com/SGHACQuestionsAnswers)
