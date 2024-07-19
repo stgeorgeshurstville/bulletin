@@ -8,7 +8,6 @@ order: 5
 | Date | Event | Time |
 | ----- | ----- | ----- |
 | **JULY** | 
-| SUN JUL 14 | All-gen service | |
 | SUN JUL 21 | All-gen service | |
 | SUN JUL 28 | English classes, SRE, Youth Group, NewGen resumes | |
 | SUN JUL 28 | DGroups leaders + English Core Leaders meeting | 11am and 2pm |
