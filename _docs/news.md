@@ -10,7 +10,8 @@ order: 5
 | **JULY** | 
 | SUN JUL 14 | All-gen service | |
 | SUN JUL 21 | All-gen service | |
-| SUN JUL 28 | Discipleship Groups leaders meeting | 11am and 2pm |
+| SUN JUL 28 | English classes, SRE, Youth Group, NewGen resumes | |
+| SUN JUL 28 | DGroups leaders + English Core Leaders meeting | 11am and 2pm |
 | MON JUL 29 | Dgroup Starts this week | |
 | **AUGUST** | 
 | SUN AUG 4 | Life Course #1 | 11am and 5:45pm |
@@ -19,6 +20,7 @@ order: 5
 | SUN AUG 25 | Life Course #4 | 11am and 5:45pm |
 | **SEPTEMBER** | 
 | SUN SEP 1 | Life Course #5 | 11am and 5:45pm |
+| SAT SEP 14 | Prayer and Praise | Evening |
 | **OCTOBER** | 
 | SUN OCT 27 | Baptism Course #1 | 11am and 5:45pm |
 | **NOVEMBER** | 
@@ -29,9 +31,10 @@ order: 5
 
 
 ## General
-- **LIFE Quarterly:** The Winter Edition of Life 2024 is now available. You can get a printed copy after church service, or download from our church [website](https://stgeorgeshurstville.org.au/life/)
-- **Staff on Leave:** Carol will be away on leave from 24 June to 15 July. Brian will be on leave from 29 June to 8 July.  Alan will be on leave 8-21 July. Please speak to other pastoral staff or contact the office for any inquiries. 
-- **Discipleship Groups leaders meeting:** Sunday 28 July (11am and 2pm). 
+**- DGroups leaders and English Core group leaders meeting:** Sunday 28 July (11am and 2pm). 
+**- New terms** starts for church  ministries, including English classes, SRE, youth group, NewGen on 28 July 2024. 
+**- Sing!** Prayer and praise night afternoon 14 September 2024. 
+
 - **Growing in Our Welcoming**
   <img width="236" alt="Screenshot 2023-07-01 134203" src="https://github.com/stgeorgeshurstville/bulletin/assets/119166299/b540ac1c-0ba4-481e-90a5-5464939f7e4c">
 
