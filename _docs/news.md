@@ -33,8 +33,8 @@ order: 5
 - **DGroups leaders and English Core group leaders meeting:** Sunday 28 July (11am and 2pm).
 - **New terms** starts for church  ministries, including English classes, SRE, youth group, NewGen on 28 July 2024.
 - **Sing!** Prayer and praise night afternoon 14 September 2024. 
-
 - **Growing in Our Welcoming**
+  
   <img width="236" alt="Screenshot 2023-07-01 134203" src="https://github.com/stgeorgeshurstville/bulletin/assets/119166299/b540ac1c-0ba4-481e-90a5-5464939f7e4c">
 
 
