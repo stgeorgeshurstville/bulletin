@@ -24,6 +24,7 @@ Dear God, thank you for giving us the Bible. Let it guide us like a light and gi
 
 ### Matthew 9:9-13 (NIRV) 
 **Jesus Chooses Matthew and Eats With Sinners**
+
 ⁹ As Jesus went on from there, he saw a man named Matthew. He was sitting at the tax collector’s booth. “Follow me,” Jesus told him. Matthew got up and followed him.
 
 ¹⁰ Later Jesus was having dinner at Matthew’s house. Many tax collectors and sinners came. They ate with Jesus and his disciples. ¹¹ The Pharisees saw this. So they asked the disciples, “Why does your teacher eat with tax collectors and sinners?”
