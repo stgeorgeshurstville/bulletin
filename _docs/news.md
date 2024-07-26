@@ -31,7 +31,7 @@ order: 5
 ## General
 - **DGroups leaders and English Core group leaders meeting:** Sunday 28 July (11am and 2pm).
 - **New terms** starts for church  ministries, including English classes, SRE, youth group, NewGen on 28 July 2024.
-- **LIFE Course:** Commences next Sunday, 4 August. 
+- **LIFE Course:** 5 week course starts next Sunday, 4 August at 11am and 5:45pm. Find out what it means to have true life in Jesus.  
 - **Sing!** Prayer and praise night afternoon 14 September 2024. 
 - **Growing in Our Welcoming**
   
