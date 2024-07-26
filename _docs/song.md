@@ -4,7 +4,10 @@ order: 1
 ---
 
 ## 9:30am 
-TBC
+1. We are His people
+2. Thanksgiving
+3. Servant of the Gospel
+4. Let your Kingdom come
 
 ## 4pm 
 1. Christ our hope in life and death
