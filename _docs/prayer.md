@@ -19,7 +19,7 @@ order: 4
 
 
 ## Mission Partner Focus
-- - **Phil and Lil in West Asia:** Father God, we realise that all flesh is like grass yet your word remains forever. May the gospel keep bearing fruit around the world including in West Asia as it grows our hope in heaven, faith in Jesus and love for all people. We praise you for allowing Phil, Lil, Susannah and Joanna to be in West Asia over the last 13 years. May you grow their faith, godliness and service. Give Phil wisdom to help the locals translate the Bible into their heart language, trains leaders and teaches in the Bible College. Allow Lil to disciple the local women and guidance in her role as the Prayer Strategy Coordinator. May their visa extension be granted soon, Phil’s frozen shoulder heal quickly and there will be enough electricity for everyone in the city. 
+- **Phil and Lil in West Asia:** Father God, we realise that all flesh is like grass yet your word remains forever. May the gospel keep bearing fruit around the world including in West Asia as it grows our hope in heaven, faith in Jesus and love for all people. We praise you for allowing Phil, Lil, Susannah and Joanna to be in West Asia over the last 13 years. May you grow their faith, godliness and service. Give Phil wisdom to help the locals translate the Bible into their heart language, trains leaders and teaches in the Bible College. Allow Lil to disciple the local women and guidance in her role as the Prayer Strategy Coordinator. May their visa extension be granted soon, Phil’s frozen shoulder heal quickly and there will be enough electricity for everyone in the city. 
 
 - You can go here for more information on how to pray, support and give [here](https://stgeorgeshurstville.org.au/mission-partners)
 
