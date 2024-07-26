@@ -8,7 +8,6 @@ order: 5
 | Date | Event | Time |
 | ----- | ----- | ----- |
 | **JULY** | 
-| SUN JUL 21 | All-gen service | |
 | SUN JUL 28 | English classes, SRE, Youth Group, NewGen resumes | |
 | SUN JUL 28 | DGroups leaders + English Core Leaders meeting | 11am and 2pm |
 | MON JUL 29 | Dgroup Starts this week | |
@@ -32,6 +31,7 @@ order: 5
 ## General
 - **DGroups leaders and English Core group leaders meeting:** Sunday 28 July (11am and 2pm).
 - **New terms** starts for church  ministries, including English classes, SRE, youth group, NewGen on 28 July 2024.
+- **LIFE Course:** Commences next Sunday, 4 August. 
 - **Sing!** Prayer and praise night afternoon 14 September 2024. 
 - **Growing in Our Welcoming**
   
