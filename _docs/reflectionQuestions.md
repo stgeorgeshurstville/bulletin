@@ -7,12 +7,7 @@ order: 7
 n/a
 
 ### Reflection questions
-1. Draw a picture of your best friend
-2. Write down what you'd like to do with your brest friend?
-3. What is special about your best friend?
-4. People were saying this about Jesus: 'He's a friend of tax collectors and sinners'. Why do you think they were saying this?
-5. Are you friends with Jesus? Yes, no, not sure?
-6. What is it like to have Jesus as your friend?
+1.
 
 
 
