@@ -36,7 +36,10 @@ Grace and peace to you from God our Father.
 
 ## Sermon Outline
 ### The power of change
-1. 
+1. Colossians
+2. Thank God (v3)… 
+3. for faith, love and hope (v4-5)…
+4. through the gospel (v5-8)
 
 
 
