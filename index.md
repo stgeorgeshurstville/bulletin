@@ -9,9 +9,9 @@ title: Welcome
 [comment]: ##### "where the sentence came from, e.g. Psalm 1:1"  
 [comment]: ----------------------------------------------------  
 
-## The Heart of Jesus 
-#### When John came, he didn’t eat or drink as you do. And people say, ‘He has a demon.’ But when the Son of Man came, he ate and drank as you do. And people say, ‘This fellow is always eating and drinking far too much. He’s a friend of tax collectors and “sinners.”
-##### Matthew 11:18,19 NIRV
+## Jesus is enough
+#### We put our trust in the steadfast love of the Lord; our heart shall rejoice in his salvation. We will sing to the Lord, because he has dealth bountifully with us.
+##### Psalm 13: 5-6, ESV
 
 
 ---
