@@ -20,22 +20,24 @@ order: 2
 ## Bible Reading
 
 ### Prayer
-Dear God, thank you for giving us the Bible. Let it guide us like a light and give us strength. Help us to love and help everyone, with the power of the Holy Spirit and in the name of Jesus Christ. **Amen.**
+Lord make your word our rule, your Spirit our teacher, and your glory our supreme concern, for the sake of our Saviour, the Lord Jesus Christ. **Amen.**
 
-### Matthew 9:9-13 (NIRV) 
-**Jesus Chooses Matthew and Eats With Sinners**
+### Colossians 1:1-8 (NIV) 
+ 
+¹ Paul, an apostle of Christ Jesus by the will of God, and Timothy our brother,
 
-⁹ As Jesus went on from there, he saw a man named Matthew. He was sitting at the tax collector’s booth. “Follow me,” Jesus told him. Matthew got up and followed him.
+² To God’s holy people in Colossae, the faithful brothers and sisters in Christ:
 
-¹⁰ Later Jesus was having dinner at Matthew’s house. Many tax collectors and sinners came. They ate with Jesus and his disciples. ¹¹ The Pharisees saw this. So they asked the disciples, “Why does your teacher eat with tax collectors and sinners?”
+Grace and peace to you from God our Father. 
 
-¹² Jesus heard this. So he said, “Those who are healthy don’t need a doctor. Sick people do. ¹³ Go and learn what this means, ‘I want mercy and not sacrifice.’ I have not come to get those who think they are right with God to follow me. I have come to get sinners to follow me.”
+**Thanksgiving and Prayer**
+³ We always thank God, the Father of our Lord Jesus Christ, when we pray for you, ⁴ because we have heard of your faith in Christ Jesus and of the love you have for all God’s people— ⁵ the faith and love that spring from the hope stored up for you in heaven and about which you have already heard in the true message of the gospel ⁶ that has come to you. In the same way, the gospel is bearing fruit and growing throughout the whole world—just as it has been doing among you since the day you heard it and truly understood God’s grace. ⁷ You learned it from Epaphras, our dear fellow servant, who is a faithful minister of Christ on our behalf, ⁸ and who also told us of your love in the Spirit.
 
 ## Sermon Outline
-### Jesus our tender friend 
-1. Who to invite to your party?
-2. A ‘friend of sinners’
-3. Your friend, Jesus 
+### The power of change
+1. 
+
+
 
 ## Q&A
 Got questions or comments? Send them [here](https://tinyurl.com/SGHACQuestionsAnswers)
