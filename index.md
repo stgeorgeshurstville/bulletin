@@ -10,8 +10,8 @@ title: Welcome
 [comment]: ----------------------------------------------------  
 
 ## Jesus is enough
-#### We put our trust in the steadfast love of the Lord; our heart shall rejoice in his salvation. We will sing to the Lord, because he has dealth bountifully with us.
-##### Psalm 13: 5-6, ESV
+#### Lord, be a rock of refuge for me, a strong fortress to save me; for your name's sake lead me and guide me.
+##### Psalm 31: 2-3
 
 
 ---
