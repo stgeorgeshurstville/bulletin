@@ -4,18 +4,24 @@ order: 7
 ---
 
 ### Key Idea
-Thank God for people’s faith in Christ, love for people and hope in heaven through the message of the gospel. 
+Make it your ambition to live a life worthy of God by the Gospel of Jesus in prayerful dependence on Him.
 
 ### Reflection questions
-1. Read through the letter of Colossians (about 20 minutes). What things stood out? What questions do you have? Why did Paul write it?
-2. What are you usually or mostly thankful for?
-3. In the letter, Paul commences by being thankful. What do we find out about his thankfulness (who is he thankful to, why is he thankful, when is he thankful…?)?
-4. What can spur our thankfulness for God’s work in people?
-5. What’s the relationship between faith, love and hope?
-6. How does God work?
-7. When does God work?
-8. How do we see the Trinity at work and its workings?
-9. The Christians in Colossae came to trust in Jesus through the message brought by Epaphras. What is he like and what are we to be like? 
+1. Who is your spiritual hero? And why?  
+2. What is Paul’s ambition for the Colossians? V.10
+   - What does ‘worthy’ mean?
+   - What does a life worthy of God look like?
+   - What is fruitfulness in good works?
+   - What does it mean to grow in knowing God?
+   - Why do we need power from God?
+   - Why is Paul thankful to God, the Father? 
+3. What does Paul say is ‘how’ the Colossians will live lives worthy of God? V.9 What won’t (see chapter 2)?
+   - What is the knowledge of God’d will?
+   - How does the Gospel produce a life worthy of God? 
+4. Why does Paul pray for this? Why not just preach the Gospel to them?
+   -What might this tell us about why we don’t pray? 
+5. How does this passage apply this to you, those in your group, family and Christian friends? 
+
 
 
 
