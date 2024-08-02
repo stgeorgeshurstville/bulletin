@@ -7,17 +7,16 @@ order: 5
 
 | Date | Event | Time |
 | ----- | ----- | ----- |
-| **JULY** | 
-| SUN JUL 28 | English classes, SRE, Youth Group, NewGen resumes | |
-| SUN JUL 28 | DGroups leaders + English Core Leaders meeting | 11am and 2pm |
-| MON JUL 29 | Dgroup Starts this week | |
 | **AUGUST** | 
+| SUN AUG 4 | Coffee Cart! | after 9:30am service |
 | SUN AUG 4 | Life Course #1 | 11am and 5:45pm |
 | SUN AUG 11 | Life Course #2 | 11am and 5:45pm |
 | SUN AUG 18 | Life Course #3 | 11am and 5:45pm |
 | SUN AUG 25 | Life Course #4 | 11am and 5:45pm |
+| SUN AUG 25 | Confirmation | 4pm |
 | **SEPTEMBER** | 
 | SUN SEP 1 | Life Course #5 | 11am and 5:45pm |
+| SUN SEP 8 | Confirmation | 9:30am |
 | SAT SEP 14 | Prayer and Praise | Evening |
 | **OCTOBER** | 
 | SUN OCT 27 | Baptism Course #1 | 11am and 5:45pm |
@@ -29,9 +28,10 @@ order: 5
 
 
 ## General
-- **DGroups leaders and English Core group leaders meeting:** Sunday 28 July (11am and 2pm).
-- **New terms** starts for church  ministries, including English classes, SRE, youth group, NewGen on 28 July 2024.
-- **LIFE Course:** 5 week course starts next Sunday, 4 August at 11am and 5:45pm. Find out what it means to have true life in Jesus.  
+- **A message from Archbishop Kanishka**
+- **LIFE Course:** 5 week course starts next Sunday, 4 August at 11am and 5:45pm. Find out what it means to have true life in Jesus.
+- **Confirmation:** Sun 25th Aug 4pm & 8th Sep 9:30am.
+- **Coffee Cart:** We are serving baristas coffee after 9:30am church today. Order your coffee at the sign-in area. $3 (small) $4 (large). Why not buy coffee for someone you don’t know?
 - **Sing!** Prayer and praise night afternoon 14 September 2024. 
 - **Growing in Our Welcoming**
   
