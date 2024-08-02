@@ -19,7 +19,7 @@ Make it your ambition to live a life worthy of God by the Gospel of Jesus in pra
    - What is the knowledge of God’d will?
    - How does the Gospel produce a life worthy of God? 
 4. Why does Paul pray for this? Why not just preach the Gospel to them?
-   -What might this tell us about why we don’t pray? 
+   - What might this tell us about why we don’t pray? 
 5. How does this passage apply this to you, those in your group, family and Christian friends? 
 
 
