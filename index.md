@@ -11,7 +11,7 @@ title: Welcome
 
 ## Jesus is enough
 #### All that you have done to us, Lord, you have done in true judgment; for we have sinned in all things and have not obeyed your commandments; give glory to your Name, O Lord, and deal with us in your forbearnce.  
-##### PSong of the Three Young Men 8,17,20,19
+##### Song of the Three Young Men 8,17,20,19
 
 
 ---
