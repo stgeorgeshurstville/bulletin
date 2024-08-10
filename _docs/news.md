@@ -8,7 +8,6 @@ order: 5
 | Date | Event | Time |
 | ----- | ----- | ----- |
 | **AUGUST** | 
-| SUN AUG 4 | Coffee Cart! | after 9:30am service |
 | SUN AUG 4 | Life Course #1 | 11am and 5:45pm |
 | SUN AUG 11 | Life Course #2 | 11am and 5:45pm |
 | SUN AUG 18 | Life Course #3 | 11am and 5:45pm |
@@ -28,10 +27,7 @@ order: 5
 
 
 ## General
-- **A message from Archbishop Kanishka**
-- **LIFE Course:** 5 week course starts next Sunday, 4 August at 11am and 5:45pm. Find out what it means to have true life in Jesus.
-- **Confirmation:** Sun 25th Aug 4pm & 8th Sep 9:30am.
-- **Coffee Cart:** We are serving baristas coffee after 9:30am church today. Order your coffee at the sign-in area. $3 (small) $4 (large). Why not buy coffee for someone you don’t know?
+- **Confirmation:** Sun 25th August 4pm and 8th September 9:30am
 - **Sing!** Prayer and praise night afternoon 14 September 2024. 
 - **Growing in Our Welcoming**
   
