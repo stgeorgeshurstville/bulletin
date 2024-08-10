@@ -4,23 +4,22 @@ order: 7
 ---
 
 ### Key Idea
-Make it your ambition to live a life worthy of God by the Gospel of Jesus in prayerful dependence on Him.
+Continue to have faith in Jesus who has the supremacy.
 
 ### Reflection questions
-1. Who is your spiritual hero? And why?  
-2. What is Paul’s ambition for the Colossians? V.10
-   - What does ‘worthy’ mean?
-   - What does a life worthy of God look like?
-   - What is fruitfulness in good works?
-   - What does it mean to grow in knowing God?
-   - Why do we need power from God?
-   - Why is Paul thankful to God, the Father? 
-3. What does Paul say is ‘how’ the Colossians will live lives worthy of God? V.9 What won’t (see chapter 2)?
-   - What is the knowledge of God’d will?
-   - How does the Gospel produce a life worthy of God? 
-4. Why does Paul pray for this? Why not just preach the Gospel to them?
-   - What might this tell us about why we don’t pray? 
-5. How does this passage apply this to you, those in your group, family and Christian friends? 
+1. What things tempt you away or distract you from God?
+2. How and what does it mean for Jesus to be the:
+   - Image of the invisible God?
+   - Firstborn over all creation?
+   - Head of the church?
+   - Beginning (v18)?  
+3. What does it mean for all things to be created through and for Jesus?
+4. What does it mean for Jesus to reconcile everything to himself?
+5. What does this passage reveal about the Trinity?
+6. Why does Jesus need to be God and human?
+7. In light of who Jesus is and has done, what does this mean for believers?
+8. What are we to do? 
+
 
 
 
