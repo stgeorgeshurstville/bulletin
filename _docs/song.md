@@ -5,13 +5,13 @@ order: 1
 
 ## 9:30am 
 1. Holy Forever
-2. All creatures of our God and King
+2. Amazing Love
 3. Crown Him with many Crowns
 4. And Can It Be
 
 ## 4pm 
 1. All creatures of our God and King
-2. Jesus is the mighty might King
+2. Jesus is the mighty mighty King
 3. When I Survey the Wonderous Cross
 4. All glory be to Christ
 
