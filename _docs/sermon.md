@@ -20,19 +20,22 @@ order: 2
 ## Bible Reading
 
 ### Prayer
-Lord make your word our rule, your Spirit our teacher, and your glory our supreme concern, for the sake of our Saviour, the Lord Jesus Christ. **Amen.**
+Almighty God, we thank you for the gift of your holy word. May it be a lantern to our feet, a light to our paths, and strength to our lives. Take us and use us to love and serve all people in the power of the Holy Spirit and in the name of your Son Jesus Christ our Lord. **Amen.**
 
-### Colossians 1:9-14 (NIV) 
+### Colossians 1:15-23 (NIV) 
  
-⁹ For this reason, since the day we heard about you, we have not stopped praying for you. We continually ask God to fill you with the knowledge of his will through all the wisdom and understanding that the Spirit gives, ¹⁰ so that you may live a life worthy of the Lord and please him in every way: bearing fruit in every good work, growing in the knowledge of God, ¹¹ being strengthened with all power according to his glorious might so that you may have great endurance and patience, ¹² and giving joyful thanks to the Father, who has qualified you to share in the inheritance of his holy people in the kingdom of light. ¹³ For he has rescued us from the dominion of darkness and brought us into the kingdom of the Son he loves, ¹⁴ in whom we have redemption, the forgiveness of sins.
+**The Supremacy of the Son of God**
+
+¹⁵ The Son is the image of the invisible God, the firstborn over all creation. ¹⁶ For in him all things were created: things in heaven and on earth, visible and invisible, whether thrones or powers or rulers or authorities; all things have been created through him and for him. ¹⁷ He is before all things, and in him all things hold together. ¹⁸ And he is the head of the body, the church; he is the beginning and the firstborn from among the dead, so that in everything he might have the supremacy. ¹⁹ For God was pleased to have all his fullness dwell in him, ²⁰ and through him to reconcile to himself all things, whether things on earth or things in heaven, by making peace through his blood, shed on the cross.
+
+²¹ Once you were alienated from God and were enemies in your minds because of your evil behavior. ²² But now he has reconciled you by Christ’s physical body through death to present you holy in his sight, without blemish and free from accusation— ²³ if you continue in your faith, established and firm, and do not move from the hope held out in the gospel. This is the gospel that you heard and that has been proclaimed to every creature under heaven, and of which I, Paul, have become a servant.
 
 
 ## Sermon Outline
-### Praying for God’s people
-1. Spiritual hero 
-2. A worthy life
-3. How to live a worthy life
-4. Conclusions 
+1. Being (v15).
+2. Creating (v15-17).
+3. Saving (v18-20).
+4. Continuing (v21-23).
 
 
 ## Q&A
