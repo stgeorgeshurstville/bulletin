@@ -4,15 +4,15 @@ order: 1
 ---
 
 ## 9:30am 
-1. Holy Holy Holy
-2. Is He Worthy
-3. In Christ Alone
-4. Hear Our Prayer
+1. Holy Forever
+2. All creatures of our God and King
+3. Crown Him with many Crowns
+4. And Can It Be
 
 ## 4pm 
-1. Christ our hope in life and death
-2. Come, Thou Fount of Every Blessing
-3. Hear Our Prayer
-4. We Remember
+1. All creatures of our God and King
+2. Jesus is the mighty might King
+3. When I Survey the Wonderous Cross
+4. All glory be to Christ
 
 Check out the church spotify playlist [here](https://open.spotify.com/playlist/3gh0ZKXkJBDbNEnZqJJDXj?si=0908aa3f87544643)
