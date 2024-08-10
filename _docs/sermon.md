@@ -32,6 +32,7 @@ Almighty God, we thank you for the gift of your holy word. May it be a lantern t
 
 
 ## Sermon Outline
+### Christ's supremacy
 1. Being (v15).
 2. Creating (v15-17).
 3. Saving (v18-20).
