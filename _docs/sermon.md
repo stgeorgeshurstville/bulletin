@@ -30,7 +30,7 @@ Almighty God, thank you for the gift of your holy word. Let it guide our steps, 
 
 ²⁸ He is the one we proclaim, admonishing and teaching everyone with all wisdom, so that we may present everyone fully mature in Christ. ²⁹ To this end I strenuously contend with all the energy Christ so powerfully works in me.
 
-## Colossians 2 ##
+**Colossians 2**
 
 I want you to know how hard I am contending for you and for those at Laodicea, and for all who have not met me personally. ² My goal is that they may be encouraged in heart and united in love, so that they may have the full riches of complete understanding, in order that they may know the mystery of God, namely, Christ, ³ in whom are hidden all the treasures of wisdom and knowledge. ⁴ I tell you this so that no one may deceive you by fine-sounding arguments. ⁵ For though I am absent from you in body, I am present with you in spirit and delight to see how disciplined you are and how firm your faith in Christ is.
 
