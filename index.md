@@ -9,9 +9,9 @@ title: Welcome
 [comment]: ##### "where the sentence came from, e.g. Psalm 1:1"  
 [comment]: ----------------------------------------------------  
 
-## Jesus is enough
-#### All that you have done to us, Lord, you have done in true judgment; for we have sinned in all things and have not obeyed your commandments; give glory to your Name, O Lord, and deal with us in your forbearnce.  
-##### Song of the Three Young Men 8,17,20,19
+## Christ is enough
+#### Be gracious to me, O Lord, for to you do I cry all day long. You, O Lord, are good and forgiving, abounding in steadfast love to all who call on you. 
+##### Psalm 86.3,5 
 
 
 ---
