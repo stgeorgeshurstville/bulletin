@@ -20,23 +20,44 @@ order: 2
 ## Bible Reading
 
 ### Prayer
-Almighty God, we thank you for the gift of your holy word. May it be a lantern to our feet, a light to our paths, and strength to our lives. Take us and use us to love and serve all people in the power of the Holy Spirit and in the name of your Son Jesus Christ our Lord. **Amen.**
+Almighty God, thank you for the gift of your holy word. Let it guide our steps, light our way, and strengthen us in our daily lives. Use us to love and serve everyone, through the power of the Holy Spirit and in the name of your Son, Jesus Christ our Lord. **Amen.**
 
-### Colossians 1:15-23 (NIV) 
+### Colossians 1:24-2:23 (NIV) 
  
-**The Supremacy of the Son of God**
+**Paul’s Labor for the Church**
 
-¹⁵ The Son is the image of the invisible God, the firstborn over all creation. ¹⁶ For in him all things were created: things in heaven and on earth, visible and invisible, whether thrones or powers or rulers or authorities; all things have been created through him and for him. ¹⁷ He is before all things, and in him all things hold together. ¹⁸ And he is the head of the body, the church; he is the beginning and the firstborn from among the dead, so that in everything he might have the supremacy. ¹⁹ For God was pleased to have all his fullness dwell in him, ²⁰ and through him to reconcile to himself all things, whether things on earth or things in heaven, by making peace through his blood, shed on the cross.
+²⁴ Now I rejoice in what I am suffering for you, and I fill up in my flesh what is still lacking in regard to Christ’s afflictions, for the sake of his body, which is the church. ²⁵ I have become its servant by the commission God gave me to present to you the word of God in its fullness— ²⁶ the mystery that has been kept hidden for ages and generations, but is now disclosed to the Lord’s people. ²⁷ To them God has chosen to make known among the Gentiles the glorious riches of this mystery, which is Christ in you, the hope of glory.
 
-²¹ Once you were alienated from God and were enemies in your minds because of your evil behavior. ²² But now he has reconciled you by Christ’s physical body through death to present you holy in his sight, without blemish and free from accusation— ²³ if you continue in your faith, established and firm, and do not move from the hope held out in the gospel. This is the gospel that you heard and that has been proclaimed to every creature under heaven, and of which I, Paul, have become a servant.
+²⁸ He is the one we proclaim, admonishing and teaching everyone with all wisdom, so that we may present everyone fully mature in Christ. ²⁹ To this end I strenuously contend with all the energy Christ so powerfully works in me.
+
+##Colossians 2##
+
+I want you to know how hard I am contending for you and for those at Laodicea, and for all who have not met me personally. ² My goal is that they may be encouraged in heart and united in love, so that they may have the full riches of complete understanding, in order that they may know the mystery of God, namely, Christ, ³ in whom are hidden all the treasures of wisdom and knowledge. ⁴ I tell you this so that no one may deceive you by fine-sounding arguments. ⁵ For though I am absent from you in body, I am present with you in spirit and delight to see how disciplined you are and how firm your faith in Christ is.
+
+**Spiritual Fullness in Christ**
+
+⁶ So then, just as you received Christ Jesus as Lord, continue to live your lives in him, ⁷ rooted and built up in him, strengthened in the faith as you were taught, and overflowing with thankfulness.
+
+⁸ See to it that no one takes you captive through hollow and deceptive philosophy, which depends on human tradition and the elemental spiritual forces of this world rather than on Christ.
+
+⁹ For in Christ all the fullness of the Deity lives in bodily form, ¹⁰ and in Christ you have been brought to fullness. He is the head over every power and authority. ¹¹ In him you were also circumcised with a circumcision not performed by human hands. Your whole self ruled by the flesh was put off when you were circumcised by Christ, ¹² having been buried with him in baptism, in which you were also raised with him through your faith in the working of God, who raised him from the dead.
+
+¹³ When you were dead in your sins and in the uncircumcision of your flesh, God made you alive with Christ. He forgave us all our sins, ¹⁴ having canceled the charge of our legal indebtedness, which stood against us and condemned us; he has taken it away, nailing it to the cross. ¹⁵ And having disarmed the powers and authorities, he made a public spectacle of them, triumphing over them by the cross. 
+
+**Freedom From Human Rules**
+
+¹⁶ Therefore do not let anyone judge you by what you eat or drink, or with regard to a religious festival, a New Moon celebration or a Sabbath day. ¹⁷ These are a shadow of the things that were to come; the reality, however, is found in Christ. ¹⁸ Do not let anyone who delights in false humility and the worship of angels disqualify you. Such a person also goes into great detail about what they have seen; they are puffed up with idle notions by their unspiritual mind. ¹⁹ They have lost connection with the head, from whom the whole body, supported and held together by its ligaments and sinews, grows as God causes it to grow.
+
+²⁰ Since you died with Christ to the elemental spiritual forces of this world, why, as though you still belonged to the world, do you submit to its rules: ²¹ “Do not handle! Do not taste! Do not touch!”? ²² These rules, which have to do with things that are all destined to perish with use, are based on merely human commands and teachings. ²³ Such regulations indeed have an appearance of wisdom, with their self-imposed worship, their false humility and their harsh treatment of the body, but they lack any value in restraining sensual indulgence.
 
 
 ## Sermon Outline
 ### Christ's supremacy
-1. Being (v15).
-2. Creating (v15-17).
-3. Saving (v18-20).
-4. Continuing (v21-23).
+Meaningful work is…
+Rejoicing in suffering?
+To deliver the good news
+So that everyone is mature
+Thank you, keep going
 
 
 ## Q&A
