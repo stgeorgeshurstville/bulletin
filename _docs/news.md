@@ -8,8 +8,6 @@ order: 5
 | Date | Event | Time |
 | ----- | ----- | ----- |
 | **AUGUST** | 
-| SUN AUG 4 | Life Course #1 | 11am and 5:45pm |
-| SUN AUG 11 | Life Course #2 | 11am and 5:45pm |
 | SUN AUG 18 | Life Course #3 | 11am and 5:45pm |
 | SUN AUG 25 | Life Course #4 | 11am and 5:45pm |
 | SUN AUG 25 | Confirmation | 4pm |
@@ -27,8 +25,9 @@ order: 5
 
 
 ## General
-- **Confirmation:** Sun 25th August 4pm and 8th September 9:30am
-- **Sing!** Prayer and praise night afternoon 14 September 2024. 
+- **Confirmation:** An opportunity with Bishop Peter Lin to confirm your faith. Owen Cheng will be getting confirmed on Sun 25th Aug 4pm. Please talk to Rev. Alan if you would like to be confirmed. 
+- **Compassion** A chance to see first hand God’s impact on children’s lives in Sumba Indonesia. Compassion’s mission trip will be in February 2025. Please register by mid September for planning purposes. You can contact Grace Chen (4pm English) or a member of the mission team (Kai from 11am Mandarin, Kevin from Sat Cantonese, Zoe from 4pm English, David from 9:30am English) for more information. 
+- **Sing!** Prayer and praise night afternoon 14 September 2024.   
 - **Growing in Our Welcoming**
   
   <img width="236" alt="Screenshot 2023-07-01 134203" src="https://github.com/stgeorgeshurstville/bulletin/assets/119166299/b540ac1c-0ba4-481e-90a5-5464939f7e4c">
