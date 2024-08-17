@@ -53,11 +53,11 @@ I want you to know how hard I am contending for you and for those at Laodicea, a
 
 ## Sermon Outline
 ### Christ's supremacy
-Meaningful work is…
-Rejoicing in suffering?
-To deliver the good news
-So that everyone is mature
-Thank you, keep going
+1. Meaningful work is…
+2. Rejoicing in suffering?
+3. To deliver the good news
+4. So that everyone is mature
+5. Thank you, keep going
 
 
 ## Q&A
