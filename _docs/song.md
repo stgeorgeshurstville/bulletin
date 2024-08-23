@@ -4,13 +4,13 @@ order: 1
 ---
 
 ## 9:30am 
-1. You Alone
-2. Jesus Thank You
-3. Yet Not I but Through Christ in Me
-4. I Cannot Tell
+1. Rock of Ages
+2. Is He Worthy
+3. I Have Decided to Follow Jesus
+4. Jesus Paid It All
 
 ## 4pm 
-1. Your Word
+1. 
 2. Here We Stand
 3. Let Your Kingdom Come
 4. You Alone
