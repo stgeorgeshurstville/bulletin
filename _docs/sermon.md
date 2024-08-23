@@ -20,20 +20,11 @@ order: 2
 ## Bible Reading
 
 ### Prayer
-Almighty God, thank you for the gift of your holy word. Let it guide our steps, light our way, and strengthen us in our daily lives. Use us to love and serve everyone, through the power of the Holy Spirit and in the name of your Son, Jesus Christ our Lord. **Amen.**
+Dear God, help us trust your word, understand it, and act on it. Through Jesus Christ, our Lord. **Amen**.
 
-### Colossians 1:24-2:23 (NIV) 
+
+### 9:30am: Colossians 2:6-23 (NIV) 
  
-**Paul’s Labor for the Church**
-
-²⁴ Now I rejoice in what I am suffering for you, and I fill up in my flesh what is still lacking in regard to Christ’s afflictions, for the sake of his body, which is the church. ²⁵ I have become its servant by the commission God gave me to present to you the word of God in its fullness— ²⁶ the mystery that has been kept hidden for ages and generations, but is now disclosed to the Lord’s people. ²⁷ To them God has chosen to make known among the Gentiles the glorious riches of this mystery, which is Christ in you, the hope of glory.
-
-²⁸ He is the one we proclaim, admonishing and teaching everyone with all wisdom, so that we may present everyone fully mature in Christ. ²⁹ To this end I strenuously contend with all the energy Christ so powerfully works in me.
-
-**COLOSSIANS 2**
-I want you to know how hard I am contending for you and for those at Laodicea, and for all who have not met me personally. ² My goal is that they may be encouraged in heart and united in love, so that they may have the full riches of complete understanding, in order that they may know the mystery of God, namely, Christ, ³ in whom are hidden all the treasures of wisdom and knowledge. ⁴ I tell you this so that no one may deceive you by fine-sounding arguments. ⁵ For though I am absent from you in body, I am present with you in spirit and delight to see how disciplined you are and how firm your faith in Christ is.
-
-**Spiritual Fullness in Christ**
 
 ⁶ So then, just as you received Christ Jesus as Lord, continue to live your lives in him, ⁷ rooted and built up in him, strengthened in the faith as you were taught, and overflowing with thankfulness.
 
@@ -43,20 +34,37 @@ I want you to know how hard I am contending for you and for those at Laodicea, a
 
 ¹³ When you were dead in your sins and in the uncircumcision of your flesh, God made you alive with Christ. He forgave us all our sins, ¹⁴ having canceled the charge of our legal indebtedness, which stood against us and condemned us; he has taken it away, nailing it to the cross. ¹⁵ And having disarmed the powers and authorities, he made a public spectacle of them, triumphing over them by the cross. 
 
-**Freedom From Human Rules**
-
 ¹⁶ Therefore do not let anyone judge you by what you eat or drink, or with regard to a religious festival, a New Moon celebration or a Sabbath day. ¹⁷ These are a shadow of the things that were to come; the reality, however, is found in Christ. ¹⁸ Do not let anyone who delights in false humility and the worship of angels disqualify you. Such a person also goes into great detail about what they have seen; they are puffed up with idle notions by their unspiritual mind. ¹⁹ They have lost connection with the head, from whom the whole body, supported and held together by its ligaments and sinews, grows as God causes it to grow.
 
-²⁰ Since you died with Christ to the elemental spiritual forces of this world, why, as though you still belonged to the world, do you submit to its rules: ²¹ “Do not handle! Do not taste! Do not touch!”? ²² These rules, which have to do with things that are all destined to perish with use, are based on merely human commands and teachings. ²³ Such regulations indeed have an appearance of wisdom, with their self-imposed worship, their false humility and their harsh treatment of the body, but they lack any value in restraining sensual indulgence.
+²⁰ Since you died with Christ to the elemental spiritual forces of this world, why, as though you still belonged to the world, do you submit to its rules: ²¹ “Do not handle! Do not taste! Do not touch!”? ²² These rules, which have to do with things that are all destined to perish with use, are based on merely human commands and teachings. ²³ Such regulations indeed have an appearance of wisdom, with their self-imposed worship, their false humility and their harsh treatment of the body, but they lack any value in restraining sensual indulgence. 
+
+### 4pm: Mark 8:27-9:1 (NIV) 
+²⁷ Jesus and his disciples went on to the villages around Caesarea Philippi. On the way he asked them, “Who do people say I am?”
+
+²⁸ They replied, “Some say John the Baptist; others say Elijah; and still others, one of the prophets.”
+
+²⁹ “But what about you?” he asked. “Who do you say I am?”
+
+Peter answered, “You are the Messiah.”
+
+³⁰ Jesus warned them not to tell anyone about him.
+
+³¹ He then began to teach them that the Son of Man must suffer many things and be rejected by the elders, the chief priests and the teachers of the law, and that he must be killed and after three days rise again. ³² He spoke plainly about this, and Peter took him aside and began to rebuke him.
+
+³³ But when Jesus turned and looked at his disciples, he rebuked Peter. “Get behind me, Satan!” he said. “You do not have in mind the concerns of God, but merely human concerns.”
+
+³⁴ Then he called the crowd to him along with his disciples and said: “Whoever wants to be my disciple must deny themselves and take up their cross and follow me. ³⁵ For whoever wants to save their life will lose it, but whoever loses their life for me and for the gospel will save it. ³⁶ What good is it for someone to gain the whole world, yet forfeit their soul? ³⁷ Or what can anyone give in exchange for their soul? ³⁸ If anyone is ashamed of me and my words in this adulterous and sinful generation, the Son of Man will be ashamed of them when he comes in his Father’s glory with the holy angels.”
+
+9¹ And he said to them, “Truly I tell you, some who are standing here will not taste death before they see that the kingdom of God has come with power.”
 
 
 ## Sermon Outline
 ### Christ's supremacy
-1. Meaningful work is…
-2. Rejoicing in suffering?
-3. To deliver the good news
-4. So that everyone is mature
-5. Thank you, keep going
+- Dos and Don'ts
+- Living well 
+- Captivated by the Empty Box  
+- Captivated by Christ 
+
 
 
 ## Q&A
