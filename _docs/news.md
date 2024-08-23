@@ -24,9 +24,11 @@ order: 5
 
 
 ## General
-- **Confirmation:** An opportunity with Bishop Peter Lin to confirm your faith. Owen Cheng will be getting confirmed on Sun 25th Aug 4pm. Please talk to Rev. Alan if you would like to be confirmed. 
-- **Compassion** A chance to see first hand God’s impact on children’s lives in Sumba Indonesia. Compassion’s mission trip will be in February 2025. Please register by mid September for planning purposes. You can contact Grace Chen (4pm English) or a member of the mission team (Kai from 11am Mandarin, Kevin from Sat Cantonese, Zoe from 4pm English, David from 9:30am English) for more information. 
-- **Sing!** Prayer and praise night afternoon 14 September 2024.   
+- **Confirmation (4pm English will be in the Chapel)**: Owen Cheng will be getting confirmed on Sun 25th Aug 4pm. 
+- **MTS Recruit Conference**: “How can I serve God more in gospel work? Am I suitable for full-time ministry?” If these are some of your questions, why not come to MTS Recruit 2024 conference. When: Fri 4th- Mon 7th Oct (rego closes 27 Sept)Where: Katoomba. Registration: https://mtsrecruit.com/katoomba/. If you are open to full-time ministry, please feel free to talk to Pastor Elvin, or the Pastors of your congregation about this.
+- **Sing!** Prayer and praise night afternoon 14 September 2024. 
+- **Women Event**.  
+
 - **Growing in Our Welcoming**
   
   <img width="236" alt="Screenshot 2023-07-01 134203" src="https://github.com/stgeorgeshurstville/bulletin/assets/119166299/b540ac1c-0ba4-481e-90a5-5464939f7e4c">
