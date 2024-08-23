@@ -8,7 +8,6 @@ order: 5
 | Date | Event | Time |
 | ----- | ----- | ----- |
 | **AUGUST** | 
-| SUN AUG 18 | Life Course #3 | 11am and 5:45pm |
 | SUN AUG 25 | Life Course #4 | 11am and 5:45pm |
 | SUN AUG 25 | Confirmation | 4pm |
 | **SEPTEMBER** | 
