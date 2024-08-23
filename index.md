@@ -9,9 +9,9 @@ title: Welcome
 [comment]: ##### "where the sentence came from, e.g. Psalm 1:1"  
 [comment]: ----------------------------------------------------  
 
-## Christ is enough
-#### Be gracious to me, O Lord, for to you do I cry all day long. You, O Lord, are good and forgiving, abounding in steadfast love to all who call on you. 
-##### Psalm 86.3,5 
+## Jesus is enough
+#### The sinner cries to God; Do not forsake me, O Lord. O my God, be not far from me, make haste to help me, O Lord, my salvation. 
+##### Psalm 38.21-22
 
 
 ---
