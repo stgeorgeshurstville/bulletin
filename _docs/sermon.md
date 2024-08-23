@@ -59,13 +59,22 @@ Peter answered, “You are the Messiah.”
 
 
 ## Sermon Outline
-### Christ's supremacy
+Sermon Outline (9:30am)
+
 - Dos and Don'ts
 - Living well 
 - Captivated by the Empty Box  
 - Captivated by Christ 
 
 
+
+Sermon Outline (4pm)
+- “Selling” Jesus
+- Following Jesus
+- The Messiah King
+- The Suffering King
+- Saving and losing life
+- Following, denying, suffering,
 
 ## Q&A
 Got questions or comments? Send them [here](https://tinyurl.com/SGHACQuestionsAnswers)
