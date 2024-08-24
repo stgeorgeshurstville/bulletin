@@ -18,7 +18,7 @@ order: 4
 
 
 ## Mission Related Prayer Points
-- ** People Responsible/Presenting:**
+- **People Responsible/Presenting:**
   - Sat 3pm Cantonese: Kevin Lee
   - Sun 9:30am Cantonese: Kevin Lee?
   - Sun 9:30am English: David Wong?
