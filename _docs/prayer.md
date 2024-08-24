@@ -33,7 +33,6 @@ order: 4
     - 11:30am @ 11am Mandarin. 
 - **Context**: Each month, we’ve been focusing on a mission partner and their ministry. Last month, we heard about Phil and Lil in West Asia. Our focus for this month is our high school scripture ministry with Semi Kolikata. He only started a few months ago and is seeking to make disciples at Hurstville Boys, Sydney Tech and Oatley High. 
 
-![Semi Kolikata](https://github.com/stgeorgeshurstville/bulletin/blob/main/images/SemiKolikata.JPG)
 
 - **Interview**:
   - Please tell us a bit about yourself (e.g. your family, what you used to do, which church you go to, how do you wind down etc). 
@@ -43,7 +42,6 @@ order: 4
   - How can we be partnering and praying for you and the ministry? 
 - Prayer: Loving Father, we thank you that you want all people to come to a saving knowledge of you. We ask that the high schoolers in our area (especially at Hurstville Boys, Sydney Tech and Oatley High) will see Jesus as the way, the truth and the life. May you help students to find their identity and security in Jesus particularly when things get busy, life doesn’t work out as planned and the future may seem confusing and meaningless. We praise you for providing Semi Kolikata and the heart he has for the youths. Please help him to transition well, make good connections with the school and students and share the good news.
 
-![Mission Partners](https://github.com/stgeorgeshurstville/bulletin/blob/main/images/Mission%20Partners.JPG)
 
 - Next Steps: You can find out more information about the ministry and how to pray and give towards to the work on our website. You can also speak to someone from the mission subcommittee. 
 - You can go [here](https://stgeorgeshurstville.org.au/mission-partners) for more information on how to pray, support and give.
