@@ -32,6 +32,7 @@ order: 4
     - 11am @ NewGen (Carol from NewGen to Chapel). 
     - 11:30am @ 11am Mandarin. 
 - **Context**: Each month, we’ve been focusing on a mission partner and their ministry. Last month, we heard about Phil and Lil in West Asia. Our focus for this month is our high school scripture ministry with Semi Kolikata. He only started a few months ago and is seeking to make disciples at Hurstville Boys, Sydney Tech and Oatley High. 
+
 ![Semi Kolikata](https://github.com/stgeorgeshurstville/bulletin/blob/main/images/SemiKolikata.JPG)
 
 - **Interview**:
