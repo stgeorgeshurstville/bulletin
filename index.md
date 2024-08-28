@@ -10,8 +10,8 @@ title: Welcome
 [comment]: ----------------------------------------------------  
 
 ## Jesus is enough
-#### The sinner cries to God; Do not forsake me, O Lord. O my God, be not far from me, make haste to help me, O Lord, my salvation. 
-##### Psalm 38.21-22
+#### Let the hearts of those who seek the Lord rejoice. Seek the Lord and his strength, seek his presence continually. 
+##### Psalm 105.3-4 
 
 
 ---
