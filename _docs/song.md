@@ -4,11 +4,10 @@ order: 1
 ---
 
 ## 9:30am 
-1. Rock of Ages
-2. Is He Worthy
-3. I Have Decided to Follow Jesus
-4. Jesus Paid It All
-
+1. Come Thou Fount
+2. Be Thoug My Vision
+3. Undivided
+   
 ## 4pm 
 1. No Other Name
 2. We Remember
