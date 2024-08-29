@@ -4,24 +4,21 @@ order: 7
 ---
 
 ### Key Idea
-Christians keep living in Jesus. 
+ (9:30am) 
+Big Idea: The Gospel is the power for people to change.
 
 ### Reflection questions
+Reflection Questions
 1. Please share how you have tried to live out last week’s passage? 
 
-2. Is Christianity legalistic or antinomian (now law applies)? If neither, how do Chrsitians do the right thing? 
+2. ‘Christianity is about what to do and what not to do.’ Discuss. 
 
-3. What does it mean for Christiasn to continue to ‘live in Jesus’? V.6,7
+3. Please read 3:1-4. Why does Paul begin a list of dos and dont with this? Why is the Gospel the power to change? Why can’t dos and don’t change us? 
 
-4. What are Christians not to be taken captives by? V.8, 16-23 
+4. Please read 3:5-14. What is the new you to get rid of? What are they? Which one do you struggle to get rid? What is the new you to put on instead? Which one do you struggle with? 
 
-   What might be the hollow and deceptive that the Colossians were facing? 
+5. Picture a mature church, family, you. What does this look like? How might the Gospel help you to get there? 
 
-   Why shouldn’t they be captivated by these? 
-
-5. Christians are to be ‘captivated’ by Jesus. Why? Vv.9-15 
-
-6. What might it mean for you and your group to continue to live in Christ this week? 
 
 
 
