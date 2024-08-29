@@ -23,8 +23,8 @@ order: 2
 Dear God, help us trust your word, understand it, and act on it. Through Jesus Christ, our Lord. **Amen**.
 
 
-### 9:30am: Colossians 2:6-23 (NIV) 
- ¹ Since, then, you have been raised with Christ, set your hearts on things above, where Christ is, seated at the right hand of God. ² Set your minds on things above, not on earthly things. ³ For you died, and your life is now hidden with Christ in God. ⁴ When Christ, who is your life, appears, then you also will appear with him in glory.
+### 9:30am: Colossians 3:1-16 (NIV) 
+¹ Since, then, you have been raised with Christ, set your hearts on things above, where Christ is, seated at the right hand of God. ² Set your minds on things above, not on earthly things. ³ For you died, and your life is now hidden with Christ in God. ⁴ When Christ, who is your life, appears, then you also will appear with him in glory.
 
 ⁵ Put to death, therefore, whatever belongs to your earthly nature: sexual immorality, impurity, lust, evil desires and greed, which is idolatry. ⁶ Because of these, the wrath of God is coming. ⁷ You used to walk in these ways, in the life you once lived. ⁸ But now you must also rid yourselves of all such things as these: anger, rage, malice, slander, and filthy language from your lips. ⁹ Do not lie to each other, since you have taken off your old self with its practices ¹⁰ and have put on the new self, which is being renewed in knowledge in the image of its Creator. ¹¹ Here there is no Gentile or Jew, circumcised or uncircumcised, barbarian, Scythian, slave or free, but Christ is all, and is in all.
 
