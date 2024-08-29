@@ -7,9 +7,6 @@ order: 5
 
 | Date | Event | Time |
 | ----- | ----- | ----- |
-| **AUGUST** | 
-| SUN AUG 25 | Life Course #4 | 11am and 5:45pm |
-| SUN AUG 25 | Confirmation | 4pm |
 | **SEPTEMBER** | 
 | SUN SEP 1 | Life Course #5 | 11am and 5:45pm |
 | SUN SEP 8 | Confirmation | 9:30am |
@@ -24,7 +21,8 @@ order: 5
 
 
 ## General
-- **Confirmation (4pm English will be in the Chapel)**: Owen Cheng will be getting confirmed on Sun 25th Aug 4pm. 
+- **Rev. Alan Lam**
+- **Father’s Day**
 - **MTS Recruit Conference**: “How can I serve God more in gospel work? Am I suitable for full-time ministry?” If these are some of your questions, why not come to MTS Recruit 2024 conference. When: Fri 4th- Mon 7th Oct (rego closes 27 Sept)Where: Katoomba. Registration: https://mtsrecruit.com/katoomba/. If you are open to full-time ministry, please feel free to talk to Pastor Elvin, or the Pastors of your congregation about this.
 - **Sing!** Prayer and praise night afternoon 14 September 2024. 
 - **Women Event**.  
