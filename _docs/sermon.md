@@ -56,14 +56,28 @@ The Way of the Cross
 ¹⁵ Let the peace of Christ rule in your hearts, since as members of one body you were called to peace. And be thankful. ¹⁶ Let the message of Christ dwell among you richly as you teach and admonish one another with all wisdom through psalms, hymns, and songs from the Spirit, singing to God with gratitude in your hearts.
 
 ## Sermon Outline
-Sermon Outline (9:30am)
+(9:30am)
 
 1. “Selling” Jesus
 2. Following Jesus
 3. The Messiah King
 4. The Suffering King
 5. Saving and losing life
-6. Following, denying, suffering, 
+6. Following, denying, suffering
+
+(4:30pm)
+
+Clothes maketh A Man
+
+Dress like Jesus 
+
+Compassion 
+Kindness 
+Humility 
+Gentleness 
+Patience 
+Forbearance and forgiveness 
+
 
 ## Q&A
 Got questions or comments? Send them [here](https://tinyurl.com/SGHACQuestionsAnswers)
