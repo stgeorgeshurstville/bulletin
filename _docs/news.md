@@ -8,7 +8,6 @@ order: 5
 | Date | Event | Time |
 | ----- | ----- | ----- |
 | **SEPTEMBER** | 
-| SUN SEP 1 | Life Course #5 | 11am and 5:45pm |
 | SUN SEP 8 | Confirmation | 9:30am |
 | SAT SEP 14 | Prayer and Praise | Evening |
 | **OCTOBER** | 
