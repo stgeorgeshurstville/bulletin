@@ -10,7 +10,7 @@ title: Welcome
 [comment]: ----------------------------------------------------  
 
 ## Jesus is enough
-#### Jesus promised: I am with you always, to the close fo the age. Matthew 28.20 
+#### Jesus promised: I am with you always, to the very end of the age.
 ##### Matthew 28:20  
 
 
