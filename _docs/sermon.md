@@ -67,7 +67,7 @@ The Way of the Cross
 
 (4:30pm)
 
-Clothes maketh A Man
+### Clothes maketh A Man
 
 Dress like Jesus 
 
