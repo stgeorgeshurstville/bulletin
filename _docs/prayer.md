@@ -19,11 +19,8 @@ Help us to grow in holiness, not just as individuals, but as a community. May we
 
 
 ## Mission Related Prayer Points
-- **People Responsible/Presenting:**
-  - Sat 3pm Cantonese: Kevin Lee
-  - Sun 9:30am Cantonese: Kevin Lee?
-  - Sun 9:30am English: David Wong?
-  - Sun 11am Mandarin: Kai Xu
+- **Berkeley Life Centre:**
+  Heavenly Father, you are patient, not wanting anyone to perish but all to find eternal life. You have placed people in certain times and places so that they may find you. We know that Jesus is gentle and lowly and invites all to cast their burdens upon him. We pray that the people in Berkeley where many are from a low socioeconomic background, rely on public housing, face domestic violence and face all kinds of addictions will cast their burdens on Jesus and find their true treasure in him. Please sustain Rev. Wayne Pickford and the team as they lead the church to be a light and witness in their community. We pray for Wayne and the family as they come to terms with the recent diagnosis of Wayne’s Parkinson’s disease. May they have wisdom, patience and hope as they think about the future and await tests. May you keep sustaining and working through Berkeley Life Centre both now and into the future. We praise you for providing Samantha Trotter who is helping with the womens and children ministry. May there be more kids and families who come to be transformed by the gospel. May the Frozen Meals Ministry, Community BBQ and movie nights be an avenue for the church to care for those struggling and hear the good news. May Glenn, Inter Pastor, grow in his conviction, character and competence as he continues The Well Training Program and studies the Pentateuch. Please provide for the ministry financially. 
 - **People Movement** (and usher):
   - Sun 9:30-10:30am
     - 9:40am @ 9:30am English (David from 124 Forest Road to NewGen). 
