@@ -26,6 +26,7 @@ We thank you heavenly Father, for inspiring all Scripture by the Holy Spirit. He
 ### 9:30am: Mark 8:27-9:1 (NIV) 
 
 Peter Declares That Jesus Is the Messiah
+
 ²⁷ Jesus and his disciples went on to the villages around Caesarea Philippi. On the way he asked them, “Who do people say I am?”
 
 ²⁸ They replied, “Some say John the Baptist; others say Elijah; and still others, one of the prophets.”
@@ -56,9 +57,13 @@ The Way of the Cross
 
 ## Sermon Outline
 Sermon Outline (9:30am)
-- The power to change
-- Radical Surgery
-- Not at this address 
+
+1.      “Selling” Jesus
+2.      Following Jesus
+3.      The Messiah King
+4.      The Suffering King
+5.      Saving and losing life
+6.      Following, denying, suffering, 
 
 ## Q&A
 Got questions or comments? Send them [here](https://tinyurl.com/SGHACQuestionsAnswers)
