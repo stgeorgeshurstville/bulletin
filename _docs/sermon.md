@@ -23,22 +23,34 @@ order: 2
 We thank you heavenly Father, for inspiring all Scripture by the Holy Spirit. Help us by your Spirit so to hear your holy word that we may be equipped for every good work, through Jesus Christ our Lord. **Amen**.
 
 
-### 9:30am: Colossians 3:1-16 (NIV) 
-¹ Since, then, you have been raised with Christ, set your hearts on things above, where Christ is, seated at the right hand of God. ² Set your minds on things above, not on earthly things. ³ For you died, and your life is now hidden with Christ in God. ⁴ When Christ, who is your life, appears, then you also will appear with him in glory.
+### 9:30am: Mark 8:27-9:1 (NIV) 
 
-⁵ Put to death, therefore, whatever belongs to your earthly nature: sexual immorality, impurity, lust, evil desires and greed, which is idolatry. ⁶ Because of these, the wrath of God is coming. ⁷ You used to walk in these ways, in the life you once lived. ⁸ But now you must also rid yourselves of all such things as these: anger, rage, malice, slander, and filthy language from your lips. ⁹ Do not lie to each other, since you have taken off your old self with its practices ¹⁰ and have put on the new self, which is being renewed in knowledge in the image of its Creator. ¹¹ Here there is no Gentile or Jew, circumcised or uncircumcised, barbarian, Scythian, slave or free, but Christ is all, and is in all.
+Peter Declares That Jesus Is the Messiah
+²⁷ Jesus and his disciples went on to the villages around Caesarea Philippi. On the way he asked them, “Who do people say I am?”
 
+²⁸ They replied, “Some say John the Baptist; others say Elijah; and still others, one of the prophets.”
+
+²⁹ “But what about you?” he asked. “Who do you say I am?”
+
+Peter answered, “You are the Messiah.”
+
+³⁰ Jesus warned them not to tell anyone about him.
+
+Jesus Predicts His Death
+³¹ He then began to teach them that the Son of Man must suffer many things and be rejected by the elders, the chief priests and the teachers of the law, and that he must be killed and after three days rise again. ³² He spoke plainly about this, and Peter took him aside and began to rebuke him.
+
+³³ But when Jesus turned and looked at his disciples, he rebuked Peter. “Get behind me, Satan!” he said. “You do not have in mind the concerns of God, but merely human concerns.”
+
+The Way of the Cross
+³⁴ Then he called the crowd to him along with his disciples and said: “Whoever wants to be my disciple must deny themselves and take up their cross and follow me. ³⁵ For whoever wants to save their life will lose it, but whoever loses their life for me and for the gospel will save it. ³⁶ What good is it for someone to gain the whole world, yet forfeit their soul? ³⁷ Or what can anyone give in exchange for their soul? ³⁸ If anyone is ashamed of me and my words in this adulterous and sinful generation, the Son of Man will be ashamed of them when he comes in his Father’s glory with the holy angels.”
+
+9. And he said to them, “Truly I tell you, some who are standing here will not taste death before they see that the kingdom of God has come with power.”
+
+
+### 4pm: Colossians 3:12-16 (NIV) 
 ¹² Therefore, as God’s chosen people, holy and dearly loved, clothe yourselves with compassion, kindness, humility, gentleness and patience. ¹³ Bear with each other and forgive one another if any of you has a grievance against someone. Forgive as the Lord forgave you. ¹⁴ And over all these virtues put on love, which binds them all together in perfect unity.
 
 ¹⁵ Let the peace of Christ rule in your hearts, since as members of one body you were called to peace. And be thankful. ¹⁶ Let the message of Christ dwell among you richly as you teach and admonish one another with all wisdom through psalms, hymns, and songs from the Spirit, singing to God with gratitude in your hearts.
-
-### 4pm: Colossians 3:1-11 (NIV) 
-¹ Since, then, you have been raised with Christ, set your hearts on things above, where Christ is, seated at the right hand of God. ² Set your minds on things above, not on earthly things. ³ For you died, and your life is now hidden with Christ in God. ⁴ When Christ, who is your life, appears, then you also will appear with him in glory.
-
-⁵ Put to death, therefore, whatever belongs to your earthly nature: sexual immorality, impurity, lust, evil desires and greed, which is idolatry. ⁶ Because of these, the wrath of God is coming. ⁷ You used to walk in these ways, in the life you once lived. ⁸ But now you must also rid yourselves of all such things as these: anger, rage, malice, slander, and filthy language from your lips. ⁹ Do not lie to each other, since you have taken off your old self with its practices ¹⁰ and have put on the new self, which is being renewed in knowledge in the image of its Creator. ¹¹ Here there is no Gentile or Jew, circumcised or uncircumcised, barbarian, Scythian, slave or free, but Christ is all, and is in all. ³ Since, then, you have been raised with Christ, set your hearts on things above, where Christ is, seated at the right hand of God. ² Set your minds on things above, not on earthly things. ³ For you died, and your life is now hidden with Christ in God. ⁴ When Christ, who is your life, appears, then you also will appear with him in glory.
-
-⁵ Put to death, therefore, whatever belongs to your earthly nature: sexual immorality, impurity, lust, evil desires and greed, which is idolatry. ⁶ Because of these, the wrath of God is coming. ⁷ You used to walk in these ways, in the life you once lived. ⁸ But now you must also rid yourselves of all such things as these: anger, rage, malice, slander, and filthy language from your lips. ⁹ Do not lie to each other, since you have taken off your old self with its practices ¹⁰ and have put on the new self, which is being renewed in knowledge in the image of its Creator. ¹¹ Here there is no Gentile or Jew, circumcised or uncircumcised, barbarian, Scythian, slave or free, but Christ is all, and is in all.
-
 
 ## Sermon Outline
 Sermon Outline (9:30am)
