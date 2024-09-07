@@ -23,7 +23,6 @@ order: 5
 - **Rev. Alan Lam**
 - **MTS Recruit Conference**: “How can I serve God more in gospel work? Am I suitable for full-time ministry?” If these are some of your questions, why not come to MTS Recruit 2024 conference. When: Fri 4th- Mon 7th Oct (rego closes 27 Sept)Where: Katoomba. Registration [here](https://mtsrecruit.com/katoomba/). If you are open to full-time ministry, please feel free to talk to Pastor Elvin, or the Pastors of your congregation about this.
 - **Sing!** Prayer and praise night afternoon 14 September 2024. 
-- **Women Event**.  
 
 - **Growing in Our Welcoming**
   
