@@ -37,11 +37,13 @@ Peter answered, “You are the Messiah.”
 ³⁰ Jesus warned them not to tell anyone about him.
 
 Jesus Predicts His Death
+
 ³¹ He then began to teach them that the Son of Man must suffer many things and be rejected by the elders, the chief priests and the teachers of the law, and that he must be killed and after three days rise again. ³² He spoke plainly about this, and Peter took him aside and began to rebuke him.
 
 ³³ But when Jesus turned and looked at his disciples, he rebuked Peter. “Get behind me, Satan!” he said. “You do not have in mind the concerns of God, but merely human concerns.”
 
 The Way of the Cross
+
 ³⁴ Then he called the crowd to him along with his disciples and said: “Whoever wants to be my disciple must deny themselves and take up their cross and follow me. ³⁵ For whoever wants to save their life will lose it, but whoever loses their life for me and for the gospel will save it. ³⁶ What good is it for someone to gain the whole world, yet forfeit their soul? ³⁷ Or what can anyone give in exchange for their soul? ³⁸ If anyone is ashamed of me and my words in this adulterous and sinful generation, the Son of Man will be ashamed of them when he comes in his Father’s glory with the holy angels.”
 
 9. And he said to them, “Truly I tell you, some who are standing here will not taste death before they see that the kingdom of God has come with power.”
