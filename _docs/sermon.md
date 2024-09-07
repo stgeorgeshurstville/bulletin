@@ -71,12 +71,12 @@ Clothes maketh A Man
 
 Dress like Jesus 
 
-Compassion 
-Kindness 
-Humility 
-Gentleness 
-Patience 
-Forbearance and forgiveness 
+- Compassion 
+- Kindness 
+- Humility 
+- Gentleness 
+- Patience 
+- Forbearance and forgiveness 
 
 
 ## Q&A
