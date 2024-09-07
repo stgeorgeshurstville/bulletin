@@ -58,12 +58,12 @@ The Way of the Cross
 ## Sermon Outline
 Sermon Outline (9:30am)
 
-1.      “Selling” Jesus
-2.      Following Jesus
-3.      The Messiah King
-4.      The Suffering King
-5.      Saving and losing life
-6.      Following, denying, suffering, 
+1. “Selling” Jesus
+2. Following Jesus
+3. The Messiah King
+4. The Suffering King
+5. Saving and losing life
+6. Following, denying, suffering, 
 
 ## Q&A
 Got questions or comments? Send them [here](https://tinyurl.com/SGHACQuestionsAnswers)
