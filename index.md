@@ -10,8 +10,8 @@ title: Welcome
 [comment]: ----------------------------------------------------  
 
 ## Jesus is enough
-#### Let the hearts of those who seek the Lord rejoice. Seek the Lord and his strength, seek his presence continually. 
-##### Psalm 105.3-4 
+#### Jesus promised: I am with you always, to the close fo the age. Matthew 28.20 
+##### Matthew 28:20  
 
 
 ---
