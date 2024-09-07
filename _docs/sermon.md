@@ -20,7 +20,7 @@ order: 2
 ## Bible Reading
 
 ### Prayer
-Dear God, help us trust your word, understand it, and act on it. Through Jesus Christ, our Lord. **Amen**.
+We thank you heavenly Father, for inspiring all Scripture by the Holy Spirit. Help us by your Spirit so to hear your holy word that we may be equipped for every good work, through Jesus Christ our Lord. **Amen**.
 
 
 ### 9:30am: Colossians 3:1-16 (NIV) 
