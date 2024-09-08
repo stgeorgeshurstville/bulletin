@@ -65,7 +65,7 @@ The Way of the Cross
 5. Saving and losing life
 6. Following, denying, suffering
 
-(4:30pm)
+(4pm)
 
 ### Clothes maketh A Man
 
