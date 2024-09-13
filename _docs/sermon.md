@@ -39,7 +39,7 @@ Instructions for Christian Households
 
 ²² Slaves, obey your earthly masters in everything; and do it, not only when their eye is on you and to curry their favour, but with sincerity of heart and reverence for the Lord. ²³ Whatever you do, work at it with all your heart, as working for the Lord, not for human masters, ²⁴ since you know that you will receive an inheritance from the Lord as a reward. It is the Lord Christ you are serving. ²⁵ Anyone who does wrong will be repaid for their wrongs, and there is no favouritism.
 
-4 Masters, provide your slaves with what is right and fair, because you know that you also have a Master in heaven.
+4. Masters, provide your slaves with what is right and fair, because you know that you also have a Master in heaven.
 
 
 ## Sermon Outline
