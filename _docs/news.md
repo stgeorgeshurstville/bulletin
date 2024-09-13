@@ -8,7 +8,6 @@ order: 5
 | Date | Event | Time |
 | ----- | ----- | ----- |
 | **SEPTEMBER** | 
-| SUN SEP 8 | Confirmation | 9:30am |
 | SAT SEP 14 | Prayer and Praise | 7-9pm |
 | **OCTOBER** | 
 | SUN OCT 27 | Baptism Course #1 | 11am and 5:45pm |
@@ -21,7 +20,6 @@ order: 5
 
 
 ## General
-- **Rev. Alan Lam**
 - **MTS Recruit Conference**: “How can I serve God more in gospel work? Am I suitable for full-time ministry?” If these are some of your questions, why not come to MTS Recruit 2024 conference. If you are open to full-time ministry, please feel free to talk to Pastor Elvin, or the Pastors of your congregation about this.
   - When: Fri 4th- Mon 7th Oct (rego closes 27 Sept)
   - Where: Katoomba. Registration [here](https://mtsrecruit.com/katoomba/).
