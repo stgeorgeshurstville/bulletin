@@ -10,8 +10,8 @@ title: Welcome
 [comment]: ----------------------------------------------------  
 
 ## Jesus is enough
-#### Jesus promised: I am with you always, to the very end of the age.
-##### Matthew 28:20  
+#### Thus says the Lord: There is no other god besides me, a righteous God and Saviour, turn to me and be saved, all the ends of the earth. 
+##### Isaiah 45:21,22
 
 
 ---
