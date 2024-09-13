@@ -11,7 +11,7 @@ title: Welcome
 
 ## Jesus is enough
 #### Thus says the Lord: There is no other god besides me, a righteous God and Saviour, turn to me and be saved, all the ends of the earth. 
-##### Isaiah 45:21,22
+##### Isaiah 45:21-22
 
 
 ---
