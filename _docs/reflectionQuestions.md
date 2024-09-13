@@ -5,19 +5,30 @@ order: 7
 
 ### Key Idea
  (9:30am) 
-Big Idea: The Gospel is the power for people to change.
+Big Idea: Bloom where you are planted. 
 
 ### Reflection questions
-Reflection Questions
-1. Please share how you have tried to live out last week’s passage? 
+1. How has last week’s passage changed you this week? 
 
-2. ‘Christianity is about what to do and what not to do.’ Discuss. 
+2. Please read Col 3:17-25. 
+This looks like a list of dos and don’ts. What might be the problem if this is how we read it? 
+- Why is it more than just a list of dos and don’ts? 
+- If it’s not just a list of dos and don’ts, what is it? 
+- What does it mean to bloom where we are planted? 
 
-3. Please read 3:1-4. Why does Paul begin a list of dos and dont with this? Why is the Gospel the power to change? Why can’t dos and don’t change us? 
+3. How do we bloom as:
 
-4. Please read 3:5-14. What is the new you to get rid of? What are they? Which one do you struggle to get rid? What is the new you to put on instead? Which one do you struggle with? 
+- Wives
+- Husbands
+- Children 
+- Fathers 
+- Slaves 
+- Masters 
+ 
+What happens when we fail or feel like we’ve failed? What difference does Jesus make? 
 
-5. Picture a mature church, family, you. What does this look like? How might the Gospel help you to get there? 
+4. What might your family and work life look like if we were to bloom where we’re planted? 
+
 
 
 
