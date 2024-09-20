@@ -10,8 +10,8 @@ title: Welcome
 [comment]: ----------------------------------------------------  
 
 ## Jesus is enough
-#### Thus says the Lord: There is no other god besides me, a righteous God and Saviour, turn to me and be saved, all the ends of the earth. 
-##### Isaiah 45:21-22
+#### Hear, O Lord, when I cry aloud, be gracious to me and answer me. Cast me not off, forsake me not, God of my salvation. 
+##### Psalm 27:7-9
 
 
 ---
