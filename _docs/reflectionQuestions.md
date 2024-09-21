@@ -16,23 +16,16 @@ What does your prayer life reflect about your understanding of and relationship 
 - Do you find prayer easy or hard? If it were hard, what makes it hard?
 - Why might Paul be asking for prayer for open doors and clear speech?  
 
-This looks like a list of dos and don’ts. What might be the problem if this is how we read it? 
-- Why is it more than just a list of dos and don’ts? 
-- If it’s not just a list of dos and don’ts, what is it? 
-- What does it mean to bloom where we are planted? 
+3. Please read Col 4:5,6.
+- What might it mean to live wisely to outsiders? 
+- What is gracious and salty speech? 
+- How is it not just a means to an end? Or it it? If not then what is it? 
+- Can you think of a recent example when an outsider asks you about your wise living? 
 
-3. How do we bloom as:
+Can you think of how you might let your speech be full of Jesus - think of a situation of your life - at time, work/school, eating out; think of a subject of conversation - current news?
+Might be helpful to remind yourselves of San Chan’s concentric circles of spiritual conversation https://au.thegospelcoalition.org/article/spiritual-conversations/  
 
-- Wives
-- Husbands
-- Children 
-- Fathers 
-- Slaves 
-- Masters 
- 
-What happens when we fail or feel like we’ve failed? What difference does Jesus make? 
 
-4. What might your family and work life look like if we were to bloom where we’re planted? 
 
 
 
