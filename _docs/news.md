@@ -7,8 +7,6 @@ order: 5
 
 | Date | Event | Time |
 | ----- | ----- | ----- |
-| **SEPTEMBER** | 
-| SAT SEP 14 | Prayer and Praise | 7-9pm |
 | **OCTOBER** | 
 | SUN OCT 27 | Baptism Course #1 | 11am and 5:45pm |
 | FRI 4th - MON 7th Oct | MTS Recruit 2024 conference | |
