@@ -26,9 +26,7 @@ Can you think of how you might let your speech be full of Jesus - think of a sit
 Might be helpful to remind yourselves of San Chan’s concentric circles of spiritual conversation https://au.thegospelcoalition.org/article/spiritual-conversations/  
 
 4. Consider committing to the 5 days of prayer, and sharing progress at d-group (if any). 
-
-
-
+![upload]([https://github.com/stgeorgeshurstville/bulletin/assets/119166299/148ee660-ee69-46d7-bbc8-139ef05558f8](https://github.com/stgeorgeshurstville/bulletin/blob/main/images/WhatsApp%20Image%202024-09-21%20at%2017.21.10.jpeg))
 
 
 ![upload](https://github.com/stgeorgeshurstville/bulletin/assets/119166299/148ee660-ee69-46d7-bbc8-139ef05558f8)
