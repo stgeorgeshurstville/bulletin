@@ -24,6 +24,11 @@ order: 5
 
 - **NewGen**: NewGen will be on break in the School Holidays: Everyone, young and old, are welcomed to join the All Generations Services at 9:30 English, 11am Mandarin and 4pm Mandarin on 29/9, 6/10 and 13/10. 
 
+- **Nepal**: Brian and Bijaya are going to Nepal in October/November.
+  
+- **Farewell**: The church will say ‘thank you’ and ‘we’ll miss you’ at a pot-luck lunch for the Lams (bring food for yourselves and some to share with others) on 13 October (in the Church Hall) at 12pm. You will be able to speak as well, if you wish. 
+  
+
 - **Growing in Our Welcoming**
   
   <img width="236" alt="Screenshot 2023-07-01 134203" src="https://github.com/stgeorgeshurstville/bulletin/assets/119166299/b540ac1c-0ba4-481e-90a5-5464939f7e4c">
