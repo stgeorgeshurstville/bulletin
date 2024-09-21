@@ -20,36 +20,30 @@ order: 2
 ## Bible Reading
 
 ### Prayer
-We thank you heavenly Father, for inspiring all Scripture by the Holy Spirit. Help us by your Spirit so to hear your holy word that we may be equipped for every good work, through Jesus Christ our Lord. **Amen**.
+Thank you Father for making yourself known to us, showing us the way of salvation through faith in your Son. We ask you now to teach us through your word, so that we may be ready to serve you, for the glory of our Lord Jesus Christ. **Amen**.
 
 
-### Colossians 3:17-4:1 (NIV) 
+### Colossians 4:2-18 (NIV) 
 
-¹⁷ And whatever you do, whether in word or deed, do it all in the name of the Lord Jesus, giving thanks to God the Father through him.
+² Devote yourselves to prayer, being watchful and thankful. ³ And pray for us, too, that God may open a door for our message, so that we may proclaim the mystery of Christ, for which I am in chains. ⁴ Pray that I may proclaim it clearly, as I should. ⁵ Be wise in the way you act toward outsiders; make the most of every opportunity. ⁶ Let your conversation be always full of grace, seasoned with salt, so that you may know how to answer everyone.
 
-Instructions for Christian Households
+Final Greetings
+⁷ Tychicus will tell you all the news about me. He is a dear brother, a faithful minister and fellow servant in the Lord. ⁸ I am sending him to you for the express purpose that you may know about our circumstances and that he may encourage your hearts. ⁹ He is coming with Onesimus, our faithful and dear brother, who is one of you. They will tell you everything that is happening here.
 
-¹⁸ Wives, submit yourselves to your husbands, as is fitting in the Lord.
+¹⁰ My fellow prisoner Aristarchus sends you his greetings, as does Mark, the cousin of Barnabas. (You have received instructions about him; if he comes to you, welcome him.) ¹¹ Jesus, who is called Justus, also sends greetings. These are the only Jews among my co-workers for the kingdom of God, and they have proved a comfort to me. ¹² Epaphras, who is one of you and a servant of Christ Jesus, sends greetings. He is always wrestling in prayer for you, that you may stand firm in all the will of God, mature and fully assured. ¹³ I vouch for him that he is working hard for you and for those at Laodicea and Hierapolis. ¹⁴ Our dear friend Luke, the doctor, and Demas send greetings. ¹⁵ Give my greetings to the brothers and sisters at Laodicea, and to Nympha and the church in her house.
 
-¹⁹ Husbands, love your wives and do not be harsh with them.
+¹⁶ After this letter has been read to you, see that it is also read in the church of the Laodiceans and that you in turn read the letter from Laodicea.
 
-²⁰ Children, obey your parents in everything, for this pleases the Lord.
+¹⁷ Tell Archippus: “See to it that you complete the ministry you have received in the Lord.”
 
-²¹ Fathers, do not embitter your children, or they will become discouraged.
-
-²² Slaves, obey your earthly masters in everything; and do it, not only when their eye is on you and to curry their favour, but with sincerity of heart and reverence for the Lord. ²³ Whatever you do, work at it with all your heart, as working for the Lord, not for human masters, ²⁴ since you know that you will receive an inheritance from the Lord as a reward. It is the Lord Christ you are serving. ²⁵ Anyone who does wrong will be repaid for their wrongs, and there is no favouritism.
-
-4. Masters, provide your slaves with what is right and fair, because you know that you also have a Master in heaven.
+¹⁸ I, Paul, write this greeting in my own hand. Remember my chains. Grace be with you.
 
 
 ## Sermon Outline
-### Please the Lord in everything
+### Jesus is...
 
-- Sabbath 
-- Spiritual abuse 
-- Christian marriages 
-- Christian families 
-- Christian slaves and masters 
+- We pray 
+- We live wisely
 - Conclusions 
 
 ## Q&A
