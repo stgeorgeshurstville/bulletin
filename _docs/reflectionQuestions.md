@@ -12,9 +12,9 @@ Big Idea: Let prayerfulness and wise living character you.
 
 2. Please read Col 4:2-4. 
 What does your prayer life reflect about your understanding of and relationship with Jesus?
--How are the Colossians to pray? 
--Do you find prayer easy or hard? If it were hard, what makes it hard?
--Why might Paul be asking for prayer for open doors and clear speech?  
+- How are the Colossians to pray? 
+- Do you find prayer easy or hard? If it were hard, what makes it hard?
+- Why might Paul be asking for prayer for open doors and clear speech?  
 
 This looks like a list of dos and don’ts. What might be the problem if this is how we read it? 
 - Why is it more than just a list of dos and don’ts? 
