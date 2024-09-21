@@ -7,7 +7,12 @@ order: 5
 
 | Date | Event | Time |
 | ----- | ----- | ----- |
+| **SEPTEMBER** | 
+| SUN SEPT 29 | All Generations Services | 9:30am English, 11am Mandarin, 4pm Mandarin |
 | **OCTOBER** | 
+| SUN OCT 6 | All Generations Services | 9:30am English, 11am Mandarin, 4pm Mandarin |
+| SUN OCT 13 | Farewell Potluck Dinner | 12pm |
+| SUN OCT 13 | All Generations Services| 9:30am English, 11am Mandarin, 4pm Mandarin |
 | SUN OCT 27 | Baptism Course #1 | 11am and 5:45pm |
 | FRI 4th - MON 7th Oct | MTS Recruit 2024 conference | |
 | **NOVEMBER** | 
