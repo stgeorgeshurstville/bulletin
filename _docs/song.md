@@ -4,14 +4,14 @@ order: 1
 ---
 
 ## 9:30am 
-1. The Lord is Near
-2. Trust and Obey
-3. May the Mind of Christ
-4. Give Thanks
+1. Great is the Lord and Most Worthy of Praise
+2. May We all be Filled
+3. Hear Our Prayer
+4. Let Your Kingdom come
    
 ## 4pm 
-1. Jerusalem
-2. Jesus Strong and Kind
+1. It Was Finished Upon That Cross
+2. We Belong To The Day
 3. Surrender All
 4. Water Without Price
 
