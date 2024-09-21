@@ -31,7 +31,6 @@ Might be helpful to remind yourselves of San Chan’s concentric circles of spir
 
 
 
-
 ![upload](https://github.com/stgeorgeshurstville/bulletin/assets/119166299/148ee660-ee69-46d7-bbc8-139ef05558f8)
 
 
