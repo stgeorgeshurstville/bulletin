@@ -25,6 +25,7 @@ What does your prayer life reflect about your understanding of and relationship 
 Can you think of how you might let your speech be full of Jesus - think of a situation of your life - at time, work/school, eating out; think of a subject of conversation - current news?
 Might be helpful to remind yourselves of San Chan’s concentric circles of spiritual conversation https://au.thegospelcoalition.org/article/spiritual-conversations/  
 
+4. Consider committing to the 5 days of prayer, and sharing progress at d-group (if any). 
 
 
 
