@@ -22,7 +22,6 @@ order: 2
 ### Prayer
 Thank you Father for making yourself known to us, showing us the way of salvation through faith in your Son. We ask you now to teach us through your word, so that we may be ready to serve you, for the glory of our Lord Jesus Christ. **Amen**.
 
-
 ### Colossians 4:2-18 (NIV) 
 
 ² Devote yourselves to prayer, being watchful and thankful. ³ And pray for us, too, that God may open a door for our message, so that we may proclaim the mystery of Christ, for which I am in chains. ⁴ Pray that I may proclaim it clearly, as I should. ⁵ Be wise in the way you act toward outsiders; make the most of every opportunity. ⁶ Let your conversation be always full of grace, seasoned with salt, so that you may know how to answer everyone.
@@ -40,11 +39,12 @@ Final Greetings
 
 
 ## Sermon Outline
-### Jesus is...
+### Money in church family life
 
-- We pray 
-- We live wisely
-- Conclusions 
+- Let OUR light shine
+- Attack
+- Antidote
+- Action 
 
 ## Q&A
 Got questions or comments? Send them [here](https://tinyurl.com/SGHACQuestionsAnswers)
