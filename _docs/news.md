@@ -9,9 +9,11 @@ order: 5
 | ----- | ----- | ----- |
 | **SEPTEMBER** | 
 | SUN SEPT 29 | All Generations Services | 9:30am English, 11am Mandarin, 4pm Mandarin |
+| SUN SEPT 29 | Discipleship Groups | The last day of this term is Sun the 29th of Sep. Term 4 starts on the week of Mon 21st of Oct. Some groups may operate differently so please confirm with your leader about what’s happening. 
+ |
 | **OCTOBER** | 
 | SUN OCT 6 | All Generations Services | 9:30am English, 11am Mandarin, 4pm Mandarin |
-| SUN OCT 13 | Farewell Potluck Dinner | 12pm |
+| SUN OCT 13 | Lam Farewell Potluck Dinner | 12pm |
 | SUN OCT 13 | All Generations Services| 9:30am English, 11am Mandarin, 4pm Mandarin |
 | SUN OCT 27 | Baptism Course #1 | 11am and 5:45pm |
 | FRI 4th - MON 7th Oct | MTS Recruit 2024 conference | |
@@ -27,11 +29,11 @@ order: 5
   - When: Fri 4th- Mon 7th Oct (rego closes 27 Sept)
   - Where: Katoomba. Registration [here](https://mtsrecruit.com/katoomba/).
 
-- **NewGen**: NewGen will be on break in the School Holidays: Everyone, young and old, are welcomed to join the All Generations Services at 9:30 English, 11am Mandarin and 4pm Mandarin on 29/9, 6/10 and 13/10. 
+- **Discipleship Groups**: The last day of this term is Sun the 29th of Sep. Term 4 starts on the week of Mon 21st of Oct. Some groups may operate differently so please confirm with your leader about what’s happening. 
 
-- **Nepal**: Brian and Bijaya are going to Nepal in October/November.
+- **NewGen**: NewGen will be on break in the School Holidays. Everyone, young and old, are welcomed to join the All Generations Services at 9:30 English, 11am Mandarin and 4pm Mandarin on 29/9, 6/10 and 13/10. There won’t be creche. 
   
-- **Farewell**: The church will say ‘thank you’ and ‘we’ll miss you’ at a pot-luck lunch for the Lams (bring food for yourselves and some to share with others) on 13 October (in the Church Hall) at 12pm. You will be able to speak as well, if you wish. 
+- **Lam Farewell**: The church will say ‘thank you’ and ‘we’ll miss you’ at a pot-luck lunch for the Lams (bring food for yourselves and some to share with others) on 13 October (in the Church Hall) at 12pm. You will be able to speak as well, if you wish.
   
 
 - **Growing in Our Welcoming**
