@@ -5,30 +5,27 @@ order: 7
 
 ### Key Idea
  (9:30am) 
-Big Idea: Let prayerfulness and wise living character you. 
+Big Idea: God’s love means we can love him rather than money. 
 
 ### Reflection questions
 1. How has last week’s passage changed you this week? 
 
-2. Please read Col 4:2-4. 
+
 What does your prayer life reflect about your understanding of and relationship with Jesus?
 - How are the Colossians to pray? 
 - Do you find prayer easy or hard? If it were hard, what makes it hard?
-- Why might Paul be asking for prayer for open doors and clear speech?  
+- Why might Paul be asking for prayer for open doors and clear speech?
 
-3. Please read Col 4:5,6.
-- What might it mean to live wisely to outsiders? 
-- What is gracious and salty speech? 
-- How is it not just a means to an end? Or it it? If not then what is it? 
-- Can you think of a recent example when an outsider asks you about your wise living? 
-
-Can you think of how you might let your speech be full of Jesus - think of a situation of your life - at time, work/school, eating out; think of a subject of conversation - current news?
-Might be helpful to remind yourselves of San Chan’s concentric circles of spiritual conversation [here](https://au.thegospelcoalition.org/article/spiritual-conversations/)
-
-  <img width="236" alt="Screenshot 2023-07-01 134203" src="https://raw.githubusercontent.com/stgeorgeshurstville/bulletin/refs/heads/main/images/WhatsApp%20Image%202024-09-21%20at%2017.27.29.jpeg">
-
-4. Consider committing to the 5 days of prayer, and sharing progress at d-group (if any). 
-![upload](https://raw.githubusercontent.com/stgeorgeshurstville/bulletin/refs/heads/main/images/WhatsApp%20Image%202024-09-21%20at%2017.21.10.jpeg)
+1. Money is my idol. Rate 1-10 (where 1 is no and 10 is yes). 
+2. I am wealthy. Rate 1-10 (where 1 is no and 10 is yes). 
+3. I am content. Rate 1-10 (where 1 is no and 10 is yes).
+4. I am generous. Rate 1-10 (where 1 is no and 10 is yes). 
+5. I am a good role model for how to use money. Rate 1-10 (where 1 is no and 10 is yes).
+6. How much do I spend on things and what proportion of this is for the gospel? 
+7. How can I be more faithful and generous? 
+8. How does taking hold of eternal life (1 Timothy 6:12) help us to not love money? 
+9. What areas do we need to grow in regarding how we steward money? 
+10.  How can we help our family and children to steward money well?  
 
 
 
