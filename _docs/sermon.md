@@ -30,6 +30,7 @@ Thank you Father for making yourself known to us, showing us the way of salvatio
 
 ### 1 Timothy 6:6-10, 17-19 (NIV) (9:30am)
 **False Teachers and the Love of Money** 
+
 ⁶ But godliness with contentment is great gain. ⁷ For we brought nothing into the world, and we can take nothing out of it. ⁸ But if we have food and clothing, we will be content with that. ⁹ Those who want to get rich fall into temptation and a trap and into many foolish and harmful desires that plunge people into ruin and destruction. ¹⁰ For the love of money is a root of all kinds of evil. Some people, eager for money, have wandered from the faith and pierced themselves with many griefs.
 
 **Final Charge to Timothy** 
