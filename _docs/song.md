@@ -4,15 +4,15 @@ order: 1
 ---
 
 ## 9:30am 
-1. Great is the Lord and Most Worthy of Praise
-2. May We all be Filled
-3. Hear Our Prayer
-4. Let Your Kingdom come
+1. Lord I Lift Your Name On High
+2. Jesus Strong & Kind
+3. Be Thou My Vision
+4. I Am Not My Own
    
 ## 4pm 
-1. It Was Finished Upon That Cross
-2. We Belong To The Day
-3. Surrender All
-4. Water Without Price
+1. Christ Our Hope In Life And Death
+2. Only a Holy God
+3. Rock of ages
+4. When I Survey the Wonderous Cross
 
 Check out the church spotify playlist [here](https://open.spotify.com/playlist/3gh0ZKXkJBDbNEnZqJJDXj?si=0908aa3f87544643)
