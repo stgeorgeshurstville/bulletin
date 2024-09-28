@@ -5,14 +5,15 @@ order: 4
 
 ## Sunday Prayer Points
 
-- **Collect**: Lord, we pray that your grace may always uphold and encourage us, and make us continually to be given to all good works; through Jesus Christ our Lord. Amen.
-
+- **Collect**: Lord, give your people grace to withstand the temptations of the world, the flesh, and the devil, and with pure hearts and minds to follow you the only God; through Jesus Christ our Lord. Amen.
 
 - **Vision 2024 - Secure Attachment to Jesus**: Dear God, our loving and kind Father, you are full of grace and patience, and you always love us. You are holy and fair, but you never turn away from those who look for you. We feel safe and comforted with you, our God. We trust you with our lives and know your love never fails. As we come to you through Jesus, we ask for your mercy and help with everything we need. Let your Spirit work in us to grow love, joy, peace, patience, kindness, goodness, faithfulness, gentleness, and self-control. In Jesus' name, we pray. Amen.
 
-- **Growing Out**: Our gracious Father, thank you that the Gospel is the power of salvation to all people. Thank you that even now the just has the Gospel has come to us, it is bearing fruit and growing throughout the whole world. We pray that many in our generation will hear and truly understand you grace. Please help us to be godly in life, resilient in ministry, servant-hearted, Biblical in life, thought and ministry, and able to love and minister faithfully, compassionately and effectively in different and changing contexts, cooperating with one another, humble, wise, prayerful, reflective, energetic and effective. Please help us to take our faith in Jesus beyond the walls of the church into our workplace, school, where we live and where we holiday. Please help us to have a compassion for the lost like Jesus. Please help us to be willing to go into the world, to be interested in the lives of people we meet. Please give us opportunities to represent Jesus and to speak of Him. Please give us the words to say. Please save our neighbours through us.
+- **Mission**: Our gracious Father, thank you for the privilege of calling us to join in your mission. Thank you that under you what we do makes a difference in the world. We pray therefore that you will save those around us and to transform them into the likeness of Jesus. Please use us to make disciples of the nations, love our neighbours. Please Father, glorify yourself, through our labour in your Son. We pray that we will not be consumers but contributors to the ministries that you have called us to. 
 
-- **Sermon**: Think of 5 people who need to know Jesus by name. Pray for them- pray for open doors, wise speech and right words that point to Jesus, God’s mercy - he will open minds blinded by the god of this age, and be able to see the light of the gospel that displays the glory of Christ. 2 Corinthians 4
+- **Sermon (9:30am)**: We are sorry for when we are not happy with you or what you give us. Thank you for Jesus who gave us life. May we use the money you give us to help others and point to you. May we use money differently from non Christians. Amen. 
+
+- **Sermon (4:00pm)**: We are sorry for when we fall into temptation and the traps of Satan. We are sorry for when we are discontent with you or what we have (or don’t have). We praise you for Jesus who though he was rich became poor so that through his poverty we may become rich. Help us to understand all the spiritual blessings we have in Christ. May these truths be a model and motivation for how we use our money. May how we think and use money glorify you, bring about good and turn heads as it’ll be so different to how other people deal with money. Amen. 
 
 ## Weekly Prayer Points
 - **Other prayer points can be found [here](https://stgeorgeshurstville.org.au/prayer)** 
