@@ -16,7 +16,7 @@ Big Idea: God’s love means we can love him rather than money.
 6. How much do I spend on things and what proportion of this is for the gospel? 
 7. How can I be more faithful and generous? 
 8. How does taking hold of eternal life (1 Timothy 6:12) help us to not love money? 
-9. What areas do we need to grow in regarding how we steward money? 
+9. What areas do we need to grow in regarding how we steward money?
 10. How can we help our family and children to steward money well?  
 
 
