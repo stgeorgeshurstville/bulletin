@@ -9,8 +9,7 @@ order: 5
 | ----- | ----- | ----- |
 | **SEPTEMBER** | 
 | SUN SEPT 29 | All Generations Services | 9:30am English, 11am Mandarin, 4pm Mandarin |
-| SUN SEPT 29 | Discipleship Groups | The last day of this term is Sun the 29th of Sep. Term 4 starts on the week of Mon 21st of Oct. Some groups may operate differently so please confirm with your leader about what’s happening. 
- |
+| SUN SEPT 29 | Discipleship Groups | The last day of this term is Sun the 29th of Sep. Term 4 starts on the week of Mon 21st of Oct. Some groups may operate differently so please confirm with your leader about what’s happening. |
 | **OCTOBER** | 
 | SUN OCT 6 | All Generations Services | 9:30am English, 11am Mandarin, 4pm Mandarin |
 | SUN OCT 13 | Lam Farewell Potluck Dinner | 12pm |
