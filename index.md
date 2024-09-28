@@ -9,9 +9,9 @@ title: Welcome
 [comment]: ##### "where the sentence came from, e.g. Psalm 1:1"  
 [comment]: ----------------------------------------------------  
 
-## Jesus is enough
-#### Hear, O Lord, when I cry aloud, be gracious to me and answer me. Cast me not off, forsake me not, God of my salvation. 
-##### Psalm 27:7-9
+## Let our light shine
+#### We have thought on your steadfast love, O God, in the midst of your temple. As your name, so your praise reaches to the end of the earth. Your right hand is filled with victory. 
+##### Psalm 48.9-10 
 
 
 ---
