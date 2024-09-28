@@ -8,14 +8,6 @@ order: 7
 Big Idea: God’s love means we can love him rather than money. 
 
 ### Reflection questions
-1. How has last week’s passage changed you this week? 
-
-
-What does your prayer life reflect about your understanding of and relationship with Jesus?
-- How are the Colossians to pray? 
-- Do you find prayer easy or hard? If it were hard, what makes it hard?
-- Why might Paul be asking for prayer for open doors and clear speech?
-
 1. Money is my idol. Rate 1-10 (where 1 is no and 10 is yes). 
 2. I am wealthy. Rate 1-10 (where 1 is no and 10 is yes). 
 3. I am content. Rate 1-10 (where 1 is no and 10 is yes).
@@ -25,7 +17,7 @@ What does your prayer life reflect about your understanding of and relationship 
 7. How can I be more faithful and generous? 
 8. How does taking hold of eternal life (1 Timothy 6:12) help us to not love money? 
 9. What areas do we need to grow in regarding how we steward money? 
-10.  How can we help our family and children to steward money well?  
+10. How can we help our family and children to steward money well?  
 
 
 
