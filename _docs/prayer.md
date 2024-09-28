@@ -18,7 +18,6 @@ order: 4
 ## Weekly Prayer Points
 - **Other prayer points can be found [here](https://stgeorgeshurstville.org.au/prayer)** 
 
-
 ## Mission Related Prayer Points
 - **Moore College:** We thank you for providing stewards to equip your saints for the work of ministry. Thank you for using Moore Theological College to encourage Christians to be more like Jesus and proclaim Him in Sydney and the world. Keep the board, faculty and students godly, prayerful and other people centred. You can find more prayer points here: https://moore.edu.au/support-moore/prayer-points/. 
 
@@ -30,20 +29,7 @@ order: 4
 
 
 ## Regular Prayer Points
-- **Hurstville:** We pray that the 30,000 people in Hurstville, with many from different cultures and countries, will come to know Jesus as their Lord and Saviour. May we have a heart for the people you have placed around us. May we be lights in our neighbourhood which is in darkness and filled with anxiety and uncertainty. May we be mindful of the changing demographics and seek to share the gospel with them. 
-
-- **Discipleship Groups:** Pray that the seed of God’s word will be planted and watered. Help us to have a secure attachment to Jesus especially as we look at Colossians. 
-
-- **Pastoral Care Team:** Father, you are gently and lowly. You sent your Son to heal the brokenhearted. May we cast our burdens and anxieties upon you knowing that you can sympathise with our weaknesses and care for us. May the peace of God sustain us as we bear the hope of the gospel, point people to heaven and carry each other’s burdens. 
-
-- **People with Disabilities:** Thank you that all people are made in your image. We pray for those with disabilities that they would know their true value as your image-bearer. We pray that your love in Jesus will heal them of their experience and rejection and pain. We pray that they will know of Jesus’ sufficiency in their experience of chronic pain and suffering, that they will learn to form healthy relationships. We pray for forgiveness for the ways that we have often treated people with disabilities. Please help us to be like Jesus in welcoming those with disabilities into our church and lives. Please open our eyes to see them as whole human beings. Please help us to learn from those with disabilities as well as minister to them. We pray that by our love for one another, the world may see you. We look forward to the day when Jesus returns, when we will be given Resurrection bodies. Amen.
-
-- **Support Ministries:** Everlasting God, we give thanks for the many volunteers who have been faithfully serving in different ministries at church especially in this challenging period of time. Please strengthen and sustain them with patience and understanding that they may love and care for your people. Please grant that together they may follow and help others to follow Jesus Christ. May they offer their given gifts and talents to build up the church which is the body of Christ. We ask this for the communication, vestry, cleaning, flower, bulletin, meals, AV, sound, technology and other teams.
-
-- **New Life Nepalese Church:** We thank you for our Nepalese brothers and sisters who share our building. May they grow in their knowledge of your love for them and continue to speak the truth in love to their community. We pray that through their ministry, many more Nepalese would come to serve the Lord Jesus Christ.
-
-- **Singles, Widows and Orphans:** We praise you, God of love and the creator of the universe, for making us male and female, and giving us the gift of each other. We pray for those who, like our Lord Jesus Christ, are unmarried; either by external factors, their own decision and/or devotion to you. Lord, we praise you for the new family you have created, the household of all who believe in your Son. Father, help us to love one another in deep and meaningful friendships that no one may feel alone or without the joy of companionship. Deepen our trust in your provision for all our needs so that we may live in contentment until we all come to your eternal kingdom; through Jesus Christ our Lord.
-
+- **Volunteers:** Everlasting God, we give thanks for the many volunteers who have been faithfully serving in different ministries at church especially in this challenging period of time. Please strengthen and sustain them with patience and understanding that they may love and care for your people especially in the word. Please grant that together they may follow Jesus Christ, offer you their given gifts and talents, and build up the church, the body of Christ.
 
 - You can go [here](https://stgeorgeshurstville.org.au/mission-partners) for more information on how to pray, support and give.
 
