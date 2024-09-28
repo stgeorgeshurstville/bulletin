@@ -4,7 +4,7 @@ order: 7
 ---
 
 ### Key Idea
- (9:30am) 
+
 Big Idea: God’s love means we can love him rather than money. 
 
 ### Reflection questions
