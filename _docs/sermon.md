@@ -31,8 +31,6 @@ Thank you Father for making yourself known to us, showing us the way of salvatio
 
 ¹⁷ Command those who are rich in this present world not to be arrogant nor to put their hope in wealth, which is so uncertain, but to put their hope in God, who richly provides us with everything for our enjoyment. ¹⁸ Command them to do good, to be rich in good deeds, and to be generous and willing to share. ¹⁹ In this way they will lay up treasure for themselves as a firm foundation for the coming age, so that they may take hold of the life that is truly life.
 
-
-
 ### 1 Timothy 6:6-19 (NIV) (4:00pm)
 **False Teachers and the Love of Money**
 
