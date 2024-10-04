@@ -20,38 +20,50 @@ order: 2
 ## Bible Reading
 
 ### Prayer
-**Prayer**
 Dear God, thank you for letting us know you. Please help us learn from your word. Help us to serve and praise you. Amen!
 
-### 1 Timothy 6:6-10, 17-19 (NIV) (9:30am)
+### 1 Thessalonians 2:17-20 (NIV) (9:30am) 
 
-**False Teachers and the Love of Money** 
+Paul’s Longing to See the Thessalonians
 
-⁶ But godliness with contentment is great gain. ⁷ For we brought nothing into the world, and we can take nothing out of it. ⁸ But if we have food and clothing, we will be content with that. ⁹ Those who want to get rich fall into temptation and a trap and into many foolish and harmful desires that plunge people into ruin and destruction. ¹⁰ For the love of money is a root of all kinds of evil. Some people, eager for money, have wandered from the faith and pierced themselves with many griefs.
+¹⁷ But, brothers and sisters, when we were orphaned by being separated from you for a short time (in person, not in thought), out of our intense longing we made every effort to see you. ¹⁸ For we wanted to come to you—certainly I, Paul, did, again and again—but Satan blocked our way. ¹⁹ For what is our hope, our joy, or the crown in which we will glory in the presence of our Lord Jesus when he comes? Is it not you? ²⁰ Indeed, you are our glory and joy.
 
-**Final Charge to Timothy** 
 
-¹⁷ Command those who are rich in this present world not to be arrogant nor to put their hope in wealth, which is so uncertain, but to put their hope in God, who richly provides us with everything for our enjoyment. ¹⁸ Command them to do good, to be rich in good deeds, and to be generous and willing to share. ¹⁹ In this way they will lay up treasure for themselves as a firm foundation for the coming age, so that they may take hold of the life that is truly life.
+### Philippians 2:5-11 (NIV) (4pm) 
 
-### 1 Timothy 6:6-19 (NIV) (4:00pm)
+⁵ In your relationships with one another, have the same mindset as Christ Jesus:
 
-**False Teachers and the Love of Money**
+⁶ Who, being in very nature God,
+did not consider equality with God something to be used to his own advantage;
+⁷ rather, he made himself nothing
+by taking the very nature of a servant,
+being made in human likeness.
+⁸ And being found in appearance as a man,
+he humbled himself
+by becoming obedient to death—
+even death on a cross!
 
-⁶ But godliness with contentment is great gain. ⁷ For we brought nothing into the world, and we can take nothing out of it. ⁸ But if we have food and clothing, we will be content with that. ⁹ Those who want to get rich fall into temptation and a trap and into many foolish and harmful desires that plunge people into ruin and destruction. ¹⁰ For the love of money is a root of all kinds of evil. Some people, eager for money, have wandered from the faith and pierced themselves with many griefs.
+⁹ Therefore God exalted him to the highest place
+and gave him the name that is above every name,
+¹⁰ that at the name of Jesus every knee should bow,
+in heaven and on earth and under the earth,
+¹¹ and every tongue acknowledge that Jesus Christ is Lord,
+to the glory of God the Father.
 
-**Final Charge to Timothy** 
-
-¹¹ But you, man of God, flee from all this, and pursue righteousness, godliness, faith, love, endurance and gentleness. ¹² Fight the good fight of the faith. Take hold of the eternal life to which you were called when you made your good confession in the presence of many witnesses. ¹³ In the sight of God, who gives life to everything, and of Christ Jesus, who while testifying before Pontius Pilate made the good confession, I charge you ¹⁴ to keep this command without spot or blame until the appearing of our Lord Jesus Christ, ¹⁵ which God will bring about in his own time—God, the blessed and only Ruler, the King of kings and Lord of lords, ¹⁶ who alone is immortal and who lives in unapproachable light, whom no one has seen or can see. To him be honor and might forever. Amen.
-
-¹⁷ Command those who are rich in this present world not to be arrogant nor to put their hope in wealth, which is so uncertain, but to put their hope in God, who richly provides us with everything for our enjoyment. ¹⁸ Command them to do good, to be rich in good deeds, and to be generous and willing to share. ¹⁹ In this way they will lay up treasure for themselves as a firm foundation for the coming age, so that they may take hold of the life that is truly life.
 
 ## Sermon Outline
-### Money in church family life
+### 
+Why are we here? 
+- The researchers 
+- The religious 
+- The socials
+- The responsibles
+- The respectables 
 
-- Let OUR light shine
-- Attack
-- Antidote
-- Action 
+My joy and my crown 
+
+Passing on the faith 
+
 
 ## Q&A
 Got questions or comments? Send them [here](https://tinyurl.com/SGHACQuestionsAnswers)
