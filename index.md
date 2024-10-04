@@ -9,9 +9,9 @@ title: Welcome
 [comment]: ##### "where the sentence came from, e.g. Psalm 1:1"  
 [comment]: ----------------------------------------------------  
 
-## Let our light shine
-#### We have thought on your steadfast love, O God, in the midst of your temple. As your name, so your praise reaches to the end of the earth. Your right hand is filled with victory. 
-##### Psalm 48.9-10 
+## 
+#### The Lord is my light and my salvation; whom shall I fear? The Lord is the stronghold of my life; of whom shall I be afraid?
+##### Psalm 27.1
 
 
 ---
