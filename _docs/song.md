@@ -4,13 +4,13 @@ order: 1
 ---
 
 ## 9:30am 
-1. Lord I Lift Your Name On High
-2. Jesus Strong & Kind
-3. Be Thou My Vision
-4. I Am Not My Own
+1. He Died Upon the Cross
+2. Yet Not I 
+3. The Servant Song
+4. All Creatures of Our God & King 
    
 ## 4pm 
-1. Christ Our Hope In Life And Death
+1. 
 2. Only a Holy God
 3. Rock of ages
 4. When I Survey the Wonderous Cross
