@@ -7,8 +7,6 @@ order: 5
 
 | Date | Event | Time |
 | ----- | ----- | ----- |
-| **SEPTEMBER** | 
-| SUN SEPT 29 | All Generations Services | 9:30am English, 11am Mandarin, 4pm Mandarin |
 | **OCTOBER** | 
 | SUN OCT 6 | All Generations Services | 9:30am English, 11am Mandarin, 4pm Mandarin |
 | SUN OCT 13 | Lam Farewell Potluck Lunch | 12pm |
