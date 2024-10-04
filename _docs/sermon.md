@@ -20,11 +20,8 @@ order: 2
 ## Bible Reading
 
 ### Prayer
-**Prayer (9:30am)**
-Dear God, thank you for letting us know you. Please help us learn from your word. Help us to serve and praise you. **Amen**.
-
-**Prayer (4pm)**
-Thank you Father for making yourself known to us, showing us the way of salvation through faith in your Son. We ask you now to teach us through your word, so that we may be ready to serve you, for the glory of our Lord Jesus Christ. **Amen**.
+**Prayer**
+Dear God, thank you for letting us know you. Please help us learn from your word. Help us to serve and praise you. Amen!
 
 ### 1 Timothy 6:6-10, 17-19 (NIV) (9:30am)
 
