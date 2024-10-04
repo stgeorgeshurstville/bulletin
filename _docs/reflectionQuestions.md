@@ -5,19 +5,20 @@ order: 7
 
 ### Key Idea
 
-Big Idea: God’s love means we can love him rather than money. 
+Big Idea:  Jesus changes how we see one another.  
 
 ### Reflection questions
-1. Money is my idol. Rate 1-10 (where 1 is no and 10 is yes). 
-2. I am wealthy. Rate 1-10 (where 1 is no and 10 is yes). 
-3. I am content. Rate 1-10 (where 1 is no and 10 is yes).
-4. I am generous. Rate 1-10 (where 1 is no and 10 is yes). 
-5. I am a good role model for how to use money. Rate 1-10 (where 1 is no and 10 is yes).
-6. How much do I spend on things and what proportion of this is for the gospel? 
-7. How can I be more faithful and generous? 
-8. How does taking hold of eternal life (1 Timothy 6:12) help us to not love money? 
-9. What areas do we need to grow in regarding how we steward money?
-10. How can we help our family and children to steward money well?  
+1. Why do you go to church? Would you say that you are a researcher, religious, social, responsible, respectable or some other?
+   
+- If you ask the kids at church why you go to church, what would they say?  
+ 
+2. In Thessalonians 2:19, how does Paul describe the Christians at Thessalonica?
+- What do you think he means by this? 
+
+- How does the Gospel of Jesus enable Paul to see them this way? 
+
+- How would we behave differently if the people at church are our hope, joy, crown and glory? 
+
 
 
 
