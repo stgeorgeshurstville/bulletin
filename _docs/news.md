@@ -21,7 +21,7 @@ order: 5
 
 
 ## General
-- **[Special announcement.]** 
+- **[Special announcement]** 
 
 - **Discipleship Groups**: The last day of this term is Sun the 29th of Sep. Term 4 starts on the week of Mon 21st of Oct. Some groups may operate differently so please confirm with your leader about what’s happening. 
 
