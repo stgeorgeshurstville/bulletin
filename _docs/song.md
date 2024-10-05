@@ -10,9 +10,8 @@ order: 1
 4. All Creatures of Our God & King 
    
 ## 4pm 
-1. 
-2. Only a Holy God
-3. Rock of ages
-4. When I Survey the Wonderous Cross
+1. Jesus, Strong and Kind 
+2. The Servant King
+3. In Christ Alone
 
 Check out the church spotify playlist [here](https://open.spotify.com/playlist/3gh0ZKXkJBDbNEnZqJJDXj?si=0908aa3f87544643)
