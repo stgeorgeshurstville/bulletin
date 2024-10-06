@@ -30,7 +30,7 @@ Paul’s Longing to See the Thessalonians
 
 
 ## Sermon Outline
-### 
+
 Why are we here? 
 - The researchers 
 - The religious 
