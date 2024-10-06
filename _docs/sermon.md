@@ -22,33 +22,11 @@ order: 2
 ### Prayer
 Dear God, thank you for letting us know you. Please help us learn from your word. Help us to serve and praise you. Amen!
 
-### 1 Thessalonians 2:17-20 (NIV) (9:30am) 
+### 1 Thessalonians 2:17-20 (NIV)
 
 Paul’s Longing to See the Thessalonians
 
 ¹⁷ But, brothers and sisters, when we were orphaned by being separated from you for a short time (in person, not in thought), out of our intense longing we made every effort to see you. ¹⁸ For we wanted to come to you—certainly I, Paul, did, again and again—but Satan blocked our way. ¹⁹ For what is our hope, our joy, or the crown in which we will glory in the presence of our Lord Jesus when he comes? Is it not you? ²⁰ Indeed, you are our glory and joy.
-
-
-### Philippians 2:5-11 (NIV) (4pm) 
-
-⁵ In your relationships with one another, have the same mindset as Christ Jesus:
-
-⁶ Who, being in very nature God,
-did not consider equality with God something to be used to his own advantage;
-⁷ rather, he made himself nothing
-by taking the very nature of a servant,
-being made in human likeness.
-⁸ And being found in appearance as a man,
-he humbled himself
-by becoming obedient to death—
-even death on a cross!
-
-⁹ Therefore God exalted him to the highest place
-and gave him the name that is above every name,
-¹⁰ that at the name of Jesus every knee should bow,
-in heaven and on earth and under the earth,
-¹¹ and every tongue acknowledge that Jesus Christ is Lord,
-to the glory of God the Father.
 
 
 ## Sermon Outline
