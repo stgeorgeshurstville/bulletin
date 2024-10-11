@@ -9,9 +9,9 @@ title: Welcome
 [comment]: ##### "where the sentence came from, e.g. Psalm 1:1"  
 [comment]: ----------------------------------------------------  
 
-## 
-#### The Lord is my light and my salvation; whom shall I fear? The Lord is the stronghold of my life; of whom shall I be afraid?
-##### Psalm 27.1
+## Prayer in Church Family Life
+#### Let our prayer come before you, O Lord, incline your ear to our cry. 
+##### Psalm 88.2
 
 
 ---
