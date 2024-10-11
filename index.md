@@ -9,7 +9,7 @@ title: Welcome
 [comment]: ##### "where the sentence came from, e.g. Psalm 1:1"  
 [comment]: ----------------------------------------------------  
 
-## Prayer in Church Family Life
+## Let our light shine: Prayer in Church Family Life
 #### Let our prayer come before you, O Lord, incline your ear to our cry. 
 ##### Psalm 88.2
 
