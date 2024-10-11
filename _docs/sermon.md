@@ -39,17 +39,6 @@ Dear God, thank you for letting us know you. Please help us learn from your word
 
 ## Sermon Outline
 
-Why are we here? 
-- The researchers 
-- The religious 
-- The socials
-- The responsibles
-- The respectables 
-
-My joy and my crown 
-
-Passing on the faith 
-
 
 ## Q&A
 Got questions or comments? Send them [here](https://tinyurl.com/SGHACQuestionsAnswers)
