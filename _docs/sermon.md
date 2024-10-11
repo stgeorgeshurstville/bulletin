@@ -16,8 +16,14 @@ order: 2
 [comment]: "sermon outline content"  
 
 [comment]: ------------------------------------------------------------------------------------
+## Discussion: 
 
 ## Bible Reading
+When do you pray? 
+
+What do you pray for? 
+
+Why do you pray? 
 
 ### Prayer
 Dear God, thank you for letting us know you. Please help us learn from your word. Help us to serve and praise you. Amen!
