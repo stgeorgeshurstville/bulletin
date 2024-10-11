@@ -17,14 +17,13 @@ order: 2
 
 [comment]: ------------------------------------------------------------------------------------
 ## Discussion: 
-
-## Bible Reading
 When do you pray? 
 
 What do you pray for? 
 
 Why do you pray? 
 
+## Bible Reading
 ### Prayer
 Dear God, thank you for letting us know you. Please help us learn from your word. Help us to serve and praise you. Amen!
 
