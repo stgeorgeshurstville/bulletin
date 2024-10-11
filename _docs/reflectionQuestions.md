@@ -7,14 +7,14 @@ order: 7
 
 Big Idea:  Pray to have (and because we have) the peace of God.
 
-### Reflection questions
+### Reflection questions:
 1. What things do you usually pray for? 
 
 2. How do you expect (or want) God to answer? 
 
 3. Why do you pray?
 
-### From Philippians 4:4-7
+### From Philippians 4:4-7:
 1. What things are to pray about?
 
 2. When are we to pray?
