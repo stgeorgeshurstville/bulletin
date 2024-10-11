@@ -27,12 +27,15 @@ Why do you pray?
 ### Prayer
 Dear God, thank you for letting us know you. Please help us learn from your word. Help us to serve and praise you. Amen!
 
-### 1 Thessalonians 2:17-20 (NIV)
+### Philippians 4:4-7 NIRV (AllGen Service) 
+**Final Commands**
 
-Paul’s Longing to See the Thessalonians
+⁴ Always be joyful because you belong to the Lord. I will say it again. Be joyful! ⁵ Let everyone know how gentle you are. The Lord is coming soon. ⁶ Don’t worry about anything. No matter what happens, tell God about everything. Ask and pray, and give thanks to him. ⁷ Then God’s peace will watch over your hearts and your minds. He will do this because you belong to Christ Jesus. God’s peace can never be completely understood.
 
-¹⁷ But, brothers and sisters, when we were orphaned by being separated from you for a short time (in person, not in thought), out of our intense longing we made every effort to see you. ¹⁸ For we wanted to come to you—certainly I, Paul, did, again and again—but Satan blocked our way. ¹⁹ For what is our hope, our joy, or the crown in which we will glory in the presence of our Lord Jesus when he comes? Is it not you? ²⁰ Indeed, you are our glory and joy.
+### Philippians 4:4-7 NIV
+**Final Exhortations**
 
+⁴ Rejoice in the Lord always. I will say it again: Rejoice! ⁵ Let your gentleness be evident to all. The Lord is near. ⁶ Do not be anxious about anything, but in every situation, by prayer and petition, with thanksgiving, present your requests to God. ⁷ And the peace of God, which transcends all understanding, will guard your hearts and your minds in Christ Jesus.
 
 ## Sermon Outline
 
