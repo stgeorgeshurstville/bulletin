@@ -31,8 +31,6 @@ The best action is to pray. Spend a moment to share one/two things and pray. We‚
 
 - **Evangelism Teams and Programs**: Gracious Lord, our neighbours are lost and far away from you. We long for the opportunity to proclaim your name. Please give us the eyes to see those whom you have placed before us. Whenever I open my mouth, may words be given to me so that I will fearlessly make known the mystery of the gospel. We pray that as the seeds of the gospel are scattered and planted, that they would land on good soil. Please make them bear fruit, Father. Scare away the crows. Crush the rocks. Strangle the weeds. Instead, give us rich healthy soil ready to receive the seeds of the gospel. In Jesus‚Äô name, we pray.
 
-- You can go [here](https://stgeorgeshurstville.org.au/mission-partners) for more prayer points. 
-
 
 ## Weekly Prayer Points
 - Mental Health Day (10 Oct)
@@ -46,6 +44,5 @@ The best action is to pray. Spend a moment to share one/two things and pray. We‚
 
 - **Cantonese Congregations**: Lord, we pray for our brothers and sisters of the Cantonese congregation. We ask that You continue to guide them in pursuing our vision in a ‚Äúsecure attachment to Jesus‚Äù and our growth in it. We pray for all of our ministry teams. Grant them Your strength and wisdom to work together in unity, serving You faithfully. May they experience Your strength and joy in their service, knowing that everything they do is for Your glory. We pray for our discipleship group ministry. Please strengthen and bless this ministry, so that more brothers and sisters can grow in faith through these small groups and deepen their relationship with You. Help our brothers and sisters to see their connection to Your church. May we all recognize that everything we have comes from You, and that we would be willing to invest more of ourselves into this spiritual family, becoming faithful servants in building up Your church. Amen.
 
-- You can go [here](https://stgeorgeshurstville.org.au/mission-partners) 
 
 
