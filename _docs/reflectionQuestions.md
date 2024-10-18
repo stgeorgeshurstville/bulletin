@@ -5,27 +5,21 @@ order: 7
 
 ### Key Idea
 
-Big Idea:  Pray to have (and because we have) the peace of God.
+Big Idea: God is bringing his upside down kingdom into the world through his upside down king, Jesus.  
 
 ### Reflection questions:
-1. What things do you usually pray for? 
+1. Please share how you are progressing with the 5 days of prayer. 
 
-2. How do you expect (or want) God to answer? 
+2. What does Matthew 1:1 tell you about the book is going to about?  
 
-3. Why do you pray?
+3. What does this tell you about how God will save the world? 
 
-### From Philippians 4:4-7:
-1. What things are to pray about?
+4. What story does the genealogy of Jesus in vv.2-17 tell?  
 
-2. When are we to pray?
+5. What else does Matthew tell us about the upside down king in vv.18-25? 
 
-3. How are we to pray?
+6. What has encouraged you from today’s study? What can you share with someone about today’s study? 
 
-4. Why do we pray? What time are we living in? What’s the peace of God? Why can we be thankful? What does transcend mean?
-
-5. What does pray result in? What does it mean for the peace of God to guard our hearts and minds in Christ?
-
-6. How does this passage change how, what and when you pray (and what you expect from praying)? 
 
 
 
