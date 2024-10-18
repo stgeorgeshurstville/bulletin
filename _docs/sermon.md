@@ -18,7 +18,7 @@ order: 2
 [comment]: ------------------------------------------------------------------------------------
 ## Bible Reading
 ### Prayer
-Dear God, thank you for letting us know you. Please help us learn from your word. Help us to serve and praise you. Amen!
+Dear God, thank you for letting us know you. Please help us learn from your word. Help us to serve and praise you. **Amen**
 
 ### Matthew 1 NIV11
 ¹ This is the genealogy of Jesus the Messiah the son of David, the son of Abraham:
@@ -116,6 +116,7 @@ Joseph Accepts Jesus as His Son
 
 
 ## Sermon Outline
+### Skeletons in Jesus’ closet
 1.	Circumstances. 
 
 2.	Challenge. 
