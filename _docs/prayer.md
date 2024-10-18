@@ -44,6 +44,7 @@ Pray for governments and those in Authority
 Hurstville 
 
 **Mission partners** 
+
 **Week 1** 
 Compassion; Mel in Adelaide; Bijiya and Nepali church plant   
 
@@ -61,6 +62,7 @@ High School SRE; Mathys and Papua New Guinea
 - More info can be found [here](https://stgeorgeshurstville.org.au/mission-partners)
 
 **Church ministry & Groups prayer points**
+
 **Week 1**
 - Redevelopment
 - Sunday Services: bible readers, service leaders, music, welcoming etc. 
