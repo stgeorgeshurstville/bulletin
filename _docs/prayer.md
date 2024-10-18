@@ -17,7 +17,7 @@ Almighty and merciful God, of your bountiful goodness keep us from everything th
 - Vision 2024: Secure Attachment to Jesus: Dear God, our loving and kind Father, you are full of grace and patience, and you always love us. You are holy and fair, but you never turn away from those who look for you. We feel safe and comforted with you, our God. We trust you with our lives and know your love never fails. As we come to you through Jesus, we ask for your mercy and help with everything we need. Let your Spirit work in us to grow love, joy, peace, patience, kindness, goodness, faithfulness, gentleness, and self-control. In Jesus' name, we pray. Amen.
 
 **Week 2**
-- Growing Up: Heavenly Father, we trust your love, grace and acceptance, and that you created and saved us to live for your glory. We trust in your Son Jesus Christ as the saviour of the world, and your gospel as your power for salvation for all who believe. We trust in your Son Jesus Christ as the holy, loving, powerful and generous saviour, head, lord, and judge of St George’s. We trust you as the just judge of all people, and that you will bring glory to yourself through our church and in Christ Jesus. Forgive us in living for trivial happiness and false securities rather than holiness. We pray that we will die to sin every day and live for righteousness; that we will deny ourselves, take up our cross and follow Jesus every day.
+Growing Up: Heavenly Father, we trust your love, grace and acceptance, and that you created and saved us to live for your glory. We trust in your Son Jesus Christ as the saviour of the world, and your gospel as your power for salvation for all who believe. We trust in your Son Jesus Christ as the holy, loving, powerful and generous saviour, head, lord, and judge of St George’s. We trust you as the just judge of all people, and that you will bring glory to yourself through our church and in Christ Jesus. Forgive us in living for trivial happiness and false securities rather than holiness. We pray that we will die to sin every day and live for righteousness; that we will deny ourselves, take up our cross and follow Jesus every day.
 
 **Week 3**
 Growing deep: Oh Lord, how We love your law! Your word is a lamp to our feet and a light for our path. Thank you that Jesus has give us the Word of Eternal Life. Thank you that heaven and earth may pass away but our Lord’s words will never pass away. Please help us not to conform to the pattern of this world, but be transformed by the renewing of our minds by your Word. Please help us to deepen our understanding of and obedience to your Word. 
@@ -30,34 +30,33 @@ Mission: Our gracious Father, thank you for the privilege of calling us to join 
 
 **For those outside St George’s** 
 **Week 1**
-- pray for the world
+Pray for the world
 
 **Week 2**
-- pray for Australia 
+Pray for Australia 
 
 **Week 3** 
-- pray for governments and those in Authority 
+Pray for governments and those in Authority 
 
 **Week 4**  
-- Hurstville 
+Hurstville 
 
 **Mission partners**
 **Week 1** 
-- Compassion; Mel in Adelaide; Bijiya and Nepali church plant   
+Compassion; Mel in Adelaide; Bijiya and Nepali church plant   
 
 **Week 2** 
-- Berkeley Life Centre; Phil & Lil in West Asia 
+Berkeley Life Centre; Phil & Lil in West Asia 
 
 **Week 3** 
-- JC in SE Asia; Hoi Yan in Japan 
+JC in SE Asia; Hoi Yan in Japan 
 
 **Week 4**
-- High School SRE; Mathys and Papua New Guinea
+High School SRE; Mathys and Papua New Guinea
 
 **Week 5**
 - Persecuted Christians and Gospel poor countries; Moore College 
-
-https://stgeorgeshurstville.org.au/mission-partners
+- More info can be found [here](https://stgeorgeshurstville.org.au/mission-partners)
 
 **Church ministry & Groups prayer points**
 **Week 1**
@@ -90,7 +89,7 @@ https://stgeorgeshurstville.org.au/mission-partners
 - Those needing comfort, e.g. the sick, the grieving, the lonely, those in trouble etc. 
 
 **Week 5**
-- Volunteers. 
+Volunteers. 
 
 
 
