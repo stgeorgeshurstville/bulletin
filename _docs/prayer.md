@@ -9,7 +9,7 @@ Almighty and merciful God, of your bountiful goodness keep us from everything th
 **Special Prayer Points**
 - Recovery from floods in Nepal. 
 - Interviews for the associate minister. Please pray for the process, those making the decision and those who’ve applied.  
-- Prayer points can be found here: https://stgeorgeshurstville.org.au/prayer
+- Prayer points can be found [here](https://stgeorgeshurstville.org.au/prayer)
 
 **Mission and Vision**
 **Week 1**
