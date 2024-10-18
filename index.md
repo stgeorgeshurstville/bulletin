@@ -9,9 +9,9 @@ title: Welcome
 [comment]: ##### "where the sentence came from, e.g. Psalm 1:1"  
 [comment]: ----------------------------------------------------  
 
-## Let our light shine: Prayer in Church Family Life
-#### Let our prayer come before you, O Lord, incline your ear to our cry. 
-##### Psalm 88.2
+## The upside down kingdom: Skeletons in Jesus’ closet
+#### May the Lord give peace to those who wait for him and may his prophets proclaim his name. His ears are open to the prayer of his servants. 
+##### Sirach 36.15,16 
 
 
 ---
