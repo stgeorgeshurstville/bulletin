@@ -117,13 +117,13 @@ Joseph Accepts Jesus as His Son
 
 ## Sermon Outline
 ### Skeletons in Jesus’ closet
-1.	Circumstances. 
+1.	The upside down kingdom. 
 
-2.	Challenge. 
+2.	All things made new. 
 
-3.	Cause. 
+3.	From what is. 
 
-4.	Change.
+4.	Sin atoned.
 
 ## Q&A
 Got questions or comments? Send them [here](https://tinyurl.com/SGHACQuestionsAnswers)
