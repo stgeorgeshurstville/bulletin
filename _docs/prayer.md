@@ -31,7 +31,7 @@ Pray for the world
 
 Compassion; Mel in Adelaide; Bijiya and Nepali church plant   
 
-## Church ministry & Groups prayer points##
+## Church ministry & Groups prayer points
 
 **Week 1**
 - Redevelopment
