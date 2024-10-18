@@ -12,6 +12,7 @@ Almighty and merciful God, of your bountiful goodness keep us from everything th
 - Prayer points can be found [here](https://stgeorgeshurstville.org.au/prayer)
 
 **Mission and Vision**
+
 **Week 1**
 - Mission: Our gracious Father, thank you for the privilege of calling us to join in your mission. Thank you that under you what we do makes a difference in the world. We pray therefore that you will save those around us and to transform them into the likeness of Jesus. Please use us to make disciples of the nations, love our neighbours. Please Father, glorify yourself, through our labour in your Son. We pray that we will not be consumers but contributors to the ministries that you have called us to. 
 - Vision 2024: Secure Attachment to Jesus: Dear God, our loving and kind Father, you are full of grace and patience, and you always love us. You are holy and fair, but you never turn away from those who look for you. We feel safe and comforted with you, our God. We trust you with our lives and know your love never fails. As we come to you through Jesus, we ask for your mercy and help with everything we need. Let your Spirit work in us to grow love, joy, peace, patience, kindness, goodness, faithfulness, gentleness, and self-control. In Jesus' name, we pray. Amen.
