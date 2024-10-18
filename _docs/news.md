@@ -8,8 +8,6 @@ order: 5
 | Date | Event | Time |
 | ----- | ----- | ----- |
 | **OCTOBER** | 
-| SUN OCT 13 | Lam Farewell Potluck Lunch | 12pm |
-| SUN OCT 13 | All Generations Services| 9:30am English, 11am Mandarin, 4pm Mandarin |
 | SUN OCT 27 | Baptism Course #1 | 11am and 5:45pm |
 | FRI 4th - MON 7th Oct | MTS Recruit 2024 conference | |
 | **NOVEMBER** | 
@@ -21,11 +19,9 @@ order: 5
 
 ## General
 - **Discipleship Groups**: The last day of this term is Sun the 29th of Sep. Term 4 starts on the week of Mon 21st of Oct. Some groups may operate differently so please confirm with your leader about what’s happening. 
-
-- **NewGen will be on break in the School Holidays**: Everyone, young and old, are welcomed to join the All Generations Services at 9:30 English, 11am Mandarin and 4pm Mandarin on 29/9, 6/10 and 13/10. There won’t be creche. 
-
-- **Lam Farewell**: The church will say ‘thank you’ and ‘we’ll miss you’ at a pot-luck lunch for the Lams (bring food for yourselves and some to share with others) on 13 October (in the Church Hall) at 12:30pm. You will be able to speak with them privately as well, if you wish. 
-
+- **New term starts** 
+- **Brian and Bijiya off to Nepal from 28 October for 3 weeks.** 
+- **Emergency flood appeal for Nepal** https://inf.org.au/safe-water-appeal-2024
 - **Synod Summary**: The Synod Summary can be found [here](https://www.sds.asn.au/sites/default/files/Parish%20Circular.Synod%202024%20Summary.4%20October%202024.pdf?doc_id=NjkxMjg=)
 
   
