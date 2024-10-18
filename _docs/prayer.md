@@ -1,4 +1,3 @@
-![image](https://github.com/user-attachments/assets/8829f8f0-ba9f-4328-a134-9a85ae197ce6)---
 title: Prayer
 order: 4
 ---
