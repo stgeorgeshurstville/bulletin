@@ -30,6 +30,7 @@ Growing Out: Our gracious Father, thank you that the Gospel is the power of salv
 Mission: Our gracious Father, thank you for the privilege of calling us to join in your mission. Thank you that under you what we do makes a difference in the world. We pray therefore that you will save those around us and to transform them into the likeness of Jesus. Please use us to make disciples of the nations, love our neighbours. Please Father, glorify yourself, through our labour in your Son. We pray that we will not be consumers but contributors to the ministries that you have called us to. 
 
 **For those outside St George’s** 
+
 **Week 1**
 Pray for the world
 
