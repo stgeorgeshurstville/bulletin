@@ -21,11 +21,13 @@ Almighty and merciful God, of your bountiful goodness keep us from everything th
 
 **Week 1**
 
+
 Pray for the world
 
 **Mission partners** 
 
 **Week 1** 
+
 
 Compassion; Mel in Adelaide; Bijiya and Nepali church plant   
 
