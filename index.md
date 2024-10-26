@@ -9,9 +9,9 @@ title: Welcome
 [comment]: ##### "where the sentence came from, e.g. Psalm 1:1"  
 [comment]: ----------------------------------------------------  
 
-## The upside down kingdom: Skeletons in Jesus’ closet
-#### May the Lord give peace to those who wait for him and may his prophets proclaim his name. His ears are open to the prayer of his servants. 
-##### Sirach 36.15,16 
+## The upside down kingdom: Twinkle Twinkle Mega Star
+#### Thus says the Lord, I know the plans I have for you, plans for your welfare and not for evil, to tive you a future and a hope. 
+##### Jeremiah 29.11 
 
 
 ---
