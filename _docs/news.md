@@ -18,10 +18,16 @@ order: 5
 
 
 ## General
-- **Discipleship Groups**: The last day of this term is Sun the 29th of Sep. Term 4 starts on the week of Mon 21st of Oct. Some groups may operate differently so please confirm with your leader about what’s happening. 
-- **New term starts** 
-- **Brian and Bijiya off to Nepal from 28 October for 3 weeks.** 
-- **Emergency flood appeal for Nepal** https://inf.org.au/safe-water-appeal-2024
+- If you’re in in a d-group, consider joining one. Email brian.tung@stgeorgeshurstville.org.au. 
+- Nepal Mission Trip: Brian and Bijiya will be travelling to Nepal from 28/10 for a two-week mission trip to deepen our understanding of Christianity in Nepal and explore Gospel opportunities, both in Nepal and here in our local community. We encourage you to keep them in your prayers for safety, wisdom, and fruitful connections on this mission trip to Nepal.
+- Emergency flood appeal for Nepal https://inf.org.au/safe-water-appeal-2024
+- Parenting seminar (in Mandarin): 
+"How to lead your children's spiritual growth" - a seminar in Mandarin
+When: Sunday,10th November, 1.00-2.30pm
+Where: church chapel
+Speaker: Pastor Elvin Hong
+Inquiries: Pastor Elvin Hong
+
 - **Synod Summary**: The Synod Summary can be found [here](https://www.sds.asn.au/sites/default/files/Parish%20Circular.Synod%202024%20Summary.4%20October%202024.pdf?doc_id=NjkxMjg=)
 
   
