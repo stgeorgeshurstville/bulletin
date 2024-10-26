@@ -20,110 +20,38 @@ order: 2
 ### Prayer
 Dear God, thank you for letting us know you. Please help us learn from your word. Help us to serve and praise you. **Amen**
 
-### Matthew 1 NIV11
-¹ This is the genealogy of Jesus the Messiah the son of David, the son of Abraham:
+### Matthew 2 NIV11
+2 After Jesus was born in Bethlehem in Judea, during the time of King Herod, Magi from the east came to Jerusalem 2 and asked, “Where is the one who has been born king of the Jews? We saw his star when it rose and have come to worship him.”
 
-² Abraham was the father of Isaac,
+3 When King Herod heard this he was disturbed, and all Jerusalem with him. 4 When he had called together all the people’s chief priests and teachers of the law, he asked them where the Messiah was to be born. 5 “In Bethlehem in Judea,” they replied, “for this is what the prophet has written:
 
-Isaac the father of Jacob,
+6 “‘But you, Bethlehem, in the land of Judah,
+    are by no means least among the rulers of Judah;
+for out of you will come a ruler
+    who will shepherd my people Israel.
 
-Jacob the father of Judah and his brothers,
+7 Then Herod called the Magi secretly and found out from them the exact time the star had appeared. 8 He sent them to Bethlehem and said, “Go and search carefully for the child. As soon as you find him, report to me, so that I too may go and worship him.”
 
-³ Judah the father of Perez and Zerah, whose mother was Tamar,
+9 After they had heard the king, they went on their way, and the star they had seen when it rose went ahead of them until it stopped over the place where the child was. 10 When they saw the star, they were overjoyed. 11 On coming to the house, they saw the child with his mother Mary, and they bowed down and worshiped him. Then they opened their treasures and presented him with gifts of gold, frankincense and myrrh. 12 And having been warned in a dream not to go back to Herod, they returned to their country by another route.
 
-Perez the father of Hezron,
+The Escape to Egypt
+13 When they had gone, an angel of the Lord appeared to Joseph in a dream. “Get up,” he said, “take the child and his mother and escape to Egypt. Stay there until I tell you, for Herod is going to search for the child to kill him.”
 
-Hezron the father of Ram,
+14 So he got up, took the child and his mother during the night and left for Egypt, 15 where he stayed until the death of Herod. And so was fulfilled what the Lord had said through the prophet: “Out of Egypt I called my son.”[c]
 
-⁴ Ram the father of Amminadab,
+16 When Herod realized that he had been outwitted by the Magi, he was furious, and he gave orders to kill all the boys in Bethlehem and its vicinity who were two years old and under, in accordance with the time he had learned from the Magi. 17 Then what was said through the prophet Jeremiah was fulfilled:
 
-Amminadab the father of Nahshon,
+18 “A voice is heard in Ramah,
+    weeping and great mourning,
+Rachel weeping for her children
+    and refusing to be comforted,
+    because they are no more.”
 
-Nahshon the father of Salmon,
+The Return to Nazareth
+19 After Herod died, an angel of the Lord appeared in a dream to Joseph in Egypt 20 and said, “Get up, take the child and his mother and go to the land of Israel, for those who were trying to take the child’s life are dead.”
 
-⁵ Salmon the father of Boaz, whose mother was Rahab,
+21 So he got up, took the child and his mother and went to the land of Israel. 22 But when he heard that Archelaus was reigning in Judea in place of his father Herod, he was afraid to go there. Having been warned in a dream, he withdrew to the district of Galilee, 23 and he went and lived in a town called Nazareth. So was fulfilled what was said through the prophets, that he would be called a Nazarene.
 
-Boaz the father of Obed, whose mother was Ruth,
-
-Obed the father of Jesse,
-
-⁶ and Jesse the father of King David.
-
-David was the father of Solomon, whose mother had been Uriah’s wife,
-
-⁷ Solomon the father of Rehoboam,
-
-Rehoboam the father of Abijah,
-
-Abijah the father of Asa,
-
-⁸ Asa the father of Jehoshaphat,
-
-Jehoshaphat the father of Jehoram,
-
-Jehoram the father of Uzziah,
-
-⁹ Uzziah the father of Jotham,
-
-Jotham the father of Ahaz,
-
-Ahaz the father of Hezekiah,
-
-¹⁰ Hezekiah the father of Manasseh,
-
-Manasseh the father of Amon,
-
-Amon the father of Josiah,
-
-¹¹ and Josiah the father of Jeconiah and his brothers at the time of the exile to Babylon.
-
-¹² After the exile to Babylon:
-
-Jeconiah was the father of Shealtiel,
-
-Shealtiel the father of Zerubbabel,
-
-¹³ Zerubbabel the father of Abihud,
-
-Abihud the father of Eliakim,
-
-Eliakim the father of Azor,
-
-¹⁴ Azor the father of Zadok,
-
-Zadok the father of Akim,
-
-Akim the father of Elihud,
-
-¹⁵ Elihud the father of Eleazar,
-
-Eleazar the father of Matthan,
-
-Matthan the father of Jacob,
-
-¹⁶ and Jacob the father of Joseph, the husband of Mary, and Mary was the mother of Jesus who is called the Messiah.
-
-¹⁷ Thus there were fourteen generations in all from Abraham to David, fourteen from David to the exile to Babylon, and fourteen from the exile to the Messiah.
-
-Joseph Accepts Jesus as His Son
-¹⁸ This is how the birth of Jesus the Messiah came about : His mother Mary was pledged to be married to Joseph, but before they came together, she was found to be pregnant through the Holy Spirit. ¹⁹ Because Joseph her husband was faithful to the law, and yet did not want to expose her to public disgrace, he had in mind to divorce her quietly.
-
-²⁰ But after he had considered this, an angel of the Lord appeared to him in a dream and said, “Joseph son of David, do not be afraid to take Mary home as your wife, because what is conceived in her is from the Holy Spirit. ²¹ She will give birth to a son, and you are to give him the name Jesus, because he will save his people from their sins.”
-
-²² All this took place to fulfill what the Lord had said through the prophet: ²³ “The virgin will conceive and give birth to a son, and they will call him Immanuel” (which means “God with us”).
-
-²⁴ When Joseph woke up, he did what the angel of the Lord had commanded him and took Mary home as his wife. ²⁵ But he did not consummate their marriage until she gave birth to a son. And he gave him the name Jesus.
-
-
-## Sermon Outline
-### Skeletons in Jesus’ closet
-1.	The upside down kingdom. 
-
-2.	All things made new. 
-
-3.	From what is. 
-
-4.	Sin atoned.
 
 ## Q&A
 Got questions or comments? Send them [here](https://tinyurl.com/SGHACQuestionsAnswers)
