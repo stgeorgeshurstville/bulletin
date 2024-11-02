@@ -18,7 +18,7 @@ order: 5
 ## General
 - **If you’re in in a d-group, consider joining one. Email brian.tung@stgeorgeshurstville.org.au.**
 - **Nepal Mission Trip:** Brian and Bijiya is currently in Nepal for a two-week mission trip to deepen our understanding of Christianity in Nepal and explore Gospel opportunities, both in Nepal and here in our local community. We encourage you to keep them in your prayers for safety, wisdom, and fruitful connections on this mission trip to Nepal.
-- **Life Quarterly:** Latest edition of our church Life Quarterly is now available both in prints or digital version. You can download it on our website [here]https://stgeorgeshurstville.org.au/life 
+- **Life Quarterly:** Latest edition of our church Life Quarterly is now available both in prints or digital version. You can download it on our website [here](https://stgeorgeshurstville.org.au/life)
 - **Emergency flood appeal for Nepal** https://inf.org.au/safe-water-appeal-2024
 - **Parenting seminar (in Mandarin):** 
 "How to lead your children's spiritual growth" - a seminar in Mandarin
