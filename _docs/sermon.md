@@ -44,15 +44,15 @@ make straight paths for him.’”
 
 ## Sermon Outline
 ### Matthew 3 - Preparing for God's coming
-1. God's warning - John the Baptist
-2. How to prepare for God's coming - repentance
+* God's warning - John the Baptist
+* How to prepare for God's coming - repentance
 
 a) Repent = turn to God
 True repentance will produce fruit of repentance
 
 b) not relying on your Roots or Rituals
 
-3.Has God's judgement come?
+* Has God's judgement come?
 
 a) "Yes" - poured out on God's Son, Jesus
 3:17 "with him I am well pleased." -> "Suffering Servant"
@@ -61,7 +61,7 @@ a) "Yes" - poured out on God's Son, Jesus
 
 b) "No" - delayed by God's grace
 
-4.Are you prepared for Jesus' 2nd coming?
+* Are you prepared for Jesus' 2nd coming?
 
 
 ## Q&A
