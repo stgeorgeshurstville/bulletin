@@ -20,37 +20,47 @@ order: 2
 ### Prayer
 Dear God, thank you for letting us know you. Please help us learn from your word. Help us to serve and praise you. **Amen**
 
-### Matthew 2 NIV11
-2 After Jesus was born in Bethlehem in Judea, during the time of King Herod, Magi from the east came to Jerusalem 2 and asked, “Where is the one who has been born king of the Jews? We saw his star when it rose and have come to worship him.”
+### Matthew 3 NIV11
+**John the Baptist Prepares the Way**
 
-3 When King Herod heard this he was disturbed, and all Jerusalem with him. 4 When he had called together all the people’s chief priests and teachers of the law, he asked them where the Messiah was to be born. 5 “In Bethlehem in Judea,” they replied, “for this is what the prophet has written:
+³ In those days John the Baptist came, preaching in the wilderness of Judea ² and saying, “Repent, for the kingdom of heaven has come near.” ³ This is he who was spoken of through the prophet Isaiah:
 
-6 “‘But you, Bethlehem, in the land of Judah,
-    are by no means least among the rulers of Judah;
-for out of you will come a ruler
-    who will shepherd my people Israel.
+“A voice of one calling in the wilderness,
+‘Prepare the way for the Lord,
+make straight paths for him.’” 
+⁴ John’s clothes were made of camel’s hair, and he had a leather belt around his waist. His food was locusts and wild honey. ⁵ People went out to him from Jerusalem and all Judea and the whole region of the Jordan. ⁶ Confessing their sins, they were baptized by him in the Jordan River.
 
-7 Then Herod called the Magi secretly and found out from them the exact time the star had appeared. 8 He sent them to Bethlehem and said, “Go and search carefully for the child. As soon as you find him, report to me, so that I too may go and worship him.”
+⁷ But when he saw many of the Pharisees and Sadducees coming to where he was baptizing, he said to them: “You brood of vipers! Who warned you to flee from the coming wrath? ⁸ Produce fruit in keeping with repentance. ⁹ And do not think you can say to yourselves, ‘We have Abraham as our father.’ I tell you that out of these stones God can raise up children for Abraham. ¹⁰ The ax is already at the root of the trees, and every tree that does not produce good fruit will be cut down and thrown into the fire.
 
-9 After they had heard the king, they went on their way, and the star they had seen when it rose went ahead of them until it stopped over the place where the child was. 10 When they saw the star, they were overjoyed. 11 On coming to the house, they saw the child with his mother Mary, and they bowed down and worshiped him. Then they opened their treasures and presented him with gifts of gold, frankincense and myrrh. 12 And having been warned in a dream not to go back to Herod, they returned to their country by another route.
+¹¹ “I baptize you with water for repentance. But after me comes one who is more powerful than I, whose sandals I am not worthy to carry. He will baptize you with the Holy Spirit and fire. ¹² His winnowing fork is in his hand, and he will clear his threshing floor, gathering his wheat into the barn and burning up the chaff with unquenchable fire.”
 
-The Escape to Egypt
-13 When they had gone, an angel of the Lord appeared to Joseph in a dream. “Get up,” he said, “take the child and his mother and escape to Egypt. Stay there until I tell you, for Herod is going to search for the child to kill him.”
+**The Baptism of Jesus**
 
-14 So he got up, took the child and his mother during the night and left for Egypt, 15 where he stayed until the death of Herod. And so was fulfilled what the Lord had said through the prophet: “Out of Egypt I called my son.”[c]
+¹³ Then Jesus came from Galilee to the Jordan to be baptized by John. ¹⁴ But John tried to deter him, saying, “I need to be baptized by you, and do you come to me?”
 
-16 When Herod realized that he had been outwitted by the Magi, he was furious, and he gave orders to kill all the boys in Bethlehem and its vicinity who were two years old and under, in accordance with the time he had learned from the Magi. 17 Then what was said through the prophet Jeremiah was fulfilled:
+¹⁵ Jesus replied, “Let it be so now; it is proper for us to do this to fulfill all righteousness.” Then John consented.
 
-18 “A voice is heard in Ramah,
-    weeping and great mourning,
-Rachel weeping for her children
-    and refusing to be comforted,
-    because they are no more.”
+¹⁶ As soon as Jesus was baptized, he went up out of the water. At that moment heaven was opened, and he saw the Spirit of God descending like a dove and alighting on him. ¹⁷ And a voice from heaven said, “This is my Son, whom I love; with him I am well pleased.”
 
-The Return to Nazareth
-19 After Herod died, an angel of the Lord appeared in a dream to Joseph in Egypt 20 and said, “Get up, take the child and his mother and go to the land of Israel, for those who were trying to take the child’s life are dead.”
+## Sermon Outline
+### Matthew 3 - Preparing for God's coming
+1. God's warning - John the Baptist
+2. How to prepare for God's coming - repentance
 
-21 So he got up, took the child and his mother and went to the land of Israel. 22 But when he heard that Archelaus was reigning in Judea in place of his father Herod, he was afraid to go there. Having been warned in a dream, he withdrew to the district of Galilee, 23 and he went and lived in a town called Nazareth. So was fulfilled what was said through the prophets, that he would be called a Nazarene.
+a) Repent = turn to God
+True repentance will produce fruit of repentance
+b) not relying on your Roots or Rituals
+
+3. Has God's judgement come?
+
+a) "Yes" - poured out on God's Son, Jesus
+3:17 "with him I am well pleased." -> "Suffering Servant"
+* Isaiah 42:1
+* Isaiah 53:4-6
+
+b) "No" - delayed by God's grace
+
+4. Are you prepared for Jesus' 2nd coming?
 
 
 ## Q&A
