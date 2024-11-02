@@ -10,7 +10,9 @@ Big Idea: Prepare for Jesus’ 2nd coming by turning to him and trusting in his 
 ### Reflection questions:
 1. What “Newstart” have you experienced in life? How did this change your life?
 
-2. a) Why does John the Baptist call upon people to repent? How does this relate to the coming of God’s kingdom?                     (b) When people look at your life, can they see the fruit of repentance in your life? If not, what areas do you need to repent of in your life?
+2. a) Why does John the Baptist call upon people to repent? How does this relate to the coming of God’s kingdom?
+
+b) When people look at your life, can they see the fruit of repentance in your life? If not, what areas do you need to repent of in your life?
 
 4.    a) What is the significance of God’s declaration regarding Jesus at his baptism, “This is my Son, whom I love; with him I am well pleased."? Consider the following Old Testament passages that are being quoted and their significance regarding Jesus’ identity and what he came to do.
 
