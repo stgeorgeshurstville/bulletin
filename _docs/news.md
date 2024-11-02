@@ -7,28 +7,25 @@ order: 5
 
 | Date | Event | Time |
 | ----- | ----- | ----- |
-| **OCTOBER** | 
-| SUN OCT 27 | Baptism Course #1 | 11am and 5:45pm |
-| FRI 4th - MON 7th Oct | MTS Recruit 2024 conference | |
 | **NOVEMBER** | 
 | SUN NOV 3 | Baptism Course #2 | 11am and 5:45pm |
+| SUN NOV 10 | Parenting seminar (in Mandarin) | 1:00pm - 2:30pm|
 | SUN NOV 17 | Baptism |  |
 
 
 
 
 ## General
-- If you’re in in a d-group, consider joining one. Email brian.tung@stgeorgeshurstville.org.au. 
-- Nepal Mission Trip: Brian and Bijiya will be travelling to Nepal from 28/10 for a two-week mission trip to deepen our understanding of Christianity in Nepal and explore Gospel opportunities, both in Nepal and here in our local community. We encourage you to keep them in your prayers for safety, wisdom, and fruitful connections on this mission trip to Nepal.
-- Emergency flood appeal for Nepal https://inf.org.au/safe-water-appeal-2024
-- Parenting seminar (in Mandarin): 
+- **If you’re in in a d-group, consider joining one. Email brian.tung@stgeorgeshurstville.org.au.**
+- **Nepal Mission Trip:** Brian and Bijiya is currently in Nepal for a two-week mission trip to deepen our understanding of Christianity in Nepal and explore Gospel opportunities, both in Nepal and here in our local community. We encourage you to keep them in your prayers for safety, wisdom, and fruitful connections on this mission trip to Nepal.
+- **Life Quarterly:** Latest edition of our church Life Quarterly is now available both in prints or digital version. You can download it on our website [here]https://stgeorgeshurstville.org.au/life 
+- **Emergency flood appeal for Nepal** https://inf.org.au/safe-water-appeal-2024
+- **Parenting seminar (in Mandarin):** 
 "How to lead your children's spiritual growth" - a seminar in Mandarin
 When: Sunday,10th November, 1.00-2.30pm
-Where: church chapel
+Where: Church chapel
 Speaker: Pastor Elvin Hong
 Inquiries: Pastor Elvin Hong
-
-- **Synod Summary**: The Synod Summary can be found [here](https://www.sds.asn.au/sites/default/files/Parish%20Circular.Synod%202024%20Summary.4%20October%202024.pdf?doc_id=NjkxMjg=)
 
   
 
