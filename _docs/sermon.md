@@ -52,7 +52,7 @@ True repentance will produce fruit of repentance
 
 b) not relying on your Roots or Rituals
 
-3. Has God's judgement come?
+3.Has God's judgement come?
 
 a) "Yes" - poured out on God's Son, Jesus
 3:17 "with him I am well pleased." -> "Suffering Servant"
@@ -61,7 +61,7 @@ a) "Yes" - poured out on God's Son, Jesus
 
 b) "No" - delayed by God's grace
 
-4. Are you prepared for Jesus' 2nd coming?
+4.Are you prepared for Jesus' 2nd coming?
 
 
 ## Q&A
