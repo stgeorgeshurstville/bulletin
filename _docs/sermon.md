@@ -49,6 +49,7 @@ make straight paths for him.’”
 
 a) Repent = turn to God
 True repentance will produce fruit of repentance
+
 b) not relying on your Roots or Rituals
 
 3. Has God's judgement come?
