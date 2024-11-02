@@ -28,3 +28,5 @@ b) God’s grace is shown through Jesus’ sacrifice for us as the “suffering 
 
 
 
+
+
