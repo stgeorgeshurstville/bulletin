@@ -10,35 +10,17 @@ God our refuge and strength, the author of all godliness, hear the devout prayer
 - Please pray for Brian and Bijiya as they leave for Nepal on 28 Oct.  
 - Prayer points can be found [here](https://stgeorgeshurstville.org.au/prayer)
 
-## Mission and Vision 
+## Week 1: First Sunday of the Month
 
-**Week 1 First Sunday of the Month**
-- ##Growing Out:## Our gracious Father, thank you that the Gospel is the power of salvation to all people. Thank you that even now the just has the Gospel has come to us, it is bearing fruit and growing throughout the whole world. We pray that many in our generation will hear and truly understand you grace. Please help us to be godly in life, resilient in ministry, servant-hearted, Biblical in life, thought and ministry, and able to love and minister faithfully, compassionately and effectively in different and changing contexts, cooperating with one another, humble, wise, prayerful, reflective, energetic and effective. Please help us to take our faith in Jesus beyond the walls of the church into our workplace, school, where we live and where we holiday. Please help us to have a compassion for the lost like Jesus. Please help us to be willing to go into the world, to be interested in the lives of people we meet. Please give us opportunities to represent Jesus and to speak of Him. Please give us the words to say. Please save our neighbours through us.
+- **Mission & Vision:** Our gracious Father, thank you for the privilege of calling us to join in your mission. Thank you that under you what we do makes a difference in the world. We pray therefore that you will save those around us and to transform them into the likeness of Jesus. Please use us to make disciples of the nations, love our neighbours. Please Father, glorify yourself, through our labour in your Son. We pray that we will not be consumers but contributors to the ministries that you have called us to.
+- **Global & Nation - World:** Lord, we lift up the nations to You. Grant wisdom to leaders, compassion for the oppressed, and justice for the marginalized. May Your peace reign across borders, and may hearts turn to You, the true source of hope and reconciliation.
+- **Mission Partners:** Persecuted Christians - Our Father in heaven, strengthen and protect our brothers and sisters facing persecution across the world. Fill them with courage, comfort, and an unshakeable faith. May they feel Your presence deeply and see Your hand in their lives, even in hardship.
+Compassion - Bless the work of Compassion in Sumba as they bring hope and resources to children in poverty. Provide strength to the workers, protection for each child, and may lives be transformed through God’s love and provision.
+- **Church Ministries:** Redevelopment - We commit our redevelopment plans to our Lord. Guide every decision, provide the necessary resources, and help us build a space that glorifies You and serves our community well. May it be a place of welcome and worship to everyone in our community.
+English Congregation - May God lift up each member of our English congregation. Help them to deepen their understanding of the Bible, and guide them as they represent Jesus in their daily lives. 
+- **Groups in Church:** Staff and volunteers - Thank You for our dedicated staff and volunteers. Renew their strength, bless them with wisdom, and fill them with joy in their service. May they feel valued and encouraged, knowing they are doing God’s Kingdom work together.
+Families - Father, bless each family in our church. Strengthen their bonds in love, provide for our needs, and grow our faith. May Your love, joy, and peace fill our homes, and may we be lights in our neighbourhoods, pointing people towards Jesus Christ.
 
-## For those outside St George’s 
-
-**Week 1**
-
-
-Hurstville 
-
-## Mission partners
-
-**Week 1** 
-
-
-Persecuted Christians and Gospel poor countries; Moore College 
-
-https://stgeorgeshurstville.org.au/mission-partners
-
-## Church ministry & Groups prayer points
-
-**Week 1**
-- Discipleship Groups
-- Pastoral Care Teams
-- People with Disabilities
-- Support Ministries: communication, vestry, cleaning, flower, bulletin, meals, AV etc. 
-- Those needing comfort, e.g. the sick, the grieving, the lonely, those in trouble etc. 
 
 
 
