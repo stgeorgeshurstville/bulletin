@@ -22,7 +22,8 @@ b) When people look at your life, can they see the fruit of repentance in your l
 
 b) God’s grace is shown through Jesus’ sacrifice for us as the “suffering servant”. How should this change the way you live? (See also Titus 2:11-14; Ephesians 2:8-10)
 
-images/5 days of prayer.png
+
+<img width="442" alt="5 days of prayer" src="https://github.com/user-attachments/assets/dc42661f-2515-45cc-885b-0640fd6f60ed">
 
 
 
