@@ -14,7 +14,7 @@ Big Idea: Prepare for Jesus’ 2nd coming by turning to him and trusting in his 
 
 b) When people look at your life, can they see the fruit of repentance in your life? If not, what areas do you need to repent of in your life?
 
-4. a) What is the significance of God’s declaration regarding Jesus at his baptism, “This is my Son, whom I love; with him I am well pleased."? Consider the following Old Testament passages that are being quoted and their significance regarding Jesus’ identity and what he came to do.
+3. a) What is the significance of God’s declaration regarding Jesus at his baptism, “This is my Son, whom I love; with him I am well pleased."? Consider the following Old Testament passages that are being quoted and their significance regarding Jesus’ identity and what he came to do.
 
 - Psalm 2:7;
 - 2 Samuel 7:12-16
