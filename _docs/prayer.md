@@ -3,6 +3,7 @@ title: Prayer
 order: 4
 ---
 **Prayer**
+
 Lord, we pray, absolve your from their offences; that through your bountiful goodness we may be set free from the chains of those sins which in our frailty we have committed: grant this, heavenly Father, for the sake of Jesus Christ, our Lord and Saviour.
 
 **Special Prayer Points**
@@ -16,7 +17,7 @@ Lord, we pray, absolve your from their offences; that through your bountiful goo
 - **Global & Nation - Nation:** Lord, may you grant wisdom to world leaders, compassion for the oppressed, and justice for the marginalized. May Your peace reign across borders, and may hearts turn to You, for You are the true source of hope and reconciliation.
 - **Mission Partners - Berkeley Life Centre:** Pray for Pastor Wayne’s health and also the plan to transition into retirement coming June 2025, that he would be blessed and find peace in this new season. Lord, please guide and call the right successor to lead Berkeley Life Centre with vision and faithfulness. We pray for the church community to remain strong and united during this leadership change, trusting God’s plans for their future.
 - **Church Ministries:** <ins>EAL/D</ins> - Pray for our Wed English class to be a warm, welcoming space where people from the community feel encouraged and supported. We ask for wisdom and patience for the teachers as they help students navigate language and cultural challenges. Pray that relationships formed in the class would lead to open doors for sharing the gospel.
-- 
+  
 <ins>CanCare</ins> - Pray for comfort, strength, and hope for the cancer patients and their families who attend the support group. We ask God to provide guidance for the leaders as they offer care and support to those going through difficult health journeys. We also pray that each member would find encouragement, connection, and faith as they face challenges together.
 
 <ins>Evangelism teams</ins> - Our heavenly Father, we pray for boldness, compassion, and wisdom for the evangelism teams as they reach out with the gospel in our community. Please open the hearts and minds of the people they encounter  to the message of Jesus Christ. Help us to support one another as witnesses and representatives of Jesus.
