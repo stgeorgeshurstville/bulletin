@@ -5,24 +5,22 @@ order: 7
 
 ### Key Idea
 
-Big Idea: Prepare for Jesus’ 2nd coming by turning to him and trusting in his salvation
+Big Idea: Follow Jesus who is our light/hope of salvation
 
 ### Reflection questions:
-* What “Newstart” have you experienced in life? How did this change your life?
-* a) Why does John the Baptist call upon people to repent? How does this relate to the coming of God’s kingdom?
 
-b) When people look at your life, can they see the fruit of repentance in your life? If not, what areas do you need to repent of in your life?
+1. The main point of the account of Jesus’ temptation ISN’T to teach us how to overcome temptation. Discuss.
+2. a) Jesus is the fulfilment of “the son of God” (Matthew 2:15; 3:17). What was God’s plan for this “son of God” according to his statement in Matthew 3:17 “…with him I am well pleased”? See the background to this statement in Isaiah 42:1.
 
-* a) What is the significance of God’s declaration regarding Jesus at his baptism, “This is my Son, whom I love; with him I am well pleased."? Consider the following Old Testament passages that are being quoted and their significance regarding Jesus’ identity and what he came to do.
+b) In what way is the devil tempting Jesus not to fulfil God’s plan?
 
-- Psalm 2:7;
-- 2 Samuel 7:12-16
-- Isaiah 42:1
+c) What hope does Jesus’ success in overcoming the devil’s temptations bring to us, according to what follows Jesus’ temptation in 4:12-16?
 
-b) God’s grace is shown through Jesus’ sacrifice for us as the “suffering servant”. How should this change the way you live? (See also Titus 2:11-14; Ephesians 2:8-10)
+3. a) In what way are we living in darkness and shadow of death? How does Jesus, the true and faithful son of God, give us hope?
+ 
+Colossians 1:12-14
 
-
-<img width="442" alt="5 days of prayer" src="https://github.com/user-attachments/assets/dc42661f-2515-45cc-885b-0640fd6f60ed">
+b) What is the appropriate response toward this true “son of God” according to Matthew 4:20, 22? What things in your life prevent you from whole-heartedly do this?
 
 
 
