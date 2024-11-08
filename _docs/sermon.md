@@ -20,48 +20,52 @@ order: 2
 ### Prayer
 Dear God, thank you for letting us know you. Please help us learn from your word. Help us to serve and praise you. **Amen**
 
-### Matthew 3 NIV11
-**John the Baptist Prepares the Way**
+### Matthew 4 NIV11
 
-³ In those days John the Baptist came, preaching in the wilderness of Judea ² and saying, “Repent, for the kingdom of heaven has come near.” ³ This is he who was spoken of through the prophet Isaiah:
+**Jesus Is Tested in the Wilderness**
 
-“A voice of one calling in the wilderness,
-‘Prepare the way for the Lord,
-make straight paths for him.’” 
-⁴ John’s clothes were made of camel’s hair, and he had a leather belt around his waist. His food was locusts and wild honey. ⁵ People went out to him from Jerusalem and all Judea and the whole region of the Jordan. ⁶ Confessing their sins, they were baptized by him in the Jordan River.
+Then Jesus was led by the Spirit into the wilderness to be tempted by the devil. ² After fasting forty days and forty nights, he was hungry. ³ The tempter came to him and said, “If you are the Son of God, tell these stones to become bread.”
 
-⁷ But when he saw many of the Pharisees and Sadducees coming to where he was baptizing, he said to them: “You brood of vipers! Who warned you to flee from the coming wrath? ⁸ Produce fruit in keeping with repentance. ⁹ And do not think you can say to yourselves, ‘We have Abraham as our father.’ I tell you that out of these stones God can raise up children for Abraham. ¹⁰ The ax is already at the root of the trees, and every tree that does not produce good fruit will be cut down and thrown into the fire.
+⁴ Jesus answered, “It is written: ‘Man shall not live on bread alone, but on every word that comes from the mouth of God.’ ”
 
-¹¹ “I baptize you with water for repentance. But after me comes one who is more powerful than I, whose sandals I am not worthy to carry. He will baptize you with the Holy Spirit and fire. ¹² His winnowing fork is in his hand, and he will clear his threshing floor, gathering his wheat into the barn and burning up the chaff with unquenchable fire.”
+⁵ Then the devil took him to the holy city and had him stand on the highest point of the temple. ⁶ “If you are the Son of God,” he said, “throw yourself down. For it is written:
 
-**The Baptism of Jesus**
+“‘He will command his angels concerning you,
+and they will lift you up in their hands,
+so that you will not strike your foot against a stone.’ ”
+⁷ Jesus answered him, “It is also written: ‘Do not put the Lord your God to the test.’ ”
 
-¹³ Then Jesus came from Galilee to the Jordan to be baptized by John. ¹⁴ But John tried to deter him, saying, “I need to be baptized by you, and do you come to me?”
+⁸ Again, the devil took him to a very high mountain and showed him all the kingdoms of the world and their splendor. ⁹ “All this I will give you,” he said, “if you will bow down and worship me.”
 
-¹⁵ Jesus replied, “Let it be so now; it is proper for us to do this to fulfill all righteousness.” Then John consented.
+¹⁰ Jesus said to him, “Away from me, Satan! For it is written: ‘Worship the Lord your God, and serve him only.’ ”
 
-¹⁶ As soon as Jesus was baptized, he went up out of the water. At that moment heaven was opened, and he saw the Spirit of God descending like a dove and alighting on him. ¹⁷ And a voice from heaven said, “This is my Son, whom I love; with him I am well pleased.”
+¹¹ Then the devil left him, and angels came and attended him.
+
+**Jesus Begins to Preach**
+
+¹² When Jesus heard that John had been put in prison, he withdrew to Galilee. ¹³ Leaving Nazareth, he went and lived in Capernaum, which was by the lake in the area of Zebulun and Naphtali— ¹⁴ to fulfill what was said through the prophet Isaiah:
+
+¹⁵ “Land of Zebulun and land of Naphtali,
+the Way of the Sea, beyond the Jordan,
+Galilee of the Gentiles—
+¹⁶ the people living in darkness
+have seen a great light;
+on those living in the land of the shadow of death
+a light has dawned.” 
+¹⁷ From that time on Jesus began to preach, “Repent, for the kingdom of heaven has come near.”
+
+**Jesus Calls His First Disciples**
+
+¹⁸ As Jesus was walking beside the Sea of Galilee, he saw two brothers, Simon called Peter and his brother Andrew. They were casting a net into the lake, for they were fishermen. ¹⁹ “Come, follow me,” Jesus said, “and I will send you out to fish for people.” ²⁰ At once they left their nets and followed him.
+
+²¹ Going on from there, he saw two other brothers, James son of Zebedee and his brother John. They were in a boat with their father Zebedee, preparing their nets. Jesus called them, ²² and immediately they left the boat and their father and followed him.
+
+**Jesus Heals the Sick**
+
+²³ Jesus went throughout Galilee, teaching in their synagogues, proclaiming the good news of the kingdom, and healing every disease and sickness among the people. ²⁴ News about him spread all over Syria, and people brought to him all who were ill with various diseases, those suffering severe pain, the demon-possessed, those having seizures, and the paralyzed; and he healed them. ²⁵ Large crowds from Galilee, the Decapolis, Jerusalem, Judea and the region across the Jordan followed him.
 
 ## Sermon Outline
-### Matthew 3 - Preparing for God's coming
-* God's warning - John the Baptist
-* How to prepare for God's coming - repentance
-
-a) Repent = turn to God
-True repentance will produce fruit of repentance
-
-b) not relying on your Roots or Rituals
-
-* Has God's judgement come?
-
-a) "Yes" - poured out on God's Son, Jesus
-3:17 "with him I am well pleased." -> "Suffering Servant"
-* Isaiah 42:1
-* Isaiah 53:4-6
-
-b) "No" - delayed by God's grace
-
-* Are you prepared for Jesus' 2nd coming?
+### Matthew 4 - A Tempting Offer
 
 
 ## Q&A
