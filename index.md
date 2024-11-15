@@ -9,9 +9,10 @@ title: Welcome
 [comment]: ##### "where the sentence came from, e.g. Psalm 1:1"  
 [comment]: ----------------------------------------------------  
 
-## The upside down kingdom: A Tempting Offer
+## The upside down kingdom: How to have the good life
 
-#### Jesus said; I am the light of the world; he who follows me will not walk in darkness, but will have the light of life. John 8:12
+#### You are righteous, Lord, and right are your judgments. Deal with your servant according to your steadfast love. Psalm 119:137,154
+
 ---
 - We are gathering in person! For people who can’t gather in person, you can watch online [here](https://stgeorgeshurstville.org.au/sunday-english-online)
 - If you are a **guest**, please fill in this [survey](https://tinyurl.com/SGHACsurvey) so that we know how you found it and if there’s anything we can help with.
