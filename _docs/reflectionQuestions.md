@@ -18,7 +18,7 @@ order: 7
 |  | Old Testament hope | Fulfilment in Jesus |
 | ----- | ----- | ----- |
 | Poor in Spirit 5:3 | Isaiah 61:1-1 | Matthew 11:4-6 |
-| Mourn | Isaiah 61:2-3 | Luke 2:25-32, 2 Corinthians 1:3-5 |
+| Mourn 5:4 | Isaiah 61:2-3 | Luke 2:25-32, 2 Corinthians 1:3-5 |
 | Meek 5:5 | Psalm 37 | 1 Peter 1:3-5 | 
 | Hunger and thirst for righteousness | Isaiah 51: 1-6 | Romans 3:21-22, 2 Peter 3:10-13 | 
 | Merciful 5:7 | Hosea 6: 4-10 | Ephesians 2:4-5, Matthew 18:21-35 | 
