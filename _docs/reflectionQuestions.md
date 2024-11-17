@@ -19,6 +19,13 @@ order: 7
 | ----- | ----- | ----- |
 | Poor in Spirit 5:3 | Isaiah 61:1-1 | Matthew 11:4-6 |
 | Mourn | Isaiah 61:2-3 | Luke 2:25-32, 2 Corinthians 1:3-5 |
-| SUN 24 NOV | Prayer meeting | 2:30pm | 
+| Meek 5:5 | Psalm 37 | 1 Peter 1:3-5 | 
+| Hunger and thirst for righteousness | Isaiah 51: 1-6 | Romans 3:21-22, 2 Peter 3:10-13 | 
+| Merciful 5:7 | Hosea 6: 4-10 | Ephesians 2:4-5, Matthew 18:21-35 | 
+| Pure in heart 5:8 | Psalm 24:1-6 | Hebrews 10:19-22 | 
+| Peacemaker 5:9 | Psalm 34:11-15 | Colossians 1:20, Colossians 3:12-15 | 
+| Persecuted because of righteousness 5:10 | Psalm 37:12 | 1 Peter 1:3-7, 1 Peter 4:13-14 | 
+
+
 
 
