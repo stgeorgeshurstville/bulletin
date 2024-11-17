@@ -15,6 +15,10 @@ order: 7
 - What are the Old Testament hopes re each of the beatitudes?
 - How does Jesus fulfil the hopes and thus bring us “blessedness”?
 
-
+|  | Old Testament hope | Fulfilment in Jesus |
+| ----- | ----- | ----- |
+| Poor in Spirit 5:3 | Isaiah 61:1-1 | Matthew 11:4-6 |
+| Mourn | Isaiah 61:2-3 | Luke 2:25-32, 2 Corinthians 1:3-5 |
+| SUN 24 NOV | Prayer meeting | 2:30pm | 
 
 
