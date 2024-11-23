@@ -4,24 +4,32 @@ order: 4
 ---
 **Prayer**
 
-Almighty and everlasting God, whose will it is to restore all things in your well-beloved Son, the King of kings and Lord of lords: Mercifully grant that the peoples of the earth, divided and enslaved by sin, may be freed and brought together under his most gracious rule; who lives and reigns with you and the Holy Spirit, one God, now and for ever. Amen.
+Stir up, Lord, the wills of your faithful people, that they may produce abundantly the fruit of good works, and receive your abundant reward; through Jesus Christ our Lord. Amen.
 
 **Special Prayer Points**
-- Please pray for Brian and Bijiya as they are in Nepal on Mission Trip.
+- Prayer from Matthew 5:17-48
+Almighty and merciful Father, the world is in darkness, needing your light. We are saddened and sorry that through our actions and character we have dimmed that light. We long for the world to glorify you, but instead, the world blasphemes against you because of your people.
+Thank you for Jesus, the Righteous One, who by His death and Spirit has made us righteous. Thank you that He has purified our unrighteousness by His blood. Thank you that by His Spirit, He is making for Himself a righteous people—a people known for the beauty of their love, the integrity and faithfulness of their words, and their mercy, kindness, and compassion. We love your word. Help us to hide it in our hearts and bear the fruit of righteousness in our lives. Amen.
+- Mission week and Christmas events
 - Prayer points can be found [here](https://stgeorgeshurstville.org.au/prayer)
 
-## Week 3: Third Sunday of the Month
+## Week 4: Fourth Sunday of the Month
 
-- **Mission & Vision - For Growing Deep:** Oh Lord, how We love your law! Your word is a lamp to our feet and a light for our path. Thank you that Jesus has given us the Word of Eternal Life. Thank you that heaven and earth may pass away but our Lord’s words will never pass away. Please help us not to conform to the pattern of this world, but be transformed by the renewing of our minds by your Word. Please help us to deepen our understanding of and obedience to your Word.
-- **Global & Nation - Government:** Lord, we pray for our government leaders. Grant them wisdom, integrity, and compassion as they make decisions that impact our communities. May they seek justice and peace, and may Your guidance be evident in all their actions.
-- **Mission Partners - JC in SE Asia:** We pray for JC, our mission partner in Asia, serving in a place where the gospel cannot be openly shared. Protect him, give him courage, and provide opportunities for Your love and truth to reach those seeking hope. May his work bear fruit, even in challenging circumstances.
-- **Church Ministries:** <ins>Children</ins> - Heavenly Father, we pray for the children in our church and community. Surround them with Your love, protect their hearts and minds from the temptations of this world, and help them grow in faith and wisdom. May they know Your presence and love from an early age, and put their trust in Jesus.
+- **Mission & Vision - For Growing Out:** Our gracious Father, thank you that the Gospel is the power of salvation to all people. Thank you that even now the just has the Gospel has come to us, it is bearing fruit and growing throughout the whole world. We pray that many in our generation will hear and truly understand you grace. Please help us to be godly in life, resilient in ministry, servant-hearted, Biblical in life, thought and ministry, and able to love and minister faithfully, compassionately and effectively in different and changing contexts, cooperating with one another, humble, wise, prayerful, reflective, energetic and effective. Please help us to take our faith in Jesus beyond the walls of the church into our workplace, school, where we live and where we holiday. Please help us to have a compassion for the lost like Jesus. Please help us to be willing to go into the world, to be interested in the lives of people we meet. Please give us opportunities to represent Jesus and to speak of Him. Please give us the words to say. Please save our neighbours through us.
+- **Global and Nation - Local**
+- **Mission Partners**  <ins>High school scripture & chaplaincy</ins>
+<ins>Mathys and PNG<ins>
+
+- **Church Ministries:** <ins>Discipleship groups</ins>
   
-<ins>Youth</ins> - We pray for our high school youth. In a world full of pressures, give them strength to stay rooted in Your truth. Guide them in their studies, friendships, and choices, and help them shine as a light for Jesus.
+<ins>Pastoral care teams</ins>
 
-<ins>SRE</ins> - Lord, we thank you for the opportunity to teach the Bible in schools. Bless the teachers and volunteers involved, and open the hearts of the students. May this ministry plant seeds of faith and truth that bear fruit in their lives.
+<ins>People with disabilities</ins>
 
-- **Groups in Church - Cantonese congregation:** Gracious God, we pray for our Mandarin congregation. Unite them in faith and purpose, and empower them to grow in their walk with Jesus. May they be salt and light in their families and community, bringing many to know the hope and love of Jesus.
+<ins>Support ministries: communication, vestry, cleaning, flower, bulletin, meals, AV, etc.<ins>
 
-- **Special Items & Events - English Baptism Candidates:** Lift up those preparing for baptism in the English congregation. Pray that they deepen their relationship with Jesus Christ and that their faith shines as a witness to others, bringing encouragement to our church community.
+- **Groups in Church - Nepalese church**
+
+<ins>Singles, widows and orphans<ins>
+
 
