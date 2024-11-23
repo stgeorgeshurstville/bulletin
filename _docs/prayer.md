@@ -7,7 +7,7 @@ order: 4
 Stir up, Lord, the wills of your faithful people, that they may produce abundantly the fruit of good works, and receive your abundant reward; through Jesus Christ our Lord. Amen.
 
 **Special Prayer Points**
-<ins>Prayer from Matthew 5:17-48<ins>
+- <ins>Prayer from Matthew 5:17-48<ins>
 Almighty and merciful Father, the world is in darkness, needing your light. We are saddened and sorry that through our actions and character we have dimmed that light. We long for the world to glorify you, but instead, the world blasphemes against you because of your people.
 Thank you for Jesus, the Righteous One, who by His death and Spirit has made us righteous. Thank you that He has purified our unrighteousness by His blood. Thank you that by His Spirit, He is making for Himself a righteous people—a people known for the beauty of their love, the integrity and faithfulness of their words, and their mercy, kindness, and compassion. We love your word. Help us to hide it in our hearts and bear the fruit of righteousness in our lives. Amen.
 - Mission week and Christmas events
