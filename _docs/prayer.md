@@ -34,6 +34,7 @@ Thank you for Jesus, the Righteous One, who by His death and Spirit has made us 
 <ins>Support ministries: communication, vestry, cleaning, flower, bulletin, meals, AV, etc.<ins>
 
 - **Groups in Church:**
+
 <ins>Nepalese church<ins>
 
 <ins>Singles, widows and orphans<ins>
