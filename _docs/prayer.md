@@ -10,8 +10,8 @@ Stir up, Lord, the wills of your faithful people, that they may produce abundant
 - **Prayer from Matthew 5:17-48**
 Almighty and merciful Father, the world is in darkness, needing your light. We are saddened and sorry that through our actions and character we have dimmed that light. We long for the world to glorify you, but instead, the world blasphemes against you because of your people.
 Thank you for Jesus, the Righteous One, who by His death and Spirit has made us righteous. Thank you that He has purified our unrighteousness by His blood. Thank you that by His Spirit, He is making for Himself a righteous people—a people known for the beauty of their love, the integrity and faithfulness of their words, and their mercy, kindness, and compassion. We love your word. Help us to hide it in our hearts and bear the fruit of righteousness in our lives. Amen.
-- Mission week and Christmas events
-- Prayer points can be found [here](https://stgeorgeshurstville.org.au/prayer)
+- **Mission week and Christmas events**
+- **Prayer points can be found [here](https://stgeorgeshurstville.org.au/prayer)**
 
 ## Week 4: Fourth Sunday of the Month
 
@@ -23,7 +23,6 @@ Thank you for Jesus, the Righteous One, who by His death and Spirit has made us 
 <ins>Mathys and PNG<ins>
 
 - **Church Ministries:**
-
 <ins>Discipleship groups<ins>
 
 <ins>Pastoral care teams</ins>
@@ -33,7 +32,6 @@ Thank you for Jesus, the Righteous One, who by His death and Spirit has made us 
 <ins>Support ministries: communication, vestry, cleaning, flower, bulletin, meals, AV, etc.<ins>
 
 - **Groups in Church:**
-
 <ins>Nepalese church<ins>
 
 <ins>Singles, widows and orphans<ins>
