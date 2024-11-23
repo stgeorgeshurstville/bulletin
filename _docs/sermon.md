@@ -51,7 +51,7 @@ Dear God, thank you for letting us know you. Please help us learn from your word
 
 
 ## Sermon Outline
-### Matthew 5:1-16 - Going all the way
+### Going all the way
 
 1. What is St George’s known forThe Blessed/Good Life comes through knowing Jesus
 2.  Two problems Jesus addresses
