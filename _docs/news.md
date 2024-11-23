@@ -9,7 +9,6 @@ order: 5
 | ----- | ----- | ----- |
 | **NOVEMBER** | 
 | FRI 15 NOV | Taste of Friday Youth for Yr 6 students | Till end of Term 4 |
-| SUN 17 NOV | Baptism | 4pm |
 | SUN 24 NOV | Prayer meeting | 2:30pm | 
 | **DECEMBER** | 
 | 8 DEC - 15 DEC | Mission Week |  |
