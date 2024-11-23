@@ -59,7 +59,7 @@ Dear God, thank you for letting us know you. Please help us learn from your word
 ## Sermon Outline
 ### Going all the way
 
-1. What is St George’s known forThe Blessed/Good Life comes through knowing Jesus
+1. What is St George’s known for
 2.  Two problems Jesus addresses
 3.  Case studies
 4.  The righteousness of God
