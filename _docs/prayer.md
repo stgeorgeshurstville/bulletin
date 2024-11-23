@@ -19,21 +19,16 @@ Thank you for Jesus, the Righteous One, who by His death and Spirit has made us 
 - **Global and Nation - Local**
 - **Mission Partners:**  
 <ins>High school scripture & chaplaincy<ins>
-
 <ins>Mathys and PNG<ins>
 
 - **Church Ministries:**
 <ins>Discipleship groups<ins>
-
 <ins>Pastoral care teams</ins>
-
 <ins>People with disabilities</ins>
-
 <ins>Support ministries: communication, vestry, cleaning, flower, bulletin, meals, AV, etc.<ins>
 
 - **Groups in Church:**
 <ins>Nepalese church<ins>
-
 <ins>Singles, widows and orphans<ins>
 
 
