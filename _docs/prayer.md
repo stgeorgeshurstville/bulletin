@@ -13,11 +13,11 @@ Stir up, Lord, the wills of your faithful people, that they may produce abundant
 
 ## Week 4: Fourth Sunday of the Month
 
-| Date | Event | Time |
-| ----- | ----- | ----- |
-| **DECEMBER** | 
-| 8 DEC - 15 DEC | Mission Week |  |
-| SAT 14 DEC | Christmas Market | 10am - 2pm |
+| **Mission & Vision** | Mission | 
+| **Global & Nation** | World | 
+| **Mission Partners** | Persecuted Christians, Compassion |
+| **Church Ministries** | Redevelopment, English Congregation |  
+| **Groups in Church** | Staff and volunteers, Families | 
 
 <ins>High school scripture & chaplaincy<ins>
 
