@@ -27,4 +27,12 @@ We can approach God with our prayers and praises because the Lord Jesus has open
 
 Most merciful God, we humbly admit that we need your help. We confess that we have wandered from your way: we have done wrong, and we have failed to do what is right. You alone can save us. Have mercy on us: wipe out our sins and teach us to forgive others. Bring forth in us the fruit of the Spirit that we may live as disciples of Christ. This we ask in the name of Jesus our Saviour. Amen.
 
-Most merciful God, we humbly admit that we need your help. We confess that we have wandered from your way: we have done wrong, and we have failed to do what is right. You alone can save us. Have mercy on us: wipe out our sins and teach us to forgive others. Bring forth in us the fruit of the Spirit that we may live as disciples of Christ. This we ask in the name of Jesus our Saviour. Amen.
+**Assurance:**
+
+For God so loved the world that he gave his one and only Son, that whoever believes in him shall not perish but have eternal life (John 3:16). 
+God is slow to anger and full of compassion. He forgives all who humbly repent and trust in his Son as Saviour and Lord. There is therefore now no condemnation for those who are in Christ Jesus.  Amen.
+
+**Consecration**
+
+God is slow to anger and full of compassion. He forgives all who humbly repent and trust in his Son as Saviour and Lord. There is therefore now no condemnation for those who are in Christ Jesus.  Amen.
+
