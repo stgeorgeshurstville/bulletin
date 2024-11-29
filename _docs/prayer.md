@@ -11,7 +11,7 @@ Stir up, Lord, the wills of your faithful people, that they may produce abundant
 - **Mission week and Christmas events:** Think of someone who needs to know Jesus and pray for them. 
 - **Prayer points can be found [here](https://stgeorgeshurstville.org.au/prayer)**
 
-## Week 4: Fourth Sunday of the Month
+## Week 1: The First Sunday in Advent (Your redemption if near at hand) 
 
 - **Mission & Vision:** | Mission | 
 - **Global & Nation:** | World | 
