@@ -13,12 +13,11 @@ Stir up, Lord, the wills of your faithful people, that they may produce abundant
 
 ## Week 4: Fourth Sunday of the Month
 
-| **Mission & Vision** | Mission | 
-| ----- | ----- | ----- |
-| **Global & Nation** | World | 
-| **Mission Partners** | Persecuted Christians, Compassion |
-| **Church Ministries** | Redevelopment, English Congregation |  
-| **Groups in Church** | Staff and volunteers, Families | 
+| **Mission & Vision | Mission | 
+| **Global & Nation | World | 
+| **Mission Partners | Persecuted Christians, Compassion |
+| **Church Ministries | Redevelopment, English Congregation |  
+| **Groups in Church | Staff and volunteers, Families | 
 
 
 | Date | Event | Time |
