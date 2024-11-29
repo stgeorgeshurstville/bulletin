@@ -9,9 +9,10 @@ title: Welcome
 [comment]: ##### "where the sentence came from, e.g. Psalm 1:1"  
 [comment]: ----------------------------------------------------  
 
-## The upside down kingdom: Going all the way
+## The upside down kingdom: The secret of God’s reward
 
-#### Worthy is the Lamb who was slain to receive power and wealth and wisdom and might and honour and glory and blessing. To him be glory and dominion for ever and ever. Revelation 5.12;1.6
+
+#### To you, O Lord, I lift my soul, O my God, in your I trust, let me not be put to shame; let not my enemies exult over me; let none that wait for you nbe put to shame. Psalm 25:1-3a
 
 ---
 - We are gathering in person! For people who can’t gather in person, you can watch online [here](https://stgeorgeshurstville.org.au/sunday-english-online)
