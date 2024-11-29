@@ -13,9 +13,11 @@ Stir up, Lord, the wills of your faithful people, that they may produce abundant
 
 ## Week 4: Fourth Sunday of the Month
 
-- **Mission & Vision - For Growing Out:** Our gracious Father, thank you that the Gospel is the power of salvation to all people. Thank you that even now the just has the Gospel has come to us, it is bearing fruit and growing throughout the whole world. We pray that many in our generation will hear and truly understand you grace. Please help us to be godly in life, resilient in ministry, servant-hearted, Biblical in life, thought and ministry, and able to love and minister faithfully, compassionately and effectively in different and changing contexts, cooperating with one another, humble, wise, prayerful, reflective, energetic and effective. Please help us to take our faith in Jesus beyond the walls of the church into our workplace, school, where we live and where we holiday. Please help us to have a compassion for the lost like Jesus. Please help us to be willing to go into the world, to be interested in the lives of people we meet. Please give us opportunities to represent Jesus and to speak of Him. Please give us the words to say. Please save our neighbours through us.
-- **Global and Nation - Local**
-- **Mission Partners:**
+| Date | Event | Time |
+| ----- | ----- | ----- |
+| **DECEMBER** | 
+| 8 DEC - 15 DEC | Mission Week |  |
+| SAT 14 DEC | Christmas Market | 10am - 2pm |
 
 <ins>High school scripture & chaplaincy<ins>
 
