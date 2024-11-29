@@ -30,9 +30,10 @@ Most merciful God, we humbly admit that we need your help. We confess that we ha
 **Assurance:**
 
 For God so loved the world that he gave his one and only Son, that whoever believes in him shall not perish but have eternal life (John 3:16). 
+
 God is slow to anger and full of compassion. He forgives all who humbly repent and trust in his Son as Saviour and Lord. There is therefore now no condemnation for those who are in Christ Jesus.  Amen.
 
 **Consecration**
 
-God is slow to anger and full of compassion. He forgives all who humbly repent and trust in his Son as Saviour and Lord. There is therefore now no condemnation for those who are in Christ Jesus.  Amen.
+On the night he was betrayed, Jesus took bread and, when he had given thanks, he broke it, then gave it to his disciples, saying, ‘Take and eat; this is my body which is given for you; do this in remembrance of me.’ In the same way after the meal, Jesus took the cup and, when he had given thanks, he gave it to them, saying, ‘Drink from this, all of you. This is my blood of the new covenant, which is poured out for you and for many for the forgiveness of sins. Do this, as often as you drink it, in remembrance of me.’
 
