@@ -19,25 +19,12 @@ Stir up, Lord, the wills of your faithful people, that they may produce abundant
 -  **Church Ministries:** | Redevelopment, English Congregation |  
 -  **Groups in Church:** | Staff and volunteers, Families | 
 
+**Introduction:**
 
-<ins>High school scripture & chaplaincy<ins>
+We can approach God with our prayers and praises because the Lord Jesus has opened the way for us in his death and resurrection. We do so, however, as those who continue to sin, and need to seek God's forgiveness and help to serve him more faithfully. So, in the words of Hebrews 4:16, ‘Let us approach God's throne of grace with confidence, so that we may receive mercy, and find grace to help us in our time of need.'
 
-<ins>Mathys and PNG<ins>
+**Confession:**
 
-- **Church Ministries:**
+Most merciful God, we humbly admit that we need your help. We confess that we have wandered from your way: we have done wrong, and we have failed to do what is right. You alone can save us. Have mercy on us: wipe out our sins and teach us to forgive others. Bring forth in us the fruit of the Spirit that we may live as disciples of Christ. This we ask in the name of Jesus our Saviour. Amen.
 
-<ins>Discipleship groups<ins>
-
-<ins>Pastoral care teams</ins>
-
-<ins>People with disabilities</ins>
-
-<ins>Support ministries: communication, vestry, cleaning, flower, bulletin, meals, AV, etc.<ins>
-
-- **Groups in Church:**
-
-<ins>Nepalese church<ins>
-
-<ins>Singles, widows and orphans<ins>
-
-
+Most merciful God, we humbly admit that we need your help. We confess that we have wandered from your way: we have done wrong, and we have failed to do what is right. You alone can save us. Have mercy on us: wipe out our sins and teach us to forgive others. Bring forth in us the fruit of the Spirit that we may live as disciples of Christ. This we ask in the name of Jesus our Saviour. Amen.
