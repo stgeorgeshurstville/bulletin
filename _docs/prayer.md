@@ -13,11 +13,11 @@ Stir up, Lord, the wills of your faithful people, that they may produce abundant
 
 ## Week 1: The First Sunday in Advent (Your redemption if near at hand) 
 
-- **Mission & Vision:** | Mission | 
-- **Global & Nation:** | World | 
--  **Mission Partners:** | Persecuted Christians, Compassion |
--  **Church Ministries:** | Redevelopment, English Congregation |  
--  **Groups in Church:** | Staff and volunteers, Families | 
+- **Mission & Vision** | Mission 
+- **Global & Nation** | World
+-  **Mission Partners** | Persecuted Christians, Compassion
+-  **Church Ministries** | Redevelopment, English Congregation 
+-  **Groups in Church** | Staff and volunteers, Families 
 
 **Introduction:**
 
