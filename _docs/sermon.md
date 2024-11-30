@@ -47,16 +47,14 @@ but deliver us from the evil one. ’
 ¹⁶ “When you fast, do not look somber as the hypocrites do, for they disfigure their faces to show others they are fasting. Truly I tell you, they have received their reward in full. ¹⁷ But when you fast, put oil on your head and wash your face, ¹⁸ so that it will not be obvious to others that you are fasting, but only to your Father, who is unseen; and your Father, who sees what is done in secret, will reward you.
 
 
-
-
 ## Sermon Outline
-### Going all the way
+### [Going all the way]
 
-1. What is St George’s known for
-2.  Two problems Jesus addresses
-3.  Case studies
-4.  The righteousness of God
-
+1. Jesus’ mission
+2.  Our righteousness 
+3.  Recognise what’s in our heart
+4.  Alien righteousness
+5.  Conclusions 
 
 
 ## Q&A
