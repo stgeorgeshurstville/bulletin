@@ -48,7 +48,7 @@ but deliver us from the evil one. ’
 
 
 ## Sermon Outline
-### [Going all the way]
+###
 
 1. Jesus’ mission
 2.  Our righteousness 
