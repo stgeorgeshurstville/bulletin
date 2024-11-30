@@ -48,7 +48,7 @@ but deliver us from the evil one. ’
 
 
 ## Sermon Outline
-###
+### The secret of God's reward
 
 1. Jesus’ mission
 2.  Our righteousness 
