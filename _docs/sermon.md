@@ -38,13 +38,12 @@ Dear God, thank you for letting us know you. Please help us learn from your word
 
 
 ## Sermon Outline
-### The secret of God's reward
+### 
 
-1. Jesus’ mission
-2.  Our righteousness 
-3.  Recognise what’s in our heart
-4.  Alien righteousness
-5.  Conclusions 
+1. Treasures
+2. Same
+3. Different
+4. What to invest in
 
 
 ## Q&A
