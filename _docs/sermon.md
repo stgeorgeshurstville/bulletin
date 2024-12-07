@@ -38,7 +38,7 @@ Dear God, thank you for letting us know you. Please help us learn from your word
 
 
 ## Sermon Outline
-### 
+[###]
 
 1. Treasures
 2. Same
