@@ -19,15 +19,11 @@ Stir up, Lord, the wills of your faithful people, that they may produce abundant
  
  **Mission Partners** | Berkeley Life Centre, Hoi-Yan Shea in Japan
  
- **Church Ministries** | Cancare: Heavenly Father, we praise You for Your mercy and kindness. You understand what it means to face trials and suffering, and You sympathize with our weaknesses. We thank You for using CanCare to support cancer patients, both current and former, as well as their families and friends. Through Christ's love, they serve and walk alongside those navigating the challenging journey of cancer. Lord, we ask for Your continued guidance upon the CanCare team. Grant them wisdom, understanding, and unity of heart as they care for this community. May the peace of our Lord Jesus rest upon every cancer patient during this Christmas season, bringing comfort and hope.
+**Church Ministries:** |
 
- Evangelism Teams: 
- 
- **Groups in Church** | Staff and volunteers, Families 
+Cancare: Heavenly Father, we praise You for Your mercy and kindness. You understand what it means to face trials and suffering, and You sympathize with our weaknesses. We thank You for using CanCare to support cancer patients, both current and former, as well as their families and friends. Through Christ's love, they serve and walk alongside those navigating the challenging journey of cancer. Lord, we ask for Your continued guidance upon the CanCare team. Grant them wisdom, understanding, and unity of heart as they care for this community. May the peace of our Lord Jesus rest upon every cancer patient during this Christmas season, bringing comfort and hope.
 
-**Introduction:**
-
-We can approach God with our prayers and praises because the Lord Jesus has opened the way for us in his death and resurrection. We do so, however, as those who continue to sin, and need to seek God's forgiveness and help to serve him more faithfully. So, in the words of Hebrews 4:16, ‘Let us approach God's throne of grace with confidence, so that we may receive mercy, and find grace to help us in our time of need.'
+ Evangelism Teams: Lord, we thank You for the abundant opportunities You have given us this Christmas season to serve You and proclaim Your gospel. We commit all the gatherings and activities in December into Your hands, asking for Your protection and guidance in every detail. May these arrangements glorify Your name and touch many hearts to receive Your love and salvation. We pray for the Mission Week from December 8 to 15 that You would inspire more brothers and sisters to participate eagerly. Let these events become opportunities to share the gospel, bless the community, and build each other up in faith. We also commit the Christmas Market on December 14 to You, asking that it serve as a bridge to connect with the community, introduce them to the church, and open doors for sharing the gospel. May this event also strengthen unity among the brothers and sisters as they serve together with one heart. We pray for the outdoor picnic service and church dinner on December 15 that these gatherings would display the unity of the church and become a testimony to Your glory. Lastly, we pray for the Mandarin Christmas carol service on December 24 and the Christmas Day services on December 25. Please prepare the hearts of all who attend, especially new friends, that they may hear the good news of the gospel, feel Your love and presence, and find eternal hope in Jesus Christ. 
 
 **Confession:**
 
