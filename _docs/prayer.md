@@ -7,11 +7,11 @@ order: 4
 Stir up, Lord, the wills of your faithful people, that they may produce abundantly the fruit of good works, and receive your abundant reward; through Jesus Christ our Lord. Amen.
 
 **Special Prayer Points**
-- **Pray from the sermon** - the Lord’s prayer. 
+- **Prayer from this week’s passage:** Dear God, in your kindness and generosity, you have given us everything. We have been deceived into thinking that there’s not enough, that you won’t provide, that we need to compete and hoard to be safe. We worry about many things. We hurt ourselves and others. Please forgive us. Thank you that you have created a world of abundance. Thank you that you are still graciously providing to us. Thank you that in Jesus we have the most important thing - to be your children. When we worry, remind us of your promises in Jesus. Help us to make your glory our greatest ambition and our Lord Jesus our greatest treasure. Amen. 
 - **Mission week and Christmas events:** Think of someone who needs to know Jesus and pray for them. 
 - **Prayer points can be found [here](https://stgeorgeshurstville.org.au/prayer)**
 
-## Week 1: The First Sunday in Advent (Your redemption if near at hand) 
+## Week 2: Second Sunday of the month
 
  **Mission & Vision** | Mission 
  
