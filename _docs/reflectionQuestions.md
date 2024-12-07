@@ -8,9 +8,8 @@ order: 7
 Make the glory of God our greatest ambition and the Lord Jesus our greatest treasure.  
 
 ### Reflection questions:
-1.
-- Do you struggle with worry and anxiety? What are you worrying about at the moment? 
-- What sort of advice do you hear about worrying? How are they helpful/unhelpful? 
+1. - Do you struggle with worry and anxiety? What are you worrying about at the moment? 
+   - What sort of advice do you hear about worrying? How are they helpful/unhelpful? 
 
 2. Jesus turns to talking about ‘treasure’ and worry. How is this related to the ‘righteousness’ that he’s been talking about? 
 
