@@ -9,10 +9,10 @@ title: Welcome
 [comment]: ##### "where the sentence came from, e.g. Psalm 1:1"  
 [comment]: ----------------------------------------------------  
 
-## The upside down kingdom: The secret of God’s reward
+## The Upside Down Kingdom: Treasures of the Heart
 
 
-#### To you, O Lord, I lift my soul, O my God, in your I trust, let me not be put to shame; let not my enemies exult over me; let none that wait for you nbe put to shame. Psalm 25:1-3a
+#### Hear the words of the prophet Isaiah: Shake yourself from the dust, says the Lord, arise, O captive Jerusalem; loose the bonds from your neck, O captive daughter of Zion. Isaiah 52:2
 
 ---
 - We are gathering in person! For people who can’t gather in person, you can watch online [here](https://stgeorgeshurstville.org.au/sunday-english-online)
