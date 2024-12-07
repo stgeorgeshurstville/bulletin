@@ -13,13 +13,15 @@ Stir up, Lord, the wills of your faithful people, that they may produce abundant
 
 ## Week 2: Second Sunday of the month
 
- **Mission & Vision** | Mission 
+ **Mission & Vision** | For Growing Up 
  
- **Global & Nation** | World
+ **Global & Nation** | Nation
  
- **Mission Partners** | Persecuted Christians, Compassion
+ **Mission Partners** | Berkeley Life Centre, Hoi-Yan Shea in Japan
  
- **Church Ministries** | Redevelopment, English Congregation 
+ **Church Ministries** | Cancare: Heavenly Father, we praise You for Your mercy and kindness. You understand what it means to face trials and suffering, and You sympathize with our weaknesses. We thank You for using CanCare to support cancer patients, both current and former, as well as their families and friends. Through Christ's love, they serve and walk alongside those navigating the challenging journey of cancer. Lord, we ask for Your continued guidance upon the CanCare team. Grant them wisdom, understanding, and unity of heart as they care for this community. May the peace of our Lord Jesus rest upon every cancer patient during this Christmas season, bringing comfort and hope.
+
+ Evangelism Teams: 
  
  **Groups in Church** | Staff and volunteers, Families 
 
