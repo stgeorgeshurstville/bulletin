@@ -13,11 +13,11 @@ Stir up, Lord, the wills of your faithful people, that they may produce abundant
 
 ## Week 2: Second Sunday of the month
 
- **Mission & Vision** | For Growing Up 
+**Mission & Vision** | For Growing Up 
  
- **Global & Nation** | Nation
+**Global & Nation** | Nation
  
- **Mission Partners** | Berkeley Life Centre, Hoi-Yan Shea in Japan
+**Mission Partners** | Berkeley Life Centre, Hoi-Yan Shea in Japan
  
 **Church Ministries:** |
 
