@@ -3,38 +3,27 @@ title: Reflection Questions
 order: 7
 ---
 
-### MIG Idea
+### BIG Idea
 
-Jesus has come to save us from our righteousness. 
+Make the glory of God our greatest ambition and the Lord Jesus our greatest treasure.  
 
 ### Reflection questions:
-1.  ‘“All said and done, my friends, it will be an ill day for us if what most humans mean by ‘religion’ ever vanishes from the Earth. It can still send us the truly delicious sins. The fine flower of unholiness can grow only in the close neighbourhood of the Holy. Nowhere do we tempt so successfully as on the very steps of the altar.”’ (C S Lewis, Screwtape Letters) 
+1. - Do you struggle with worry and anxiety? What are you worrying about at the moment? 
+- What sort of advice do you hear about worrying? How are they helpful/unhelpful? 
 
-- Discuss
+2. Jesus turns to talking about ‘treasure’ and worry. How is this related to the ‘righteousness’ that he’s been talking about? 
 
-2. Please read Matthew 6:1-18. 
-- What are the acts of righteousness? 
-- What pattern can you see about these acts? 
-- What is Jesus not  saying? What is he saying? 
-- What is Jesus revealing about our hearts? 
-- What is the reward from God (see Matthew 5:1-12)? How do we get this ‘reward’? 
-- How is this not salvation by works (try harder)? 
+3. According to Jesus, there are two types of treasures: treasures on earth and treasures in heaven.  
 
-3. Please look at each of the case studies in Matt 5:21-48. 
-- Is there a pattern to these?
-- How is Jesus revealing what’s in our hearts in these case studies?
-- What does Jesus reveal about God?
-- How does Jesus fulfil the Law and the Prophets?
-- What does holiness/righteousness look like in these areas of life:
-a) Sex and marriage
-b) Our words
-c) Conflict
+What is a ‘treasure’?
 
-4. In what ways might you be stealing glory from God? 
+How are they similar? How are they different? 
 
-- How can you be vigilant and alert? 
-- What does it mean for you to surrender to JEsus? 
-- How might you make God’s glory your ambition and reason for doing everything? What might this look like? 
+What does it mean to store up treasures in heaven? What doesn’t it mean?
+
+4. What is Jesus teaching about worrying? 
+
+If someone comes to you with anxiety and worries, what might be unhelpful for you to say? How might you lovingly and truthfully respond to them?  
 
 
 
