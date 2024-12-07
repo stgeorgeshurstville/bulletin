@@ -18,6 +18,7 @@ Make the glory of God our greatest ambition and the Lord Jesus our greatest trea
    - How are they similar? How are they different? 
    - What does it mean to store up treasures in heaven? What doesn’t it mean?
 
+
 4. - What is Jesus teaching about worrying? 
    - If someone comes to you with anxiety and worries, what might be unhelpful for you to say? How might you lovingly and truthfully respond to them?  
 
