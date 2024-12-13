@@ -14,7 +14,7 @@ Lord Jesus Christ, at your first coming you sent your messenger to prepare the w
 
 ## Week 3: Third Sunday of the month
 
-| **Item** | **Prayer** |
+| Item | Prayer |
 | -------- | ---------- |
 | **Mission & Vision** | _For Growing Deep_ |
 | **Global & Nation** | _Government_ |
