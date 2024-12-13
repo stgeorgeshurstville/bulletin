@@ -9,13 +9,11 @@ order: 5
 | ----- | ----- | ----- |
 | **DECEMBER** | 
 | 8 DEC - 15 DEC | Mission Week |  |
-| SAT 14 DEC | Christmas Market | 10am - 2pm |
 
 
 
 ## General
 - **[What are you doing for God’s glory in 2025?](https://forms.gle/dshYacLA1kB8xpkn7)**
-- **Christmas Market Day 14/12:** We invite everyone to join us on December 14th from 10 AM to 2 PM for our Christmas Market. This is a great opportunity to connect with the community, share the Gospel, and serve together to help those in need. You can participate by setting up a booth, joining our outreach team, inviting friends, or supporting the charity sale. In addition, we encourage everyone to download the invitation for this Christmas Market or to sign up for stalls/volunteering [here](https://stgeorgeshurstville.org.au/christmas)  and invite friends and neighbours through social media and other channels. For more information, please contact Howard Law or your congregation pastor.
 - **English Assistant Minister:** We’re excited to announce that Rev. Ben Pantlin will be joining our staff team as English Assistant Minister on February 1, 2025. Ben brings a wealth of experience in ministry, and we look forward to seeing how God will use him to bless our parish. Please join us in praying for Ben and his family as they prepare for this transition.
 
   
