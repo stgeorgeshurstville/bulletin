@@ -5,22 +5,17 @@ order: 7
 
 ### BIG Idea
 
-Make the glory of God our greatest ambition and the Lord Jesus our greatest treasure.  
+Sin blinds us to our sin and our need for salvation from Jesus. 
 
 ### Reflection questions:
-1. - Do you struggle with worry and anxiety? What are you worrying about at the moment? 
-   - What sort of advice do you hear about worrying? How are they helpful/unhelpful? 
-
-2. Jesus turns to talking about ‘treasure’ and worry. How is this related to the ‘righteousness’ that he’s been talking about? 
-
-3. - According to Jesus, there are two types of treasures: treasures on earth and treasures in heaven.  
-   - What is a ‘treasure’?
-   - How are they similar? How are they different? 
-   - What does it mean to store up treasures in heaven? What doesn’t it mean?
-
-
-4. - What is Jesus teaching about worrying? 
-   - If someone comes to you with anxiety and worries, what might be unhelpful for you to say? How might you lovingly and truthfully respond to them?  
+1. _Please read Matthew 7:1-6._
+- What is Jesus speaking against here?
+- What’s judgmentalism?
+- From your experience, what are judgmental people like?
+- ‘Self righteous people lack insight into themselves and others.’ Discuss. 
+2. _Please read Matthew 7:7-12._
+- Is he saying that God will give us everything we ask for? Why and why not? What is Jesus saying then?
+- Are there things about yourself that you don’t want to see? Take these to your Father in prayer. 
 
 
 
