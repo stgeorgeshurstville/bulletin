@@ -19,7 +19,8 @@ Lord Jesus Christ, at your first coming you sent your messenger to prepare the w
 |**Global & Nation** | Government |
 |**Mission Partners** | JC in SE Asia, Melissa Wang at Focus Adelaide|
 |**Church Ministries:** | Children, Youth, SRE |
-|**Groups in Church:** | - Mandarin Congregation: Gracious Father, we pray for the Mandarin Carols service on 24/12 that our members would be keen to invite their non-Christian friends and family. We pray that the good news of Jesus may be faithfully and clearly proclaimed on that night. We pray that the non-Christians who come would continue to come to know you at our Sunday services. - Families|
+|**Groups in Church:** |- Mandarin Congregation: Gracious Father, we pray for the Mandarin Carols service on 24/12 that our members would be keen to invite their non-Christian friends and family. We pray that the good news of Jesus may be faithfully and clearly proclaimed on that night. We pray that the non-Christians who come would continue to come to know you at our Sunday services.
+- Families|
 |**Groups in Church:** | Christmas markets + mission week|
 
 
