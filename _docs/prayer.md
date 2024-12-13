@@ -13,6 +13,7 @@ Lord Jesus Christ, at your first coming you sent your messenger to prepare the w
 - **Prayer points can be found [here](https://stgeorgeshurstville.org.au/prayer)**
 
 ## Week 3: Third Sunday of the month
+
 | **Item** | **Prayer** |
 | -------- | ---------- |
 | **Mission & Vision** | _For Growing Deep_ |
