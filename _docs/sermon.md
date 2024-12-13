@@ -20,29 +20,28 @@ order: 2
 ### Prayer
 Dear God, thank you for letting us know you. Please help us learn from your word. Help us to serve and praise you. **Amen**
 
-### Matthew 6:19-34 (NIV)
-**Treasures in Heaven**
+### Matthew 7:1-12 (NIV)
+¹ “Do not judge, or you too will be judged. ² For in the same way you judge others, you will be judged, and with the measure you use, it will be measured to you.
 
-¹⁹ “Do not store up for yourselves treasures on earth, where moths and vermin destroy, and where thieves break in and steal. ²⁰ But store up for yourselves treasures in heaven, where moths and vermin do not destroy, and where thieves do not break in and steal. ²¹ For where your treasure is, there your heart will be also.
+³ “Why do you look at the speck of sawdust in your brother’s eye and pay no attention to the plank in your own eye? ⁴ How can you say to your brother, ‘Let me take the speck out of your eye,’ when all the time there is a plank in your own eye? ⁵ You hypocrite, first take the plank out of your own eye, and then you will see clearly to remove the speck from your brother’s eye.
 
-²² “The eye is the lamp of the body. If your eyes are healthy, your whole body will be full of light. ²³ But if your eyes are unhealthy, your whole body will be full of darkness. If then the light within you is darkness, how great is that darkness!
+⁶ “Do not give dogs what is sacred; do not throw your pearls to pigs. If you do, they may trample them under their feet, and turn and tear you to pieces.
 
-²⁴ “No one can serve two masters. Either you will hate the one and love the other, or you will be devoted to the one and despise the other. You cannot serve both God and money.
+⁷ “Ask and it will be given to you; seek and you will find; knock and the door will be opened to you. ⁸ For everyone who asks receives; the one who seeks finds; and to the one who knocks, the door will be opened.
 
-**Do Not Worry**
+⁹ “Which of you, if your son asks for bread, will give him a stone? ¹⁰ Or if he asks for a fish, will give him a snake? ¹¹ If you, then, though you are evil, know how to give good gifts to your children, how much more will your Father in heaven give good gifts to those who ask him! ¹² So in everything, do to others what you would have them do to you, for this sums up the Law and the Prophets.
 
-²⁵ “Therefore I tell you, do not worry about your life, what you will eat or drink; or about your body, what you will wear. Is not life more than food, and the body more than clothes? ²⁶ Look at the birds of the air; they do not sow or reap or store away in barns, and yet your heavenly Father feeds them. Are you not much more valuable than they? ²⁷ Can any one of you by worrying add a single hour to your life ?
-
-²⁸ “And why do you worry about clothes? See how the flowers of the field grow. They do not labor or spin. ²⁹ Yet I tell you that not even Solomon in all his splendor was dressed like one of these. ³⁰ If that is how God clothes the grass of the field, which is here today and tomorrow is thrown into the fire, will he not much more clothe you—you of little faith? ³¹ So do not worry, saying, ‘What shall we eat?’ or ‘What shall we drink?’ or ‘What shall we wear?’ ³² For the pagans run after all these things, and your heavenly Father knows that you need them. ³³ But seek first his kingdom and his righteousness, and all these things will be given to you as well. ³⁴ Therefore do not worry about tomorrow, for tomorrow will worry about itself. Each day has enough trouble of its own.
 
 
 
 ## Sermon Outline
 
-1. Treasures
-2. Same
-3. Different
-4. What to invest in
+1.What sin does 
+2.Sin blinds 
+3.Worry about your own blindness 
+4.Sight to the blind 
+5.Conclusions 
+
 
 
 ## Q&A
