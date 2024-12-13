@@ -35,7 +35,7 @@ Dear God, thank you for letting us know you. Please help us learn from your word
 
 
 ## Sermon Outline
-
+### Making right judgement
 1. What sin does 
 2. Sin blinds 
 3. Worry about your own blindness 
