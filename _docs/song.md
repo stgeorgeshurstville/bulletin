@@ -4,10 +4,10 @@ order: 1
 ---
 
 ## 9:30am 
-1. 
-2. 
-3. 
-4. 
+1. Joy to the WOlrd
+2. O Come All Ye Faithful
+3. Hark! The Herald Angels Sing
+4. Angels We Have Heard On High
 
    
 ## 4pm 
