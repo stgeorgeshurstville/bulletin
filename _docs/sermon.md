@@ -45,6 +45,8 @@ Dear God, thank you for letting us know you. Please help us learn from your word
 
 
 
+## Sermon Outline (9:30AM)
+- Taylor Swift or Bible
 
 ## Sermon Outline (4PM)
 ### Making right judgement
