@@ -4,7 +4,7 @@ order: 1
 ---
 
 ## 9:30am 
-1. Joy to the WOlrd
+1. Joy to the World
 2. O Come All Ye Faithful
 3. Hark! The Herald Angels Sing
 4. Angels We Have Heard On High
