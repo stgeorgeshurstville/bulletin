@@ -12,6 +12,7 @@ Raise up your great power, Lord, and come among us to save us; that, although th
 - **Prayer by the archbishop**
 
   <ins>A Prayer for the Sick and Sorrowing at Christmas</ins>
+
   God of all comfort and Father of compassion we pray for those for whom the Christmas season is very hard.  
   We pray for those seeking refuge from family violence, at risk of homelessness, or sufferers of addictions to alcohol, substances or gambling.  
   We pray for those who will grieve the loss of loved ones who have departed this world since last Christmas, for those who are estranged from family members, for those who are ill or alone, for parents who fear they cannot provide for their children this Christmas and for children who will not see their parents.  
@@ -20,6 +21,7 @@ Raise up your great power, Lord, and come among us to save us; that, although th
   We ask it in the name of him who died for sin and was raised again, Jesus Christ our Lord. Amen.
   
   <ins>A Christmas Prayer for Peace</ins>
+
   Sovereign Lord, ruler and judge of the nations,
   Unto us a Son is given, and the government will be on his shoulders.
   We long for the day when every warrior’s boot used in battle and every garment rolled in blood will be fuel for the fire.
