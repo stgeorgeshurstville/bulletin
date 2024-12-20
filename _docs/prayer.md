@@ -4,23 +4,40 @@ order: 4
 ---
 **Prayer**
 
-Lord Jesus Christ, at your first coming you sent your messenger to prepare the way before you: grant that the ministers and stewards of your mysteries may likewise make ready your way, by turning the hearts of the disobedient to the ways of the righteous, that at your second coming to judge the world we may be found an acceptable people in your sight; for you live and reign with the Father and the Holy Spirit, now and for ever. Amen.
+Raise up your great power, Lord, and come among us to save us; that, although through our sins we are grievously hindered in running the race that is set before us, your plentiful grace and mercy may speedily help and deliver us; through the sufficiency of your Son our Lord, to whom with you and the Holy Spirit be honour and glory, now and for ever. Amen.
 
 
 **Special Prayer Points**
-- **Prayer from this week’s passage:** Our Holy and loving Father, we are quick to speak and slow to listen. We are quick to get angry and slow to be understanding. We find faults in others and are blind to our own. We are blinded to the depth of our poverty by our sin. We are horrified by what we have done to others.  Thank you that Jesus reveals to us our blind self righteousness. Thank you that when we ask you for mercy and forgiveness, when we seek your righteousness, you hear and answer. We thank you for Jesus our righteousness. Help us by your Spirit to change everyday that we may be more and more like Jesus and in all things bring glory to you. Amen. 
-- **Mission week and Christmas events:** Think of someone who needs to know Jesus and pray for them. 
+- **Prayer from this week’s passage:** 
+- **Prayer by the archbishop**
+  <ins>A Prayer for the Sick and Sorrowing at Christmas</ins>
+  God of all comfort and Father of compassion we pray for those for whom the Christmas season is very hard.  
+  We pray for those seeking refuge from family violence, at risk of homelessness, or sufferers of addictions to alcohol, substances or gambling.  
+  We pray for those who will grieve the loss of loved ones who have departed this world since last Christmas, for those who are estranged from family members, for those who are ill or alone, for parents who fear they cannot provide for their children this Christmas and for children who will not see their parents.  
+  May they know that you sent your Son into the world, to the lowly, the ordinary, the weary and the worried, so that we might know that you are with us; that sin and death and the devil will not win; that we are loved; and that our true home is with you.
+  Thank you for all those, including our churches and Anglicare, who will partner to provide presents, food, and true and lasting hope to many this Christmas.
+  We ask it in the name of him who died for sin and was raised again, Jesus Christ our Lord. Amen.
+  
+  <ins>A Christmas Prayer for Peace</ins>
+  Sovereign Lord, ruler and judge of the nations,
+  Unto us a Son is given, and the government will be on his shoulders.
+  We long for the day when every warrior’s boot used in battle and every garment rolled in blood will be fuel for the fire.
+  Have mercy we pray on this broken and divided world and bring peace – in Israel and the Palestinian territories, in Lebanon and Syria, in the Ukraine, in Sudan, Myanmar and Yemen. 
+  Especially Father we pray for children caught up in conflicts not of their own making, for millions of displaced people, for women who do not know where their husbands, sons and fathers are. 
+  Give wisdom, courage, urgency and diplomacy to the leaders of the nations that they may seek the welfare of their people with justice, righteousness and compassion. 
+  We ask it in the name of the One of whom the greatness of his government and peace will know no end, Wonderful Counsellor, Mighty God, Everlasting Father, Prince of Peace, Jesus Christ our Lord. Amen.
+- **Christmas events**. Think of someone who needs to know Jesus and pray for them. 
 - **Prayer points can be found [here](https://stgeorgeshurstville.org.au/prayer)**
 
-## Week 3: Third Sunday of the month
+## Week 4: Fourth Sunday of the month
 
 | Item | Prayer |
 | -------- | ---------- |
-| Mission & Vision | _For Growing Deep_ |
-| Global & Nation | _Government_ |
-| Mission Partners | _JC in SE Asia, Melissa Wang at Focus Adelaide_ |
-| Church Ministries: | _Children, Youth, SRE_ |
-| Groups in Church: |1. Mandarin Congregation: Gracious Father, we pray for the Mandarin Carols service on 24/12 that our members would be keen to invite their non-Christian friends and family. We pray that the good news of Jesus may be faithfully and clearly proclaimed on that night. We pray that the non-Christians who come would continue to come to know you at our Sunday services. 2.Families: _(Please write your own prayer)_ |
-| Groups in Church: | _Christmas markets + mission week_ |
+| Mission & Vision | _For Growing Out_ |
+| Global & Nation | _Local_ |
+| Mission Partners | TODO |
+| Church Ministries: | TODO |
+| Groups in Church: |TODO|
+| Special Items & Events: | _Christmas SErvices_ |
 
 
