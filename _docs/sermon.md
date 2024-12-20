@@ -20,19 +20,8 @@ order: 2
 ### Prayer
 Dear God, thank you for letting us know you. Please help us learn from your word. Help us to serve and praise you. **Amen**
 
-## 9:30AM
-### Matthew 1:18-25 (NIV)
-¹⁸ This is how the birth of Jesus the Messiah came about : His mother Mary was pledged to be married to Joseph, but before they came together, she was found to be pregnant through the Holy Spirit. ¹⁹ Because Joseph her husband was faithful to the law, and yet did not want to expose her to public disgrace, he had in mind to divorce her quietly.
 
-²⁰ But after he had considered this, an angel of the Lord appeared to him in a dream and said, “Joseph son of David, do not be afraid to take Mary home as your wife, because what is conceived in her is from the Holy Spirit. ²¹ She will give birth to a son, and you are to give him the name Jesus, because he will save his people from their sins.”
-
-²² All this took place to fulfill what the Lord had said through the prophet: ²³ “The virgin will conceive and give birth to a son, and they will call him Immanuel” (which means “God with us”).
-
-²⁴ When Joseph woke up, he did what the angel of the Lord had commanded him and took Mary home as his wife. ²⁵ But he did not consummate their marriage until she gave birth to a son. And he gave him the name Jesus.
-
-
-## 4PM
-### Matthew 7:1-12 (NIV)
+### Matthew 7:13-29
 ¹³ “Enter through the narrow gate. For wide is the gate and broad is the road that leads to destruction, and many enter through it. ¹⁴ But small is the gate and narrow the road that leads to life, and only a few find it.
 
 <ins>True and False Prophets</ins>
@@ -47,17 +36,14 @@ Dear God, thank you for letting us know you. Please help us learn from your word
 ²⁸ When Jesus had finished saying these things, the crowds were amazed at his teaching, ²⁹ because he taught as one who had authority, and not as their teachers of the law.
 
 
-
-## Sermon Outline (9:30AM)
-- Taylor Swift or Bible
-
-## Sermon Outline (4PM)
+## Sermon Outline
 ### Making right judgement
-1. Two kingdoms
-2. The Choice we all must make
-3. Terrifying words
-4. Build your life on His Word
-5. What will you do with Jesus
+- Two kingdoms
+- The Choice we all must make
+- Terrifying words
+- Build your life on His Word
+- What will you do with Jesus
+
 
 
 
