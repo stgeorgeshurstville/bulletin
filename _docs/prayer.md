@@ -10,6 +10,7 @@ Raise up your great power, Lord, and come among us to save us; that, although th
 **Special Prayer Points**
 - **Prayer from this week’s passage:** 
 - **Prayer by the archbishop**
+
   <ins>A Prayer for the Sick and Sorrowing at Christmas</ins>
   God of all comfort and Father of compassion we pray for those for whom the Christmas season is very hard.  
   We pray for those seeking refuge from family violence, at risk of homelessness, or sufferers of addictions to alcohol, substances or gambling.  
