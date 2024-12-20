@@ -29,7 +29,6 @@ The market achieved several of its key goals:
 We are also thrilled to report that the event raised over $4,000, with proceeds supporting Hurstville Public School’s Sensory Park Project and the important work of Anglicare.
 
 A heartfelt thank you to everyone who contributed:
-
     - To our stallholders, who brought warmth and energy to the event.
     - To the logistics and support volunteers, who ensured everything ran smoothly.
     - To those who invited friends and family, helping to make this a truly invitational event.
