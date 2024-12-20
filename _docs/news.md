@@ -37,7 +37,7 @@ The market achieved several of its key goals:
 
 - **NewGen Children’s Ministry is on break until February 2025**. Please see flyer for more information for the summer break. 
 - **All-Gen services**: 24/12 (Mandarin), 25/12 (Christmas services), 29/12, 5/1, 26/1, 2/2
-- **Summer Holiday Program on 12/1 and 19/1 (9:30am, 11am and 4pm) **needs adults willing to come along and spend time chatting to them about Jesus and hanging out with them doing summer activities. Please contact Rev Brian Tung, Pastor Bain Lam, Pastor Elvin Hong and Pastor Carol Chiu if you can help.
+- **Summer Holiday Program** on 12/1 and 19/1 (9:30am, 11am and 4pm) needs adults willing to come along and spend time chatting to them about Jesus and hanging out with them doing summer activities. Please contact Rev Brian Tung, Pastor Bain Lam, Pastor Elvin Hong and Pastor Carol Chiu if you can help.
 - [**What are you doing for God’s glory in 2025?**](https://forms.gle/dshYacLA1kB8xpkn7)
 
 - **New safe ministry rep**: At St George's, we are deeply committed to providing a safe environment for all our members and guests. Safe ministry practices are not just a compliance requirement—they reflect our core belief that our God cares for the vulnerable.
