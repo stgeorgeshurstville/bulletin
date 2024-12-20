@@ -9,10 +9,10 @@ title: Welcome
 [comment]: ##### "where the sentence came from, e.g. Psalm 1:1"  
 [comment]: ----------------------------------------------------  
 
-## The Upside Down Kingdom: Making right judgement
+## The Upside Down Kingdom: The decision of your life
 
 
-#### O people in Zion who dwell at Jerusalem; you shall weep no more. The Lord will surely be gracious to you at the sound of your cry; he will cause his majestic voice to be heard. Isaiah 30.19a,30b
+#### You heavens above, rain down my righteousness; let the clouds shower it down. Let the earth open wide, let salvation spring up, let righteousness flourish with it; I, the LORD, have created it. Isaiah 45.8
 
 ---
 - We are gathering in person! For people who can’t gather in person, you can watch online [here](https://stgeorgeshurstville.org.au/sunday-english-online)
