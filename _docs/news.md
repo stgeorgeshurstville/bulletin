@@ -33,7 +33,7 @@ The market achieved several of its key goals:
     - To the logistics and support volunteers, who ensured everything ran smoothly.
     - To those who invited friends and family, helping to make this a truly invitational event.
 
-Your efforts made this a remarkable opportunity to connect with our community, celebrate Christmas together, and share the love of Jesus.
+    Your efforts made this a remarkable opportunity to connect with our community, celebrate Christmas together, and share the love of Jesus.
 
 - **NewGen Children’s Ministry is on break until February 2025**. Please see flyer for more information for the summer break. 
 - **All-Gen services**: 24/12 (Mandarin), 25/12 (Christmas services), 29/12, 5/1, 26/1, 2/2
