@@ -26,6 +26,7 @@ The market achieved several of its key goals:
     - Raising awareness of our church: Nearly 47% of attendees were visiting the market for the first time.
     - Building community connections: Feedback showed that 68% of respondents appreciated the welcoming and inclusive atmosphere.
     - Encouraging invitations: 53% of visitors came through personal invitations, highlighting the role you all played in reaching out to friends, family, and neighbours.
+
 We are also thrilled to report that the event raised over $4,000, with proceeds supporting Hurstville Public School’s Sensory Park Project and the important work of Anglicare.
 
 A heartfelt thank you to everyone who contributed:
