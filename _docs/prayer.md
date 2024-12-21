@@ -39,8 +39,8 @@ Raise up your great power, Lord, and come among us to save us; that, although th
 | Mission & Vision | _For Growing Out_ |
 | Global & Nation | _Local_ |
 | Mission Partners | _High School scripture and chaplaincy_  _Mathys and PNG_ |
-| Church Ministries: | _Discipleship Groups_ <br>_Pastoral Care teams_ </br>|
-| Groups in Church: |_Nepalese church_ <br>_Singles, widows and orphans_</br>|
+| Church Ministries: | _Discipleship Groups_ <br> _Pastoral Care teams_|
+| Groups in Church: |_Nepalese church_ <br> _Singles, widows and orphans_|
 | Special Items & Events: | _Christmas Services_ |
 
 
