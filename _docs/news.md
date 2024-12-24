@@ -16,8 +16,7 @@ order: 5
 
 
 ## General
-- **Christmas services**: 
-(see above) 
+- **Christmas services**:
 Offertory collected on Christmas day will be set aside for the Sensory Park project at Hurstville Public School and for the work of Anglicare. 
 
 - **Result of the Christmas markets**:
