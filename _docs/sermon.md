@@ -34,7 +34,7 @@ More than 700 years before the birth of Jesus, God promised that a son would be 
 
 ###Second Reading
 
-*Intro*
+**Intro**
 
 Matthew proclaims the fulfilment of Isaiah's prophecy and the coming of God in the person of Jesus. As well as being Immanuel, he was called Jesus, because he came to ‘save his people from their sins'.
 
