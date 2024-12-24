@@ -32,7 +32,7 @@ More than 700 years before the birth of Jesus, God promised that a son would be 
 
 ¹³ Then Isaiah said, “Hear now, you house of David! Is it not enough to try the patience of humans? Will you try the patience of my God also? ¹⁴ Therefore the Lord himself will give you a sign: The virgin will conceive and give birth to a son, and will call him Immanuel.
 
-###Second Reading
+### Second Reading
 
 **Intro**
 
