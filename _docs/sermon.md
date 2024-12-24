@@ -21,6 +21,7 @@ order: 2
 Dear God, thank you for letting us know you. Please help us learn from your word. Help us to serve and praise you. **Amen**
 
 ### First Reading
+
 *Intro* 
 More than 700 years before the birth of Jesus, God promised that a son would be born to a virgin, who would call him Immanuel, which means ‘God with us'. The child would be a sign of God's commitment to rescue and keep his people.
 
@@ -31,7 +32,9 @@ More than 700 years before the birth of Jesus, God promised that a son would be 
 ¹³ Then Isaiah said, “Hear now, you house of David! Is it not enough to try the patience of humans? Will you try the patience of my God also? ¹⁴ Therefore the Lord himself will give you a sign: The virgin will conceive and give birth to a son, and will call him Immanuel.
 
 ###Second Reading
+
 *Intro*
+
 Matthew proclaims the fulfilment of Isaiah's prophecy and the coming of God in the person of Jesus. As well as being Immanuel, he was called Jesus, because he came to ‘save his people from their sins'.
 
 *Prayer*
