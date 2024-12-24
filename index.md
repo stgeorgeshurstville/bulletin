@@ -9,10 +9,11 @@ title: Welcome
 [comment]: ##### "where the sentence came from, e.g. Psalm 1:1"  
 [comment]: ----------------------------------------------------  
 
-## The Upside Down Kingdom: The decision of your life
+## Gentle and Lowly
 
 
-#### You heavens above, rain down my righteousness; let the clouds shower it down. Let the earth open wide, let salvation spring up, let righteousness flourish with it; I, the LORD, have created it. Isaiah 45.8
+#### To us a child is born, to us a son is given; and the government will be upon his shoulder, and his name will be called 'Wonderful, Counsellor, Mighty God.' Isaiah 9.6
+
 
 ---
 - We are gathering in person! For people who can’t gather in person, you can watch online [here](https://stgeorgeshurstville.org.au/sunday-english-online)
