@@ -39,7 +39,7 @@ More than 700 years before the birth of Jesus, God promised that a son would be 
 Matthew proclaims the fulfilment of Isaiah's prophecy and the coming of God in the person of Jesus. As well as being Immanuel, he was called Jesus, because he came to ‘save his people from their sins'.
 
 *Prayer*
-Almighty God, thank you for keeping your promise in the birth of Mary's son, the Lord Jesus Christ. Thank you for coming among us to speak to us and give us the hope of new life. Help us to understand the true meaning of Christmas, and to respond to your love with our love. *Amen.*
+Almighty God, thank you for keeping your promise in the birth of Mary's son, the Lord Jesus Christ. Thank you for coming among us to speak to us and give us the hope of new life. Help us to understand the true meaning of Christmas, and to respond to your love with our love. **Amen.**
 
 ### Matthew 1:18-25
 ¹⁸ This is how the birth of Jesus the Messiah came about : His mother Mary was pledged to be married to Joseph, but before they came together, she was found to be pregnant through the Holy Spirit. ¹⁹ Because Joseph her husband was faithful to the law, and yet did not want to expose her to public disgrace, he had in mind to divorce her quietly.
@@ -56,7 +56,8 @@ Almighty God, thank you for keeping your promise in the birth of Mary's son, the
 - Birth in manger
 - Journey Ahead 
 
-
+**Prayer**
+God of grace and truth, we acknowledge our need for Jesus and the forgiveness he made possible by his death on the cross. Turn us away from sin. Help us to live as forgiven children of God and to please you in everything we do, for the sake of Jesus our Saviour. **Amen.**
 
 
 ## Q&A
