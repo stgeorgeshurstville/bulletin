@@ -87,6 +87,27 @@ in heaven and on earth and under the earth,***
 
 ¹¹ and every tongue acknowledge that Jesus Christ is Lord, to the glory of God the Father.
 
+**Prayer**
+
+- For the sick and sorrowing at Christmas 
+- For Peace
+
+**The Lords Prayer**
+The Lord’s prayer 
+Our Father in heaven,
+hallowed be your name,
+your kingdom come,
+your will be done,
+on earth as in heaven.
+Give us today our daily bread.
+Forgive us our sins
+as we forgive those who sin against us.
+Lead us not into temptation
+but deliver us from evil.
+For the kingdom, the power,
+and the glory are yours
+now and for ever.
+**Amen.**
 
 
 
