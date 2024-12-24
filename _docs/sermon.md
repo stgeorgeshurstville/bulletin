@@ -57,7 +57,12 @@ Almighty God, thank you for keeping your promise in the birth of Mary's son, the
 - Journey Ahead 
 
 **Prayer**
+
 God of grace and truth, we acknowledge our need for Jesus and the forgiveness he made possible by his death on the cross. Turn us away from sin. Help us to live as forgiven children of God and to please you in everything we do, for the sake of Jesus our Saviour. **Amen.**
+
+**Responsive Reading** 
+
+(Members read in ***italics bold)***
 
 
 ## Q&A
