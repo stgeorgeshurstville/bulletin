@@ -38,7 +38,7 @@ More than 700 years before the birth of Jesus, God promised that a son would be 
 
 Matthew proclaims the fulfilment of Isaiah's prophecy and the coming of God in the person of Jesus. As well as being Immanuel, he was called Jesus, because he came to ‘save his people from their sins'.
 
-*Prayer*
+**Prayer**
 
 Almighty God, thank you for keeping your promise in the birth of Mary's son, the Lord Jesus Christ. Thank you for coming among us to speak to us and give us the hope of new life. Help us to understand the true meaning of Christmas, and to respond to your love with our love. **Amen.**
 
