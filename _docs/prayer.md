@@ -4,7 +4,7 @@ order: 4
 ---
 **Prayer**
 
-Raise up your great power, Lord, and come among us to save us; that, although through our sins we are grievously hindered in running the race that is set before us, your plentiful grace and mercy may speedily help and deliver us; through the sufficiency of your Son our Lord, to whom with you and the Holy Spirit be honour and glory, now and for ever. Amen.
+Almighty God, you have given us your only Son to take our nature upon him and as at this time to be born of a virgin: grant that we, being born again and made your children by adoption and grace, may daily be renewed by your Holy Spirit; through our Lord Jesus Christ, who lives and reigns with you and the Holy Spirit, one God, for ever and ever. Amen
 
 
 **Special Prayer Points**
@@ -29,7 +29,6 @@ Raise up your great power, Lord, and come among us to save us; that, although th
   Especially Father we pray for children caught up in conflicts not of their own making, for millions of displaced people, for women who do not know where their husbands, sons and fathers are. 
   Give wisdom, courage, urgency and diplomacy to the leaders of the nations that they may seek the welfare of their people with justice, righteousness and compassion. 
   We ask it in the name of the One of whom the greatness of his government and peace will know no end, Wonderful Counsellor, Mighty God, Everlasting Father, Prince of Peace, Jesus Christ our Lord. Amen.
-- **Christmas events**. Think of someone who needs to know Jesus and pray for them. 
 - **Prayer points can be found [here](https://stgeorgeshurstville.org.au/prayer)**
 
 ## Week 4: Fourth Sunday of the month
