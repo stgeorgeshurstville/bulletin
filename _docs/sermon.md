@@ -32,8 +32,9 @@ Dear God, thank you for letting us know you. Please help us learn from your word
 
 
 ## Sermon Outline
-
-
+- Ice cubes vs. Snow flakes
+- Birth in manger
+- Journey Ahead 
 
 
 
