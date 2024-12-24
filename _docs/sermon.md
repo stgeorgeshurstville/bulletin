@@ -21,8 +21,7 @@ order: 2
 Dear God, thank you for letting us know you. Please help us learn from your word. Help us to serve and praise you. **Amen**
 
 ### First Reading
-
-*Intro* 
+*Intro*
 More than 700 years before the birth of Jesus, God promised that a son would be born to a virgin, who would call him Immanuel, which means ‘God with us'. The child would be a sign of God's commitment to rescue and keep his people.
 
 ### Isaiah 7:10-14
