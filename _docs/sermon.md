@@ -62,7 +62,11 @@ God of grace and truth, we acknowledge our need for Jesus and the forgiveness he
 
 **Responsive Reading** 
 
-(Members read in ***italics bold)***
+(Members read in ***italics bold***)
+
+### Philippians 2:5-11
+
+
 
 
 ## Q&A
