@@ -4,7 +4,10 @@ order: 1
 ---
 
 ## 9:30am
-TBC
+1. Jesus Strong and Kind
+2. My God is So Big
+3. God is Our Strength and Refuge
+4. Rock of Ages
 
 ## 4pm
 1. Ancient of Days
