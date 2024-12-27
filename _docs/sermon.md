@@ -20,7 +20,7 @@ order: 2
 ### Prayer
 Dear God, thank you for letting us know you. Please help us learn from your word. Help us to serve and praise you. **Amen**
 
-### Psalms 34
+### Psalm 34
 
 **A psalm of David when he was with Abimelek and pretended to be out of his mind. Abimelek drove him away, and David left.**
 
