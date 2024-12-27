@@ -36,7 +36,6 @@ Dear Lord, we come before you at the end of 2024, with grateful hearts for the v
 
 - **Special Items & Events**
 
-<ins>Passage:<ins>
 Heavenly Father, thank You for sending Jesus, who taught us how to cry out to You and made You our Father through Him. In Jesus, we see that You are a God who hears, sees, cares, and saves. Thank You for welcoming us to bring our brokenness and scars from this past year to You, trusting that You are near to the brokenhearted and save those who are crushed in spirit. When we are in need, help us to cry out to You as Jesus did, confident that You hear our cries, see our pain, and act in Your perfect love to rescue and restore us. Through Jesus’ suffering and victory, we find refuge, healing, and hope. Teach us to trust in You and glorify Your name in all we do. In the name of Jesus, we pray. Amen.
 
 - **Prayer points can be found [here](https://stgeorgeshurstville.org.au/prayer)**
