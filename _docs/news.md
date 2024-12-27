@@ -7,35 +7,29 @@ order: 5
 
 | Date | Event | Time |
 | ----- | ----- | ----- |
-| **DECEMBER** | 
-| 24 December | Mandarin Christmas Service | 07:30PM |
-| 25 December | English Christmas Service | 09:30AM |
-| 25 December | Cantonese Christmas Service | 11:00AM |
+| **JANUARY** | 
+| 5 JAN | Life course | |
+| From 19 JAN | Space swap | 4pm |
 
-
+| **FEBURARY** | 
+| 2 FEB | Welcoming the Pantlin Family | after 4pm |
 
 
 ## General
-- **Christmas services**:
-Offertory collected on Christmas day will be set aside for the Sensory Park project at Hurstville Public School and for the work of Anglicare. 
-
 - **Result of the Christmas markets**:
-We are excited to share the results of our 2024 Christmas Market, which was a wonderful success, thanks to God’s grace and your contributions.
-The market achieved several of its key goals:
-    - **Raising awareness of our church**: Nearly 47% of attendees were visiting the market for the first time.
-    - **Building community connections**: Feedback showed that 68% of respondents appreciated the welcoming and inclusive atmosphere.
-    - **Encouraging invitations**: 53% of visitors came through personal invitations, highlighting the role you all played in reaching out to friends, family, and neighbours.
+We are thrilled to announce that a total of $7,004 was raised through our Christmas Markets, Christmas Eve, and Christmas Day services. This will be donated to Anglicare and Hurstville Public School's Sensory Park project to bless our community. Thank you for your generous support!
 
-    We are also thrilled to report that the event raised over $4,000, with proceeds supporting Hurstville Public School’s Sensory Park Project and the important work of Anglicare.
-    A heartfelt thank you to everyone who contributed:
-    - To our stallholders, who brought warmth and energy to the event.
-    - To the logistics and support volunteers, who ensured everything ran smoothly.
-    - To those who invited friends and family, helping to make this a truly invitational event.
+- **Life Course**:
+A fresh start to the year. join our life course next sunday 5 January 2025. for more details: email brian.tung@stgeorgeshurstville.org.au
 
-    Your efforts made this a remarkable opportunity to connect with our community, celebrate Christmas together, and share the love of Jesus.
+- **Swapping space 4pm service**:
+The 4pm English congregation will be swapping space with the mandarin congregation for church as of 19 January 2025. Please contact Brian if you have any questions or concerns. 
+
+- **Welcoming Pantlin family**:
+We'll welcome the Pantlin family with a pho sunday on 2 February after 4pm church. The costs should be around $10 per person. more details to follow. 
 
 - **NewGen Children’s Ministry is on break until February 2025**. Please see flyer for more information for the summer break. 
-- **All-Gen services**: 24/12 (Mandarin), 25/12 (Christmas services), 29/12, 5/1, 26/1, 2/2
+- **All-Gen services**: 29/12, 5/1, 26/1, 2/2
 - **Summer Holiday Program** on 12/1 and 19/1 (9:30am, 11am and 4pm) needs adults willing to come along and spend time chatting to them about Jesus and hanging out with them doing summer activities. Please contact Rev Brian Tung, Pastor Bain Lam, Pastor Elvin Hong and Pastor Carol Chiu if you can help.
 - [**What are you doing for God’s glory in 2025?**](https://forms.gle/dshYacLA1kB8xpkn7)
 
