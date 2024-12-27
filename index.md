@@ -9,10 +9,10 @@ title: Welcome
 [comment]: ##### "where the sentence came from, e.g. Psalm 1:1"  
 [comment]: ----------------------------------------------------  
 
-## Gentle and Lowly
+## Good news for the broken
 
 
-#### To us a child is born, to us a son is given; and the government will be upon his shoulder, and his name will be called 'Wonderful, Counsellor, Mighty God.' Isaiah 9.6
+#### The people that walked in darkness have seen a great light. For to us a child is born, to us a son is given; and his name will be called 'Everlasting Father, Prince of Peace.' Isaiah 9.2a
 
 
 ---
