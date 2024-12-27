@@ -20,7 +20,7 @@ Anglicare:
 God grant us the compassion to care deeply for others, the wisdom to discern how best to help, the energy to transform emotion into action, and the joy of wholehearted, loving service. For Christ’s sake. Amen
 For December: Please pray for the success of the Christmas appeal. For those whom Anglicare serves will experience the joy and hope during this holiday season and praise God for the volunteers and donors who run pantry appeals, providing food to Anglicare’s emergency relief centers and bringing hope and joy to those in need this Christmas. 
 
-For Anglican Aid: 
+Anglican Aid: 
 Heavenly Father, whose will it is that all people will be saved, and come to a knowledge of  the truth, and whose will it is that we care for the poor, needy, widows, orphans and refugees. We pray for the work of the Archbishop of Sydney’s Anglican Aid.  We pray for your grace to fulfil every good work that you have prepared for us in advance to do as we anticipate the triumphant return of our King and Saviour, in whose name we pray. Amen.
 
 Sub-Saharan Africa:
@@ -30,7 +30,7 @@ Pray for Internally Displaced People (IDPs): According to the International Orga
 
 - **Groups in Church**
 
-Volunteers:Dear Lord, we come before you at the end of 2024, with grateful hearts for the volunteers in Your House at St George’s. Thank you for each person who dedicates their God’s given time, gifts, and energy to serve your Kingdom and your people here on earth. We recognize their faithful services and the love they demonstrate through their actions. Bless each volunteer abundantly, Lord. Strengthen them in their service. May they be filled with your joy and peace, continue to serve you Lord in 2025 and beyond.
+Volunteers: Dear Lord, we come before you at the end of 2024, with grateful hearts for the volunteers in Your House at St George’s. Thank you for each person who dedicates their God’s given time, gifts, and energy to serve your Kingdom and your people here on earth. We recognize their faithful services and the love they demonstrate through their actions. Bless each volunteer abundantly, Lord. Strengthen them in their service. May they be filled with your joy and peace, continue to serve you Lord in 2025 and beyond.
 
 - **Special Items & Events**
 
