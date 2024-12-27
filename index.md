@@ -9,7 +9,7 @@ title: Welcome
 [comment]: ##### "where the sentence came from, e.g. Psalm 1:1"  
 [comment]: ----------------------------------------------------  
 
-## Good news for the broken
+## Good news for the broken: God sees and He cares
 
 
 #### The people that walked in darkness have seen a great light. For to us a child is born, to us a son is given; and his name will be called 'Everlasting Father, Prince of Peace.' Isaiah 9.2a
