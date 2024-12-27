@@ -72,6 +72,7 @@ No one who goes to him for safety will be found guilty.
 
 
 ## Sermon Outline
+### God sees and He cares
 - Living in a dangerous world 
 - Who can keep us safe? 
 - The Lord is our safe place. 
