@@ -29,8 +29,7 @@ Pray for Internally Displaced People (IDPs): According to the International Orga
 
 - **Groups in Church**
 
-<ins>Volunteers:</ins>
-Dear Lord, we come before you at the end of 2024, with grateful hearts for the volunteers in Your House at St George’s. Thank you for each person who dedicates their God’s given time, gifts, and energy to serve your Kingdom and your people here on earth. We recognize their faithful services and the love they demonstrate through their actions. Bless each volunteer abundantly, Lord. Strengthen them in their service. May they be filled with your joy and peace, continue to serve you Lord in 2025 and beyond.
+Volunteers:Dear Lord, we come before you at the end of 2024, with grateful hearts for the volunteers in Your House at St George’s. Thank you for each person who dedicates their God’s given time, gifts, and energy to serve your Kingdom and your people here on earth. We recognize their faithful services and the love they demonstrate through their actions. Bless each volunteer abundantly, Lord. Strengthen them in their service. May they be filled with your joy and peace, continue to serve you Lord in 2025 and beyond.
 
 - **Special Items & Events**
 
