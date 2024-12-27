@@ -14,7 +14,6 @@ Almighty God, whose blessed Son was circumcised and for man’s sake became obed
 **Mission Partners**
 
 <ins>Moore College</ins>
-
 Pray for God to be at work through His Spirit as students and faculty are involved in outreach and training events over the summer break. Pray that beach missions, camps, and conferences will be attended well and that many people would hear the gospel.
 
 
