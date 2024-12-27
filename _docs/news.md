@@ -9,7 +9,7 @@ order: 5
 | ----- | ----- | ----- |
 | **JANUARY** | 
 | 5 JAN | Life course | |
-| From 19 JAN | Space swap | 4pm service |
+| From 19 JAN | Space swap (English and Mandarin service) | 4pm |
 | **FEBURARY** | 
 | 2 FEB | Welcoming the Pantlin Family dinner | after 4pm |
 
