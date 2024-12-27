@@ -4,7 +4,20 @@ order: 4
 ---
 **Prayer**
 
-Almighty God, you have given us your only Son to take our nature upon him and as at this time to be born of a virgin: grant that we, being born again and made your children by adoption and grace, may daily be renewed by your Holy Spirit; through our Lord Jesus Christ, who lives and reigns with you and the Holy Spirit, one God, for ever and ever. Amen
+Almighty God, whose blessed Son was circumcised and for man’s sake became obedient to the Law: purify our hearts and all our members, so that we may die to all sinful desires and in all things obey your holy will; through Jesus Christ our Lord. Amen.
+
+
+**Mission and Vision**
+<ins>Mission</ins>
+
+**Mission Partners**
+<ins>Moore College</ins>
+Pray for God to be at work through His Spirit as students and faculty are involved in outreach and training events over the summer break. Pray that beach missions, camps, and conferences will be attended well and that many people would hear the gospel.
+
+
+
+
+
 
 
 **Special Prayer Points**
