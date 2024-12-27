@@ -15,8 +15,9 @@ Almighty God, whose blessed Son was circumcised and for man’s sake became obed
 Moore College:
 Pray for God to be at work through His Spirit as students and faculty are involved in outreach and training events over the summer break. Pray that beach missions, camps, and conferences will be attended well and that many people would hear the gospel.
 
-<ins>Projects<ins> 
-Anglicare prayer: God grant us the compassion to care deeply for others, the wisdom to discern how best to help, the energy to transform emotion into action, and the joy of wholehearted, loving service. For Christ’s sake. Amen
+
+Anglicare:
+God grant us the compassion to care deeply for others, the wisdom to discern how best to help, the energy to transform emotion into action, and the joy of wholehearted, loving service. For Christ’s sake. Amen
 For December: Please pray for the success of the Christmas appeal. For those whom Anglicare serves will experience the joy and hope during this holiday season and praise God for the volunteers and donors who run pantry appeals, providing food to Anglicare’s emergency relief centers and bringing hope and joy to those in need this Christmas. 
 
 For Anglican Aid: 
