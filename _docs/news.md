@@ -13,7 +13,7 @@ order: 5
 | From 19 JAN | Space swap (English and Mandarin service) | 4pm |
 | 26 JAN | All-Gen service | |
 | **FEBURARY** | 
-| 2 FEB | Welcoming the Pantlin Family dinner | after 4pm |
+| 2 FEB | Welcoming the Pantlin Family dinner | after 4pm service |
 | 2 FEB | All-Gen service | |
 
 
