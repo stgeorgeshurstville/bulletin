@@ -14,40 +14,40 @@ Lord, mercifully receive the prayers of your people who call upon you; and grant
 
 **Mission Partners**
 
-- Persecuted Christians
+1. Persecuted Christians
 
-- Compassion:  
-1. Pray that children will receive the nutrition they need to grow and develop well.  
-2. Pray that God will make a way for youth to be able to attend university, and that God will open doors for those who are finishing their studies.  
-3. Pray that God will give children and youth the strength needed to overcome adversity.  
-4. Pray for safety for caregivers who sometimes work in dangerous conditions to provide for their families.  
-5. Pray that God will bless our local church partners as they implement initiatives to improve children's holistic health.  
-6. Pray for protection and provision for children, families and staff that are affected by the frequent and damaging weather events in Indonesia.  
-7. Please pray for the safety of children who are left vulnerable to abuse and trafficking as a result of natural disasters.  
+2. Compassion:  
+- Pray that children will receive the nutrition they need to grow and develop well.  
+- Pray that God will make a way for youth to be able to attend university, and that God will open doors for those who are finishing their studies.  
+- Pray that God will give children and youth the strength needed to overcome adversity.  
+- Pray for safety for caregivers who sometimes work in dangerous conditions to provide for their families.  
+- Pray that God will bless our local church partners as they implement initiatives to improve children's holistic health.  
+- Pray for protection and provision for children, families and staff that are affected by the frequent and damaging weather events in Indonesia.  
+- Please pray for the safety of children who are left vulnerable to abuse and trafficking as a result of natural disasters.  
 
-- Phil & Lil in West Asia  
+3. Phil & Lil in West Asia  
 
 **Church Ministries**
 
-- Redevelopment  
-1. Patience in waiting on the Lord as to what’s next.  
-2. Wisdom for the governments (Fed, state and local) in tackling the challenge of housing affordability.  
-3. For a clear ministry vision for St George’s, so that we can plan.  
-4. Pray for God to provide for alternate facilities when the lease at 124 Forest Rd runs out in June 2025.    
+1. Redevelopment  
+- Patience in waiting on the Lord as to what’s next.  
+- Wisdom for the governments (Fed, state and local) in tackling the challenge of housing affordability.  
+- For a clear ministry vision for St George’s, so that we can plan.  
+- Pray for God to provide for alternate facilities when the lease at 124 Forest Rd runs out in June 2025.    
 
-- English Congregation  
-1. Pray for the facility needs (see above).  
-2. Please pray for swap of spaces between the 4pm English and Mandarin congregations effective 19 January.   
+2. English Congregation  
+- Pray for the facility needs (see above).  
+- Please pray for swap of spaces between the 4pm English and Mandarin congregations effective 19 January.   
 
-- EAL/D  
-1. Please pray for the plan to start an English conversational club in 2025.  
+3. EAL/D  
+- Please pray for the plan to start an English conversational club in 2025.  
 
 **Groups in Church**
 
-- Staff:  
-1. Challenging times for the staff, please pray for the Spirit’s sustaining and transforming work. Especially for pastor Elvin and his family.  
+1. Staff:  
+-  Challenging times for the staff, please pray for the Spirit’s sustaining and transforming work. Especially for pastor Elvin and his family.  
 
-- People with disabilities  
+2. People with disabilities  
 
 **Special Items & Events**
 
