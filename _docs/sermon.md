@@ -20,63 +20,39 @@ order: 2
 ### Prayer
 Dear God, thank you for letting us know you. Please help us learn from your word. Help us to serve and praise you. **Amen**
 
-### Psalm 34
+### Psalm 23
 
-**A psalm of David when he was with Abimelek and pretended to be out of his mind. Abimelek drove him away, and David left.**
+**A psalm of David.**
 
-¹ I will thank the Lord at all times.
-My lips will always praise him.
-² I will find my glory in knowing the Lord.
-Let those who are hurting hear me and be joyful.
-³ Join me in giving glory to the Lord.
-Let us honor him together.
-⁴ I looked to the Lord, and he answered me.
-He saved me from everything I was afraid of.
-⁵ Those who look to him have joyful faces.
-They are never covered with shame.
-⁶ This poor man called out, and the Lord heard him.
-He saved him out of all his troubles.
-⁷ The angel of the Lord stands guard
-around those who have respect for him.
-And he saves them.
-⁸ Taste and see that the Lord is good.
-Blessed is the person who goes to him for safety.
-⁹ You holy people of God, have respect for the Lord.
-Those who respect him have everything they need.
-¹⁰ The lions may grow weak and hungry.
-But those who look to the Lord have every good thing they need.
-¹¹ My children, come. Listen to me.
-I will teach you to have respect for the Lord.
-¹² Do you love life
-and want to see many good days?
-¹³ Then keep your tongues from speaking evil.
-Keep your lips from telling lies.
-¹⁴ Turn away from evil, and do good.
-Look for peace, and go after it.
-¹⁵ The Lord looks with favor on those who are godly.
-His ears are open to their cry.
-¹⁶ But the Lord doesn’t look with favor on those who do evil.
-He removes all memory of them from the earth.
-¹⁷ Godly people cry out, and the Lord hears them.
-He saves them from all their troubles.
-¹⁸ The Lord is close to those whose hearts have been broken.
-He saves those whose spirits have been crushed.
-¹⁹ The person who does what is right may have many troubles.
-But the Lord saves him from all of them.
-²⁰ The Lord watches over all his bones.
-Not one of them will be broken.
-²¹ Sinners will be killed by their own evil.
-The enemies of godly people will be judged.
-²² The Lord will save those who serve him.
-No one who goes to him for safety will be found guilty.
+1 The Lord is my shepherd. He gives me everything I need.
+² He lets me lie down in fields of green grass.
+He leads me beside quiet waters.
+³ He gives me new strength.
+He guides me in the right paths
+for the honor of his name.
+⁴ Even though I walk
+through the darkest valley,
+I will not be afraid.
+You are with me.
+Your shepherd’s rod and staff
+comfort me.
+⁵ You prepare a feast for me
+right in front of my enemies.
+You pour oil on my head.
+My cup runs over.
+⁶ I am sure that your goodness and love will follow me
+all the days of my life.
+And I will live in the house of the Lord
+forever.
 
 
 ## Sermon Outline
-### God sees and He cares
-- Living in a dangerous world 
-- Who can keep us safe? 
-- The Lord is our safe place. 
-- Church as a safe place 
+### Safe in God's hands
+- Journey into the unknown 
+- The Lord is the Shepherd vv.1-3
+- Through the darkest valley v.4-5
+- Safely home v.6 
+- Who is your shepherd 
 
 
 ## Q&A
