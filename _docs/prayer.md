@@ -16,7 +16,7 @@ Lord, mercifully receive the prayers of your people who call upon you; and grant
 **Mission Partners**
 1. Persecuted Christians
 
-2. Compassion:  
+2. Compassion  
 - Pray that children will receive the nutrition they need to grow and develop well.  
 - Pray that God will make a way for youth to be able to attend university, and that God will open doors for those who are finishing their studies.  
 - Pray that God will give children and youth the strength needed to overcome adversity.  
@@ -42,7 +42,7 @@ Lord, mercifully receive the prayers of your people who call upon you; and grant
 - Please pray for the plan to start an English conversational club in 2025.  
 
 **Groups in Church**
-1. Staff:  
+1. Staff  
 -  Challenging times for the staff, please pray for the Spirit’s sustaining and transforming work. Especially for pastor Elvin and his family.  
 
 2. People with disabilities  
