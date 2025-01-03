@@ -49,7 +49,7 @@ forever.
 ## Sermon Outline
 ### Safe in God's hands
 - Journey into the unknown 
-- The Lord is the Shepherd vv.1-3
+- The Lord is the Shepherd v.1-3
 - Through the darkest valley v.4-5
 - Safely home v.6 
 - Who is your shepherd 
