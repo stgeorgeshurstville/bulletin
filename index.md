@@ -9,10 +9,11 @@ title: Welcome
 [comment]: ##### "where the sentence came from, e.g. Psalm 1:1"  
 [comment]: ----------------------------------------------------  
 
-## Good news for the broken: God sees and He cares
+## Good news for the broken: Safe in God's hands
 
 
-#### The people that walked in darkness have seen a great light. For to us a child is born, to us a son is given; and his name will be called 'Everlasting Father, Prince of Peace.' Isaiah 9.2a
+#### As soon as Jesus was baptized, he went up out of the water. At that moment heaven was opened, and he saw the Spirit of God descending like a dove and alighting on him. And a voice from heaven said, “This is my Son, whom I love; with him I am well pleased.” Matthew 3:16-17
+
 
 
 ---
