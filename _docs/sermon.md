@@ -24,7 +24,7 @@ Dear God, thank you for letting us know you. Please help us learn from your word
 
 **A psalm of David.**
 
-1 The Lord is my shepherd. He gives me everything I need.
+¹ The Lord is my shepherd. He gives me everything I need.
 ² He lets me lie down in fields of green grass.
 He leads me beside quiet waters.
 ³ He gives me new strength.
