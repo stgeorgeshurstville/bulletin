@@ -6,25 +6,26 @@ order: 4
 
 Lord, mercifully receive the prayers of your people who call upon you; and grant that we may perceive and know what things we ought to do, and also may have grace and power faithfully to perform them; through Jesus Christ our Lord. Amen.
 
-## Week 5: Fifth Sunday of the month
+## Week 1: First Sunday of the month
 
-- **Mission and Vision**
+**Mission and Vision**
 
-- **Mission Partners**
+**Global and Nation**
 
-Moore College:
-Pray for God to be at work through His Spirit as students and faculty are involved in outreach and training events over the summer break. Pray that beach missions, camps, and conferences will be attended well and that many people would hear the gospel.
+**Mission Partners**
 
+- Persecuted Christians  
 
-Anglicare:
-God grant us the compassion to care deeply for others, the wisdom to discern how best to help, the energy to transform emotion into action, and the joy of wholehearted, loving service. For Christ’s sake. Amen
-For December: Please pray for the success of the Christmas appeal. For those whom Anglicare serves will experience the joy and hope during this holiday season and praise God for the volunteers and donors who run pantry appeals, providing food to Anglicare’s emergency relief centers and bringing hope and joy to those in need this Christmas. 
+- Compassion:  
+- Pray that children will receive the nutrition they need to grow and develop well.
+- Pray that God will make a way for youth to be able to attend university, and that God will open doors for those who are finishing their studies.
+- Pray that God will give children and youth the strength needed to overcome adversity.
+- Pray for safety for caregivers who sometimes work in dangerous conditions to provide for their families.
+- Pray that God will bless our local church partners as they implement initiatives to improve children's holistic health.
+- Pray for protection and provision for children, families and staff that are affected by the frequent and damaging weather events in Indonesia.
+- Please pray for the safety of children who are left vulnerable to abuse and trafficking as a result of natural disasters.
 
-Anglican Aid: 
-Heavenly Father, whose will it is that all people will be saved, and come to a knowledge of  the truth, and whose will it is that we care for the poor, needy, widows, orphans and refugees. We pray for the work of the Archbishop of Sydney’s Anglican Aid.  We pray for your grace to fulfil every good work that you have prepared for us in advance to do as we anticipate the triumphant return of our King and Saviour, in whose name we pray. Amen.
-
-Sub-Saharan Africa:
-Pray for Internally Displaced People (IDPs): According to the International Organisation of Migration, 32.5 million people have been internally displaced due to violence across sub-Saharan Africa. In places like Sudan, Nigeria, Mozambique, and northern Kenya, a rise in tribal clashes and Islamic extremist attacks have forced many people to flee their homes. Almighty God, you are a refuge for the oppressed; a stronghold in times of trouble. We pray for Anglican Aid’s partners in Sudan, Nigeria, Kenya, Mozambique, and beyond who are caring for those who have been forced to flee their homes. Please enable them to provide essential aid and spiritual care to those who need it most. God of all comfort, please bring comfort through the love of your people to those who have lost everything. For those who have been targeted due to their Christian faith, please direct their hearts into your abounding love and Christ’s perseverance. And for those who do not know you, we pray that they would find their ultimate refuge in Jesus. Lord of peace, you make wars cease to the ends of the earth. We pray that you would restore justice and peace, enabling people to return to their homes. Please bring the perpetrators of violence to repentance. And help us, and all your people, to fix our eyes on that day when Jesus will return to renew this broken world, and there will be no more death or mourning or crying or pain. In his name we pray, Amen.
+Phil & Lil in West Asia  
 
 - **Church Ministries**
 
