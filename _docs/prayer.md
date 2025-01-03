@@ -4,7 +4,7 @@ order: 4
 ---
 **Prayer**
 
-Almighty God, whose blessed Son was circumcised and for man’s sake became obedient to the Law: purify our hearts and all our members, so that we may die to all sinful desires and in all things obey your holy will; through Jesus Christ our Lord. Amen.
+Lord, mercifully receive the prayers of your people who call upon you; and grant that we may perceive and know what things we ought to do, and also may have grace and power faithfully to perform them; through Jesus Christ our Lord. Amen.
 
 ## Week 5: Fifth Sunday of the month
 
