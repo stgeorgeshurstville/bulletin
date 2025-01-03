@@ -17,13 +17,13 @@ Lord, mercifully receive the prayers of your people who call upon you; and grant
 - Persecuted Christians  
 
 - Compassion:  
-- Pray that children will receive the nutrition they need to grow and develop well.
-- Pray that God will make a way for youth to be able to attend university, and that God will open doors for those who are finishing their studies.
-- Pray that God will give children and youth the strength needed to overcome adversity.
-- Pray for safety for caregivers who sometimes work in dangerous conditions to provide for their families.
-- Pray that God will bless our local church partners as they implement initiatives to improve children's holistic health.
-- Pray for protection and provision for children, families and staff that are affected by the frequent and damaging weather events in Indonesia.
-- Please pray for the safety of children who are left vulnerable to abuse and trafficking as a result of natural disasters.
+Pray that children will receive the nutrition they need to grow and develop well.  
+Pray that God will make a way for youth to be able to attend university, and that God will open doors for those who are finishing their studies.  
+Pray that God will give children and youth the strength needed to overcome adversity.  
+Pray for safety for caregivers who sometimes work in dangerous conditions to provide for their families.  
+Pray that God will bless our local church partners as they implement initiatives to improve children's holistic health.  
+Pray for protection and provision for children, families and staff that are affected by the frequent and damaging weather events in Indonesia.  
+Please pray for the safety of children who are left vulnerable to abuse and trafficking as a result of natural disasters.  
 
 Phil & Lil in West Asia  
 
