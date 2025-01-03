@@ -9,9 +9,12 @@ order: 5
 | ----- | ----- | ----- |
 | **JANUARY** | 
 | 5 JAN | Life course | |
+| 5 JAN | All-Gen service | |
 | From 19 JAN | Space swap (English and Mandarin service) | 4pm |
+| 26 JAN | All-Gen service | |
 | **FEBURARY** | 
 | 2 FEB | Welcoming the Pantlin Family dinner | after 4pm |
+| 2 FEB | All-Gen service | |
 
 
 ## General
@@ -29,7 +32,7 @@ We'll welcome the Pantlin family with a pho sunday on 2 February after 4pm churc
 
 - **NewGen Children’s Ministry is on break until February 2025**. Please see flyer for more information for the summer break.
 
-- **All-Gen services**: 29/12, 5/1, 26/1, 2/2
+- **All-Gen services**: 5/1, 26/1, 2/2
 
 - **Summer Holiday Program** on 12/1 and 19/1 (9:30am, 11am and 4pm) needs adults willing to come along and spend time chatting to them about Jesus and hanging out with them doing summer activities. Please contact Rev Brian Tung, Pastor Elvin Hong and Pastor Carol Chiu if you can help.
 
