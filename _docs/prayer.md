@@ -4,19 +4,29 @@ order: 4
 ---
 **Prayer**
 
-Lord, mercifully receive the prayers of your people who call upon you; and grant that we may perceive and know what things we ought to do, and also may have grace and power faithfully to perform them; through Jesus Christ our Lord. Amen.
+Almighty and everlasting God, ruler of all things in heaven and earth, mercifully hear the supplications of your people, and grant us your peace all the days of our life; through Jesus Christ our Lord. Amen.
 
-## Week 1: First Sunday of the month
+## Week 2: Second Sunday of the month
 
 
 **Mission and Vision**
-
+For Growing Up
+- [Write your own prayer]
+  
 **Global and Nation**
-
+Nation
+- [Write your own prayer]
+  
 **Mission Partners**
-1. Persecuted Christians
+1. Berkeley Life Centre
+General info: Berkeley Life Centre desires to see Jesus Christ transforming lives to transform a community. They minister in the south coast in an area where many people are from a low socioeconomic background. People are coming to faith and the church is making a positive impact.
+- Pray for Wayne Pickford (founding pastor), who will be retiring in the middle of the year (but on long service leave from now). Pray that his health will sustain him in this role until his planned retirement
+- Give thanks for Beejai Abrahams, who will join the BLC staff team as an assistant minister from Monday 20th January, 2025. Pray that he and his family can find suitable accommodation
+- Give thanks for God's provision through the generosity of church mission partners who have contributed to the recent food drive! Please pray for wisdom for future fundraising opportunities, in order to better serve the needs of the community. 
+2. Hoi-Yan Shea in Japan
+- [Await updates from staff team]
 
-2. Compassion  
+3. Compassion  
 - Pray that children will receive the nutrition they need to grow and develop well.  
 - Pray that God will make a way for youth to be able to attend university, and that God will open doors for those who are finishing their studies.  
 - Pray that God will give children and youth the strength needed to overcome adversity.  
