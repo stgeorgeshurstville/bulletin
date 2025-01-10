@@ -8,8 +8,6 @@ order: 5
 | Date | Event | Time |
 | ----- | ----- | ----- |
 | **JANUARY** | 
-| 5 JAN | Life course | |
-| 5 JAN | All-Gen service | |
 | From 19 JAN | Space swap (English and Mandarin service) | 4pm |
 | 26 JAN | All-Gen service | |
 | **FEBURARY** | 
@@ -18,8 +16,9 @@ order: 5
 
 
 ## General
-- **Result of the Christmas markets**:
-We are thrilled to announce that a total of $7,004 was raised through our Christmas Markets, Christmas Eve, and Christmas Day services. This will be donated to Anglicare and Hurstville Public School's Sensory Park project to bless our community. Thank you for your generous support!
+- **A Fresh Start to the Year**:
+Join our life course next sunday 5 January 2025. for more details: email (Brian)[brian.tung@stgeorgeshurstville.org.au]
+
 
 - **Life Course**:
 A fresh start to the year. join our life course next sunday 5 January 2025. for more details: email brian.tung@stgeorgeshurstville.org.au
