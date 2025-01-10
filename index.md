@@ -9,10 +9,11 @@ title: Welcome
 [comment]: ##### "where the sentence came from, e.g. Psalm 1:1"  
 [comment]: ----------------------------------------------------  
 
-## Good news for the broken: Safe in God's hands
+## Good news for the Broken: Calm in the Storm
 
 
-#### As soon as Jesus was baptized, he went up out of the water. At that moment heaven was opened, and he saw the Spirit of God descending like a dove and alighting on him. And a voice from heaven said, “This is my Son, whom I love; with him I am well pleased.” Matthew 3:16-17
+#### All the earth worships you, O Lord most high; sings praises to you, and worships your holy Name. 
+Psalm 66:4
 
 
 
