@@ -17,30 +17,22 @@ order: 5
 
 ## General
 - **A Fresh Start to the Year**:
-Join our life course next sunday 5 January 2025. for more details: email (Brian)[brian.tung@stgeorgeshurstville.org.au]
-
-
-- **Life Course**:
-A fresh start to the year. join our life course next sunday 5 January 2025. for more details: email brian.tung@stgeorgeshurstville.org.au
+Join our life course this week. For more details email [Brian](brian.tung@stgeorgeshurstville.org.au)
 
 - **Swapping space 4pm service**:
-The 4pm English congregation will be swapping space with the mandarin congregation for church as of 19 January 2025. Please contact Brian if you have any questions or concerns. 
+The swapping of space between 4pm English and 4pm Mandarin congregation will be postponed until further notice. Please contact Brian if you have any questions or concerns. 
+
+- **Farewell Tea Gathering**:
+The Mandarin congregations are hosting a farewell tea gathering for Pastor Elvin Hong this Sunday at 1pm in church hall. Open also to all other congregation members to participate.
 
 - **Welcoming Pantlin family**:
 We'll welcome the Pantlin family with a pho sunday on 2 February after 4pm church. The costs should be around $10 per person. more details to follow. 
 
 - **NewGen Children’s Ministry is on break until February 2025**. Please see flyer for more information for the summer break.
 
-- **All-Gen services**: 5/1, 26/1, 2/2
-
-- **Summer Holiday Program** on 12/1 and 19/1 (9:30am, 11am and 4pm) needs adults willing to come along and spend time chatting to them about Jesus and hanging out with them doing summer activities. Please contact Rev Brian Tung, Pastor Elvin Hong and Pastor Carol Chiu if you can help.
+- **All-Gen services**:26/1, 2/2
 
 - [**What are you doing for God’s glory in 2025?**](https://forms.gle/dshYacLA1kB8xpkn7)
-
-- **New safe ministry rep**: At St George's, we are deeply committed to providing a safe environment for all our members and guests. Safe ministry practices are not just a compliance requirement—they reflect our core belief that our God cares for the vulnerable.
-The role of Safe Ministry Representative plays a vital part in ensuring this commitment. We want to thank Pastor Sunny Yu for faithfully serving in this role in the past. As of 11 December 2024, we are pleased to announce that Mrs. Daisy Wu (Cantonese 9:30 congregation) has taken over this responsibility.
-Daisy is well-equipped for this role, being a trainer of the Safe Ministry Essentials course. We thank God for her willingness to serve and for her passion in ensuring our church remains a safe place for everyone.
-Let’s continue to pray for Daisy in her new role and give thanks for Sunny’s dedicated service.
 
 
 
