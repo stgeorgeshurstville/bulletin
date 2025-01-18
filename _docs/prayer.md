@@ -10,19 +10,21 @@ Almighty and everlasting God, ruler of all things in heaven and earth, mercifull
 
 
 **Mission and Vision**
-For Growing Up
+- For Growing Up
 - [Write your own prayer]
   
 **Global and Nation**
-Nation
+- Government
 - [Write your own prayer]
   
 **Mission Partners**
-1. Berkeley Life Centre
-General info: Berkeley Life Centre desires to see Jesus Christ transforming lives to transform a community. They minister in the south coast in an area where many people are from a low socioeconomic background. People are coming to faith and the church is making a positive impact.
-- Pray for Wayne Pickford (founding pastor), who will be retiring in the middle of the year (but on long service leave from now). Pray that his health will sustain him in this role until his planned retirement
-- Give thanks for Beejai Abrahams, who will join the BLC staff team as an assistant minister from Monday 20th January, 2025. Pray that he and his family can find suitable accommodation
-- Give thanks for God's provision through the generosity of church mission partners who have contributed to the recent food drive! Please pray for wisdom for future fundraising opportunities, in order to better serve the needs of the community. 
+1. Melissa Wang at Focus Adelaide Uni
+General info: FOCUS is a group for international students at Adelaide Uni. Melissa seeks to support their student committee in running the group's weekly activities. She also meets one to one with female students to disciple them through reading the Bible and prayer.
+
+[Please write your prayer around these points]
+- Give thanks for the recent Christmas event hosted by Focus at Adelaide University - God provided keen student leaders to help plan the event, as well as emboldened the NTE team to write and give a talk to share from Matthew on how Jesus is God’s unexpected gift to us. Give thanks that 18 international students from different ethnic and faith backgrounds got to experience an Aussie Christmas and hear the gospel message. Pray that God will continue to open the eyes of these students that they will one day receive Jesus as their Lord and Savior. 
+- Melissa is seeking to move from 4 days to 5 days on campus. Please pray for increased financial support in order to do so. 
+
 2. Hoi-Yan Shea in Japan
 - [Await updates from staff team]
 
