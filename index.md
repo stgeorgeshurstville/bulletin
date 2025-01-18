@@ -9,11 +9,11 @@ title: Welcome
 [comment]: ##### "where the sentence came from, e.g. Psalm 1:1"  
 [comment]: ----------------------------------------------------  
 
-## Good news for the Broken: Calm in the Storm
+## Good news for the Broken: Love for the Unloved
 
 
-#### All the earth worships you, O Lord most high; sings praises to you, and worships your holy Name. 
-Psalm 66:4
+#### O sing to the Lord a new song; sing to the Lord, all the earth. Honour and majesty are before him; strength and beauty are in his sanctuary.
+ Psalm 96:1,6
 
 
 
