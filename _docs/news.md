@@ -8,11 +8,10 @@ order: 5
 | Date | Event | Time |
 | ----- | ----- | ----- |
 | **JANUARY** | 
-| From 19 JAN | Space swap (English and Mandarin service) | 4pm |
 | 26 JAN | All-Gen service | |
 | **FEBURARY** | 
 | 2 FEB | Welcoming the Pantlin Family dinner | after 4pm service |
-| 2 FEB | All-Gen service | |
+| 26 JAN | 2 FEB | All-Gen service | |
 
 
 ## General
@@ -22,8 +21,8 @@ Join our life course this week. For more details email [Brian](brian.tung@stgeor
 - **Swapping space 4pm service**:
 The swapping of space between 4pm English and 4pm Mandarin congregation will be postponed until further notice. Please contact Brian if you have any questions or concerns. 
 
-- **Farewell Tea Gathering**:
-The Mandarin congregations are hosting a farewell tea gathering for Pastor Elvin Hong this Sunday at 1pm in church hall. Open also to all other congregation members to participate.
+- **The Summer Kids Program has kicked off with a blast last week!**:
+We are so thankful to God and encouraged by the way God has moved the hearts of many adults across all of our church congregations who have answered the call for help in loving our kids, families and leaders this summer! Please pray that our church would continue to be one where we love and serve each other intergenerationally, especially as we visibly church together in the upcoming All Gen services this year.
 
 - **Welcoming Pantlin family**:
 We'll welcome the Pantlin family with a pho sunday on 2 February after 4pm church. The costs should be around $10 per person. more details to follow. 
@@ -32,9 +31,10 @@ We'll welcome the Pantlin family with a pho sunday on 2 February after 4pm churc
 
 - **All-Gen services**:26/1, 2/2
 
+- **Mentoring (Y6-8)**
+Our mentoring program is currently on break. This means there will be no Mentoring All-in or 1-1 meetings with mentees during January. Everyone is invited to join in our All Generations Services until Term 1 resumes.
+
 - [**What are you doing for God’s glory in 2025?**](https://forms.gle/dshYacLA1kB8xpkn7)
-
-
 
 - **Growing in Our Welcoming**
   
