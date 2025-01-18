@@ -25,28 +25,45 @@ General info: FOCUS is a group for international students at Adelaide Uni. Melis
 - Give thanks for the recent Christmas event hosted by Focus at Adelaide University - God provided keen student leaders to help plan the event, as well as emboldened the NTE team to write and give a talk to share from Matthew on how Jesus is God’s unexpected gift to us. Give thanks that 18 international students from different ethnic and faith backgrounds got to experience an Aussie Christmas and hear the gospel message. Pray that God will continue to open the eyes of these students that they will one day receive Jesus as their Lord and Savior. 
 - Melissa is seeking to move from 4 days to 5 days on campus. Please pray for increased financial support in order to do so. 
 
-2. Hoi-Yan Shea in Japan
-- [Await updates from staff team]
+2. JC in SE Asia
+General info: JC is ministering in a secure location. Our support allows him to be in the country and share the gospel.
+- Praise God for his living and rich Word which have delighted the eyes of those JC is ministering to. Thank God his people are marvelling at the Son’s superiority as they read through Hebrews. Pray they will continue to grow in maturity through the Word.
+- Praise God for the bible study group of 12 becoming 38. Pray for them to keep focusing on the people rather than the program despite their decision to split or not as they train up faithful leaders. 
+- Pray for Li - the new Senior Minister - to have a smooth transition and to faithfully preach and model Christ to the church family. 
 
 **Church Ministries**
-1. Cancare  
-Heavenly Father, we praise You for Your mercy and kindness. You understand the trials and suffering we face and are compassionate toward our weaknesses. We thank You for using CanCare to support those who are battling or have overcome cancer, along with their families and friends. Through Christ’s love, they serve and walk alongside them on this challenging journey. Lord, we ask for Your continued guidance over the CanCare team in the new year. Grant them wisdom, discernment, and a spirit of unity as they care for this community. As many of CanCare’s ministries and services pause in January, we pray that You will watch over the volunteer team during this time of rest. Refresh their body, mind, and spirit, and prepare them to serve with renewed strength and energy in 2025.  
+1. Children
+[Please write your prayer around these points]
+- Praise God for all the adults across different congregations in our church who came together to serve and engage with the kids over the summer kids program. Pray that our church would continue to be one where we love and serve each other across generations especially as we visibly church together in All Gen services. 
+- Pray that our leaders (crèche, NewGen kids and mentors) will use the summer holidays to rest well and recharge for a new year of supporting parents grow little disciples of Jesus. 
+- Pray for parents to trust and lean on God for increasing love, patience, gentleness and strength as they bring up and disciple their kids to follow Jesus, live like Jesus and become more like Jesus.
 
-2. Evangelism Teams 
-Gracious Lord, as we enter 2025, we thank You for the opportunities You have given us to proclaim Your name to those who are lost and far from You. Please continue to open our eyes to see the people You place before us, and grant us boldness and wisdom to share the mystery of the Gospel without fear. We pray that the seeds of the Gospel will be scattered and planted in good soil this year. Lord, prepare the hearts of those we encounter. Remove the barriers that hinder the Gospel, and instead, create rich, healthy soil in their hearts, ready to receive the good news of Jesus Christ. Strengthen and unite our team as we labor together for Your kingdom. May the words we speak and the lives we live reflect Your love and truth, drawing people closer to You. We pray for a fruitful year, trusting in Your power to bring the harvest.
+2. Youth
+- [Await updates from staff team]
 
-3. Nursing Home
-Dear Heavenly Father, You are the God of grace and hope. You understand every challenge and burden that each elderly person carries in their heart. We ask for Your mighty hand to touch their lives and bring comfort to their souls. Help them to turn their hearts fully to You, trust in You completely, and find true peace and blessings in Your presence. For those living in nursing homes or requiring special care at home, may they deeply experience the love of Christ surrounding them. Lord, use every member of the care and visitation team as a channel of Your love. May those they visit feel the joy and encouragement of genuine fellowship and the fullness of love shared among them.
+3. SRE
+[Please write your prayer around these points]
+- Praise God for all our volunteer SRE teachers across different churches. Pray that God would raise up more workers for this unique ministry opportunity.
+- Pray for wisdom as we continue to cultivate good working relationship with Hurstville Public School. 
 
 **Groups in Church**
-1. Cantonese Congregation  
-Lord, we thank You for the beginning of a new year and for Your guidance and grace in the year that has passed. We pray for our brothers and sisters of the Cantonese congregation, asking for strength and wisdom as we enter this new year. Lead us to grow deeper in Christ and to know more of Your truth and love. Help us to rely on You in every challenge and opportunity, and may our lives be a testimony to Your glory. Bless our ministry teams and every brother and sister, uniting us as we serve together in all areas of ministry for the glory of Your name. In this new year, guide us to live lives that are more godly, grateful, and loving. May we support one another in Your grace, be a blessing to the church and our community, and share the Gospel wherever You lead us. Amen.
+1. Mandarin Congregation  
+- Give thanks for Pastor Elvin’s ministry 
+- Pray for continued trust in God as they navigate this period of change
 
-2. Volunteers 
-Father God, we pray for all the volunteers serving in different ministries at St. George’s , especially for those who are new, that God would grow and equip them, and help them use their gifts to serve God and His people in 2025 and beyond. Also pray that they will feel supported, encouraged and acknowledged in their services.
+2. Families 
+[Write your own prayer]
+
 
 **Special Items & Events**  
-
+From the passage: 
+Heavenly Father,
+We come to You with hearts that bear scars—scars of rejection, pain, and feeling left out. We acknowledge the ways fear and hurt have shaped us, teaching us to build walls, push others away, or fear rejection. Yet in Your Word, You show us Your heart—a heart that seeks the lost, rejoices over the found, and delights in showing compassion.
+We thank You for Jesus, who runs after us like a shepherd after a lost sheep, who searches for us like a woman for her lost coin, and who welcomes us like a father with open arms. Help us to see ourselves through Your eyes, not as failures or outcasts, but as beloved children whom You long to embrace.
+Forgive us for the ways we have contributed to the pain of others—through exclusion, judgment, or indifference. Open our eyes to those who feel invisible, our hearts to those who feel unloved, and our arms to those who need a place of belonging.
+Fill our church with Your compassion, Lord. Let it overflow in healing, acceptance, and joy, so that all who come here may find a glimpse of Your kingdom—a place where every lost one is found and every wound is met with Your love.
+In Jesus’ name we pray,
+Amen.
 
 - **Prayer points can be found [here](https://stgeorgeshurstville.org.au/prayer)**
 
