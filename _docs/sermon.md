@@ -20,48 +20,38 @@ order: 2
 ### Prayer
 Dear God, thank you for letting us know you. Please help us learn from your Word. Help us to serve and praise you. **Amen!**
 
-### Psalm 46
+### Luke 15:11-32 (NIV)   
 
-**For the director of music. Of the Sons of Korah. According to alamoth.[b] A song.**
+**The Parable of the Lost Son**
 
-¹ God is our refuge and strength,
-an ever-present help in trouble.
-² Therefore we will not fear, though the earth give way
-and the mountains fall into the heart of the sea,
-³ though its waters roar and foam
-and the mountains quake with their surging. 
+¹¹ Jesus continued: “There was a man who had two sons. ¹² The younger one said to his father, ‘Father, give me my share of the estate.’ So he divided his property between them.
 
-⁴ There is a river whose streams make glad the city of God,
-the holy place where the Most High dwells.
-⁵ God is within her, she will not fall;
-God will help her at break of day.
-⁶ Nations are in uproar, kingdoms fall;
-he lifts his voice, the earth melts.
+¹³ “Not long after that, the younger son got together all he had, set off for a distant country and there squandered his wealth in wild living. ¹⁴ After he had spent everything, there was a severe famine in that whole country, and he began to be in need. ¹⁵ So he went and hired himself out to a citizen of that country, who sent him to his fields to feed pigs. ¹⁶ He longed to fill his stomach with the pods that the pigs were eating, but no one gave him anything.
 
-⁷ The Lord Almighty is with us;
-the God of Jacob is our fortress.
+¹⁷ “When he came to his senses, he said, ‘How many of my father’s hired servants have food to spare, and here I am starving to death! ¹⁸ I will set out and go back to my father and say to him: Father, I have sinned against heaven and against you. ¹⁹ I am no longer worthy to be called your son; make me like one of your hired servants.’ ²⁰ So he got up and went to his father.
 
-⁸ Come and see what the Lord has done,
-the desolations he has brought on the earth.
-⁹ He makes wars cease
-to the ends of the earth.
-He breaks the bow and shatters the spear;
-he burns the shields with fire.
-¹⁰ He says, “Be still, and know that I am God;
-I will be exalted among the nations,
-I will be exalted in the earth.”
+“But while he was still a long way off, his father saw him and was filled with compassion for him; he ran to his son, threw his arms around him and kissed him.
 
-¹¹ The Lord Almighty is with us;
-the God of Jacob is our fortress.
+²¹ “The son said to him, ‘Father, I have sinned against heaven and against you. I am no longer worthy to be called your son.’
 
+²² “But the father said to his servants, ‘Quick! Bring the best robe and put it on him. Put a ring on his finger and sandals on his feet. ²³ Bring the fattened calf and kill it. Let’s have a feast and celebrate. ²⁴ For this son of mine was dead and is alive again; he was lost and is found.’ So they began to celebrate.
+
+²⁵ “Meanwhile, the older son was in the field. When he came near the house, he heard music and dancing. ²⁶ So he called one of the servants and asked him what was going on. ²⁷ ‘Your brother has come,’ he replied, ‘and your father has killed the fattened calf because he has him back safe and sound.’
+
+²⁸ “The older brother became angry and refused to go in. So his father went out and pleaded with him. ²⁹ But he answered his father, ‘Look! All these years I’ve been slaving for you and never disobeyed your orders. Yet you never gave me even a young goat so I could celebrate with my friends. ³⁰ But when this son of yours who has squandered your property with prostitutes comes home, you kill the fattened calf for him!’
+
+³¹ “‘My son,’ the father said, ‘you are always with me, and everything I have is yours. ³² But we had to celebrate and be glad, because this brother of yours was dead and is alive again; he was lost and is found.’”
 
 ## Sermon Outline
 ### 
-- God Is Our Refuge and Strength (v.1-3) 
-- God Is Present in Our Midst (v.4-7)
-- God Brings Stability and Peace (v.8-11)
+
+- The pain of being left out 
+- Story of lost things 
+- What makes God happy 
+
+Conclusions 
+
 ### Big Idea:
-Whatever storm you are facing, bring it to God. Let Him be your refuge, your stability, and your peace. Lean on His promises and His people. He is faithful to heal and restore.
 
 
 ## Q&A
