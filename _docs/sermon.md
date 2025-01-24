@@ -46,7 +46,7 @@ Dear God, thank you for letting us know you. Please help us learn from your Word
 ¹⁰ Your hand would always be there to guide me.
     Your right hand would still be holding me close.
 
-¹1 Suppose I were to say, “I’m sure the darkness will hide me.
+¹¹ Suppose I were to say, “I’m sure the darkness will hide me.
     The light around me will become as dark as night.”
 ¹² Even that darkness would not be dark to you.
     The night would shine like the day,
