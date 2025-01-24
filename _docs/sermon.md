@@ -95,12 +95,15 @@ Test me.
 ⁹ God has saved us. He has chosen us to live a holy life. It wasn’t because of anything we have done. It was because of his own purpose and grace. Through Christ Jesus, God gave us this grace even before time began. 
 ¹⁰ It has now been made known through the coming of our Savior, Christ Jesus. He has broken the power of death. Because of the good news, he has brought life out into the light. That life never dies.
 
+### Big Idea:
+We are precious and He is great 
 
 ## Sermon Outline
-### 
 
+1. We all have people who make us anxious (vv.19-24)
+2. We can call on God’s triple O (vv.1-18)
+3. God is great so we don’t have to be in control (2 Tim 1:8-10)
 
-### Big Idea:
 
 
 ## Q&A
