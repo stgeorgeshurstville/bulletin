@@ -4,66 +4,51 @@ order: 4
 ---
 **Prayer**
 
-Almighty and everlasting God, ruler of all things in heaven and earth, mercifully hear the supplications of your people, and grant us your peace all the days of our life; through Jesus Christ our Lord. Amen.
+Lord God, you know us to be set in the midst of so many great dangers that by reason of the frailty of our nature we cannot always stand upright: grant us such strength and protection as may support us in all dangers and carry us through all temptations; through Jesus Christ our Lord. Amen.
 
-## Week 2: Second Sunday of the month
+
+## Week 4: Fourth Sunday of the month
 
 
 **Mission and Vision**
-- For Growing Up
-- [Write your own prayer]
+1. For Growing Out
+- Heavenly Father, we pray for our church’s outreach efforts. Help us to grow outward, sharing the good news of Jesus with boldness and love. May our words and actions draw people to You and glorify Your name. Amen.
   
 **Global and Nation**
-- Government
-- [Write your own prayer]
+1. Local
+- Lord, we lift up our local community to You. Bless every household with peace and provision. Help us to be a light, meeting needs, building relationships, and reflecting Your love in all we do. Amen.
   
 **Mission Partners**
-1. Melissa Wang at Focus Adelaide Uni
-General info: FOCUS is a group for international students at Adelaide Uni. Melissa seeks to support their student committee in running the group's weekly activities. She also meets one to one with female students to disciple them through reading the Bible and prayer.
+1. High school scripture & chaplaincy 
+- Gracious God, we pray for high school scripture classes and chaplaincy programs. Bless the teachers and chaplains with wisdom and courage. May they inspire young hearts to know and follow Jesus. Protect and guide their work for Your glory. Amen.
 
-[Please write your prayer around these points]
-- Give thanks for the recent Christmas event hosted by Focus at Adelaide University - God provided keen student leaders to help plan the event, as well as emboldened the NTE team to write and give a talk to share from Matthew on how Jesus is God’s unexpected gift to us. Give thanks that 18 international students from different ethnic and faith backgrounds got to experience an Aussie Christmas and hear the gospel message. Pray that God will continue to open the eyes of these students that they will one day receive Jesus as their Lord and Savior. 
-- Melissa is seeking to move from 4 days to 5 days on campus. Please pray for increased financial support in order to do so. 
+2. Mathys and PNG
+- General info: There are >800 languages spoken in Papua New Guinea, but only 13 have complete bibles. Calvin and Ruth work alongside Papua New Guineans in roles that support the ongoing ministry of bible translation. Calvin is an aircraft maintenance engineer, in order to provide transport and logistics support for bible translators. Ruth provides training for the bible translators, so that locals can take the lead in this work. 
+[Summary of Dec 2024 newsletter - Please write your prayer around these points below]
+- Mathys family have returned to Australia for home assignment and will stay here until July 
+- Give thanks that they can enjoy their first family holiday in over 5 years, and share to family, friends, churches and supporters about what God is doing in Papua New Guinea (they will be visiting us in May)
+- Give thanks for Jakob (oldest son) who transitioned into independence in February and will be video game programming at the Academy of Interactive Entertainment. 
+- They have an extremely busy schedule whilst in Australia - please pray for their multiple medical appointments, as well as opportunities to reskill (Calvin is considering an online maintenance control course, Ruth may be attending a scripture typesetting course). Ruth is also on staff for a 4 week Summer Institute of Linguistics (SIL) summer course called Launch (language and culture training for cross-cultural workers), which has just started last week. Their 2 younger children (Andreas and Petra) will be continuing with online schooling. 
 
-2. JC in SE Asia
-General info: JC is ministering in a secure location. Our support allows him to be in the country and share the gospel.
-- Praise God for his living and rich Word which have delighted the eyes of those JC is ministering to. Thank God his people are marvelling at the Son’s superiority as they read through Hebrews. Pray they will continue to grow in maturity through the Word.
-- Praise God for the bible study group of 12 becoming 38. Pray for them to keep focusing on the people rather than the program despite their decision to split or not as they train up faithful leaders. 
-- Pray for Li - the new Senior Minister - to have a smooth transition and to faithfully preach and model Christ to the church family. 
 
 **Church Ministries**
-1. Children
-[Please write your prayer around these points]
-- Praise God for all the adults across different congregations in our church who came together to serve and engage with the kids over the summer kids program. Pray that our church would continue to be one where we love and serve each other across generations especially as we visibly church together in All Gen services. 
-- Pray that our leaders (crèche, NewGen kids and mentors) will use the summer holidays to rest well and recharge for a new year of supporting parents grow little disciples of Jesus. 
-- Pray for parents to trust and lean on God for increasing love, patience, gentleness and strength as they bring up and disciple their kids to follow Jesus, live like Jesus and become more like Jesus.
+1. Disclipleship Groups
+Father, thank You for our discipleship groups. Strengthen our fellowship and deepen our understanding of Your Word. Help us to grow in faith and love, encouraging one another to live for Jesus in every aspect of life. Amen.
 
-2. Youth
-- [Await updates from staff team]
-
-3. SRE
-[Please write your prayer around these points]
-- Praise God for all our volunteer SRE teachers across different churches. Pray that God would raise up more workers for this unique ministry opportunity.
-- Pray for wisdom as we continue to cultivate good working relationship with Hurstville Public School. 
+2. Pastoral care teams
+Lord, we pray for the pastoral care visitation team. Bless them with compassion and discernment as they serve. May their visits bring comfort, hope, and the presence of Christ to those in need. Strengthen them as they care for others. Amen.
 
 **Groups in Church**
-1. Mandarin Congregation  
-- Give thanks for Pastor Elvin’s ministry 
-- Pray for continued trust in God as they navigate this period of change
+1. Nepalese church
+- God of all nations, we pray for the Nepalese fellowship that Pastor BJ is leading. Unite them in love and faith, and may their community flourish in Your grace. Use their witness to draw others into Your kingdom. Bless their leaders with wisdom and strength. Amen.
 
-2. Families 
-[Write your own prayer]
+
+2. Singles, widows and orphans
+Loving Father, we pray for singles, widows, and orphans. Remind them of Your unfailing love and presence. May they find comfort, belonging, and purpose in You and in the body of Christ. Be their refuge and strength. Amen.
 
 
 **Special Items & Events**  
-From the passage: 
-Heavenly Father,
-We come to You with hearts that bear scars—scars of rejection, pain, and feeling left out. We acknowledge the ways fear and hurt have shaped us, teaching us to build walls, push others away, or fear rejection. Yet in Your Word, You show us Your heart—a heart that seeks the lost, rejoices over the found, and delights in showing compassion.
-We thank You for Jesus, who runs after us like a shepherd after a lost sheep, who searches for us like a woman for her lost coin, and who welcomes us like a father with open arms. Help us to see ourselves through Your eyes, not as failures or outcasts, but as beloved children whom You long to embrace.
-Forgive us for the ways we have contributed to the pain of others—through exclusion, judgment, or indifference. Open our eyes to those who feel invisible, our hearts to those who feel unloved, and our arms to those who need a place of belonging.
-Fill our church with Your compassion, Lord. Let it overflow in healing, acceptance, and joy, so that all who come here may find a glimpse of Your kingdom—a place where every lost one is found and every wound is met with Your love.
-In Jesus’ name we pray,
-Amen.
+
 
 - **Prayer points can be found [here](https://stgeorgeshurstville.org.au/prayer)**
 
