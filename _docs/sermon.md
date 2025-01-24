@@ -22,6 +22,7 @@ Dear God, thank you for letting us know you. Please help us learn from your Word
 
 ### Psalm 139 (NIRV)
 **For the director of music. A psalm of David.**
+
 ¹ Lord, you have seen what is in my heart.
     You know all about me.
 ² You know when I sit down and when I get up.
@@ -88,6 +89,12 @@ Test me.
     Know what I’m thinking.
 ²⁴ See if there’s anything in my life you don’t like.
     Help me live in the way that is always right.
+
+### 2 Tim 1:8-10 (NIRV)
+⁸ So don’t be ashamed of the message about our Lord. And don’t be ashamed of me, his prisoner. Instead, join with me as I suffer for the good news. God’s power will help us do that.
+⁹ God has saved us. He has chosen us to live a holy life. It wasn’t because of anything we have done. It was because of his own purpose and grace. Through Christ Jesus, God gave us this grace even before time began. 
+¹⁰ It has now been made known through the coming of our Savior, Christ Jesus. He has broken the power of death. Because of the good news, he has brought life out into the light. That life never dies.
+
 
 ## Sermon Outline
 ### 
