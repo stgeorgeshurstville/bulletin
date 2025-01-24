@@ -20,36 +20,78 @@ order: 2
 ### Prayer
 Dear God, thank you for letting us know you. Please help us learn from your Word. Help us to serve and praise you. **Amen!**
 
-### Luke 15:11-32 (NIV)   
+### Psalm 139 (NIRV)
+**For the director of music. A psalm of David.**
+¹ Lord, you have seen what is in my heart.
+    You know all about me.
+² You know when I sit down and when I get up.
+    You know what I’m thinking even though you are far away.
+³ You know when I go out to work and when I come back home.
+    You know exactly how I live.
+⁴ Lord, even before I speak a word,
+    you know all about it.
 
-**The Parable of the Lost Son**
+⁵ You are all around me, behind me and in front of me.
+    You hold me safe in your hand.
+⁶ I’m amazed at how well you know me.
+    It’s more than I can understand.
 
-¹¹ Jesus continued: “There was a man who had two sons. ¹² The younger one said to his father, ‘Father, give me my share of the estate.’ So he divided his property between them.
+⁷ How can I get away from your Spirit?
+    Where can I go to escape from you?
+⁸ If I go up to the heavens, you are there.
+    If I lie down in the deepest parts of the earth, you are also there.
+⁹ Suppose I were to rise with the sun in the east.
+    Suppose I travel to the west where it sinks into the ocean.
+¹⁰ Your hand would always be there to guide me.
+    Your right hand would still be holding me close.
 
-¹³ “Not long after that, the younger son got together all he had, set off for a distant country and there squandered his wealth in wild living. ¹⁴ After he had spent everything, there was a severe famine in that whole country, and he began to be in need. ¹⁵ So he went and hired himself out to a citizen of that country, who sent him to his fields to feed pigs. ¹⁶ He longed to fill his stomach with the pods that the pigs were eating, but no one gave him anything.
+¹1 Suppose I were to say, “I’m sure the darkness will hide me.
+    The light around me will become as dark as night.”
+¹² Even that darkness would not be dark to you.
+    The night would shine like the day,
+    because darkness is like light to you.
 
-¹⁷ “When he came to his senses, he said, ‘How many of my father’s hired servants have food to spare, and here I am starving to death! ¹⁸ I will set out and go back to my father and say to him: Father, I have sinned against heaven and against you. ¹⁹ I am no longer worthy to be called your son; make me like one of your hired servants.’ ²⁰ So he got up and went to his father.
+¹³ You created the deepest parts of my being.
+    You put me together inside my mother’s body.
+¹⁴ How you made me is amazing and wonderful.
+    I praise you for that.
+What you have done is wonderful.
+    I know that very well.
+¹⁵ None of my bones was hidden from you
+    when you made me inside my mother’s body.
+    That place was as dark as the deepest parts of the earth.
+When you were putting me together there,
+¹⁶     your eyes saw my body even before it was formed.
+You planned how many days I would live.
+    You wrote down the number of them in your book
+    before I had lived through even one of them.
 
-“But while he was still a long way off, his father saw him and was filled with compassion for him; he ran to his son, threw his arms around him and kissed him.
+¹⁷ God, your thoughts about me are priceless.
+    No one can possibly add them all up.
+¹⁸ If I could count them,
+    they would be more than the grains of sand.
+If I were to fall asleep counting and then wake up,
+    you would still be there with me.
 
-²¹ “The son said to him, ‘Father, I have sinned against heaven and against you. I am no longer worthy to be called your son.’
+¹⁹ God, I wish you would kill the people who are evil!
+    I wish those murderers would get away from me!
+²⁰ They are your enemies. They misuse your name.
+    They misuse it for their own evil purposes.
+²¹ Lord, I really hate those who hate you!
+    I really hate those who rise up against you!
+²² I have nothing but hatred for them.
+    I consider them to be my enemies.
 
-²² “But the father said to his servants, ‘Quick! Bring the best robe and put it on him. Put a ring on his finger and sandals on his feet. ²³ Bring the fattened calf and kill it. Let’s have a feast and celebrate. ²⁴ For this son of mine was dead and is alive again; he was lost and is found.’ So they began to celebrate.
-
-²⁵ “Meanwhile, the older son was in the field. When he came near the house, he heard music and dancing. ²⁶ So he called one of the servants and asked him what was going on. ²⁷ ‘Your brother has come,’ he replied, ‘and your father has killed the fattened calf because he has him back safe and sound.’
-
-²⁸ “The older brother became angry and refused to go in. So his father went out and pleaded with him. ²⁹ But he answered his father, ‘Look! All these years I’ve been slaving for you and never disobeyed your orders. Yet you never gave me even a young goat so I could celebrate with my friends. ³⁰ But when this son of yours who has squandered your property with prostitutes comes home, you kill the fattened calf for him!’
-
-³¹ “‘My son,’ the father said, ‘you are always with me, and everything I have is yours. ³² But we had to celebrate and be glad, because this brother of yours was dead and is alive again; he was lost and is found.’”
+²³ God, see what is in my heart.
+    Know what is there.
+Test me.
+    Know what I’m thinking.
+²⁴ See if there’s anything in my life you don’t like.
+    Help me live in the way that is always right.
 
 ## Sermon Outline
 ### 
 
-- The pain of being left out 
-- Story of lost things 
-- What makes God happy 
-
-Conclusions 
 
 ### Big Idea:
 
