@@ -34,10 +34,10 @@ Lord God, you know us to be set in the midst of so many great dangers that by re
 
 **Church Ministries**
 1. Disclipleship Groups
-Father, thank You for our discipleship groups. Strengthen our fellowship and deepen our understanding of Your Word. Help us to grow in faith and love, encouraging one another to live for Jesus in every aspect of life. Amen.
+- Father, thank You for our discipleship groups. Strengthen our fellowship and deepen our understanding of Your Word. Help us to grow in faith and love, encouraging one another to live for Jesus in every aspect of life. Amen.
 
 2. Pastoral care teams
-Lord, we pray for the pastoral care visitation team. Bless them with compassion and discernment as they serve. May their visits bring comfort, hope, and the presence of Christ to those in need. Strengthen them as they care for others. Amen.
+- Lord, we pray for the pastoral care visitation team. Bless them with compassion and discernment as they serve. May their visits bring comfort, hope, and the presence of Christ to those in need. Strengthen them as they care for others. Amen.
 
 **Groups in Church**
 1. Nepalese church
@@ -45,7 +45,7 @@ Lord, we pray for the pastoral care visitation team. Bless them with compassion 
 
 
 2. Singles, widows and orphans
-Loving Father, we pray for singles, widows, and orphans. Remind them of Your unfailing love and presence. May they find comfort, belonging, and purpose in You and in the body of Christ. Be their refuge and strength. Amen.
+- Loving Father, we pray for singles, widows, and orphans. Remind them of Your unfailing love and presence. May they find comfort, belonging, and purpose in You and in the body of Christ. Be their refuge and strength. Amen.
 
 
 **Special Items & Events**  
