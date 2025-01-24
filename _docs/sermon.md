@@ -98,7 +98,7 @@ Test me.
 
 
 ## Sermon Outline
-**Big Idea:**We are precious and He is great 
+**Big Idea:** We are precious and He is great 
 
 1. We all have people who make us anxious (vv.19-24)
 2. We can call on God’s triple O (vv.1-18)
