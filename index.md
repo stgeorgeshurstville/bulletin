@@ -9,8 +9,8 @@ title: Welcome
 [comment]: ##### "where the sentence came from, e.g. Psalm 1:1"  
 [comment]: ----------------------------------------------------  
 
-## Good News for the Broken
-### Valued beyond measure 
+## Good News for the Broken: Valued beyond measure 
+
 
 
 
