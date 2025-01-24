@@ -24,6 +24,7 @@ Lord God, you know us to be set in the midst of so many great dangers that by re
 
 2. Mathys and PNG
 - General info: There are >800 languages spoken in Papua New Guinea, but only 13 have complete bibles. Calvin and Ruth work alongside Papua New Guineans in roles that support the ongoing ministry of bible translation. Calvin is an aircraft maintenance engineer, in order to provide transport and logistics support for bible translators. Ruth provides training for the bible translators, so that locals can take the lead in this work. 
+
 [Summary of Dec 2024 newsletter - Please write your prayer around these points below]
 - Mathys family have returned to Australia for home assignment and will stay here until July 
 - Give thanks that they can enjoy their first family holiday in over 5 years, and share to family, friends, churches and supporters about what God is doing in Papua New Guinea (they will be visiting us in May)
