@@ -9,11 +9,13 @@ title: Welcome
 [comment]: ##### "where the sentence came from, e.g. Psalm 1:1"  
 [comment]: ----------------------------------------------------  
 
-## Good news for the Broken: Love for the Unloved
+## Good News for the Broken
+### Valued beyond measure 
 
 
-#### O sing to the Lord a new song; sing to the Lord, all the earth. Honour and majesty are before him; strength and beauty are in his sanctuary.
- Psalm 96:1,6
+
+#### We have thought on your steadfast love, O Lord, in the midst of your temple. As your name, O God, so your praise reaches to the ends of the earth.
+##### Psalm 48:9-10
 
 
 
