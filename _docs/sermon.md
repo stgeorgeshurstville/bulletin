@@ -50,7 +50,7 @@ Dear God, thank you for letting us know you. Please help us learn from your word
 
 **The Cost of Following Jesus**
 
-¹⁸ When Jesus saw the crowd around him, he gave orders to cross to the other side of the lake. ¹9 Then a teacher of the law came to him and said, “Teacher, I will follow you wherever you go.”
+¹⁸ When Jesus saw the crowd around him, he gave orders to cross to the other side of the lake. ¹⁹ Then a teacher of the law came to him and said, “Teacher, I will follow you wherever you go.”
 
 ²⁰ Jesus replied, “Foxes have dens and birds have nests, but the Son of Man has no place to lay his head.”
 
