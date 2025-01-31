@@ -9,13 +9,13 @@ title: Welcome
 [comment]: ##### "where the sentence came from, e.g. Psalm 1:1"  
 [comment]: ----------------------------------------------------  
 
-## Good News for the Broken: Valued beyond measure 
+## Good News for the Broken: Who will heal my brokenness? 
 
 
 
 
-#### We have thought on your steadfast love, O Lord, in the midst of your temple. As your name, O God, so your praise reaches to the ends of the earth.
-##### Psalm 48:9-10
+#### O come, let us worship and bow down, let us kneel before the Lord, our Maker. For he is our God, and we are the people of his pasture, and the sheep of his hand. 
+##### Psalm 95.6-7
 
 
 
