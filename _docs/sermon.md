@@ -21,11 +21,12 @@ order: 2
 Dear God, thank you for letting us know you. Please help us learn from your word. Help us to serve and praise you. **Amen!**
 ¹²³⁴⁵⁶⁷⁸⁹⁰
 ### Matthew 8:1-22 (NIRV)
-¹When Jesus came down from the mountainside, large crowds followed him. ² A man with leprosy[a] came and knelt before him and said, “Lord, if you are willing, you can make me clean.”
+**Jesus Heals a Man With Leprosy**
+¹When Jesus came down from the mountainside, large crowds followed him. ² A man with leprosy came and knelt before him and said, “Lord, if you are willing, you can make me clean.”
 
 ³ Jesus reached out his hand and touched the man. “I am willing,” he said. “Be clean!” Immediately he was cleansed of his leprosy. ⁴ Then Jesus said to him, “See that you don’t tell anyone. But go, show yourself to the priest and offer the gift Moses commanded, as a testimony to them.”
 
-The Faith of the Centurion
+**The Faith of the Centurion**
 ⁵ When Jesus had entered Capernaum, a centurion came to him, asking for help. ⁶ “Lord,” he said, “my servant lies at home paralyzed, suffering terribly.”
 
 ⁷ Jesus said to him, “Shall I come and heal him?”
@@ -36,15 +37,15 @@ The Faith of the Centurion
 
 ¹³ Then Jesus said to the centurion, “Go! Let it be done just as you believed it would.” And his servant was healed at that moment.
 
-Jesus Heals Many
+**Jesus Heals Many**
 ¹⁴ When Jesus came into Peter’s house, he saw Peter’s mother-in-law lying in bed with a fever. ¹⁵ He touched her hand and the fever left her, and she got up and began to wait on him.
 
 ¹⁶ When evening came, many who were demon-possessed were brought to him, and he drove out the spirits with a word and healed all the sick. ¹⁷ This was to fulfill what was spoken through the prophet Isaiah:
 
 “He took up our infirmities
-    and bore our diseases.”[b]
+    and bore our diseases.”
 
-The Cost of Following Jesus
+**The Cost of Following Jesus**
 ¹⁸ When Jesus saw the crowd around him, he gave orders to cross to the other side of the lake. ¹9 Then a teacher of the law came to him and said, “Teacher, I will follow you wherever you go.”
 
 ²⁰ Jesus replied, “Foxes have dens and birds have nests, but the Son of Man has no place to lay his head.”
@@ -56,11 +57,17 @@ The Cost of Following Jesus
 
 
 ## Sermon Outline
-**Big Idea:** We are precious and He is great 
+- Seeing the King of Heaven in Power
+- Four Acts and a Call
+- What is the Kingdom of Heaven like?
+- What is a follower of Jesus like? 
 
-1. We all have people who make us anxious (vv.19-24)
-2. We can call on God’s triple O (vv.1-18)
-3. God is great so we don’t have to be in control (2 Tim 1:8-10)
+| Acts of power | Where did it happen | What was the Enemy to the Kingdom of Heaven | Who was the victim? | How did Jesus save the victim?| Anything else you notice? |
+| ----------- | ----------- | ----------- | ----------- | -----------| -----------|
+|Healing of the leper 8:1-4||||||
+|Healing of the centurion’s servant 8:5-3||||||
+|Healing of Peter’s mother-in-law 8:14-17||||||
+
 
 
 
