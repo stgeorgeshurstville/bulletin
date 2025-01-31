@@ -54,21 +54,24 @@ Heavenly Father, keep your household the Church continually in your true religio
 
 
 **Special Items & Events**  
-    - Heavenly Father,
-We praise you that you have sent your son to proclaim the good news of the heaven of heaven. A kingdom of righteousness and light where all evil and suffering will be no more, where the poor in spirit are blessed and the hungry filled, and the guilty finds mercy. 
+- From the passage:
+    Heavenly Father,
+    
+    We praise you that you have sent your son to proclaim the good news of the heaven of heaven. A kingdom of righteousness and light where all evil and suffering will be no more, where the poor in spirit are blessed and the hungry filled, and the guilty finds mercy. 
+    
+    We thank you that Jesus has brought the reality of the Kingdom in power on Earth. We thank you that though we have been far and excluded from the kingdom, in Jesus, we have been brought near. 
+    
+    We are not the strong, but the weak; not the righteous, but the sick in need of Your healing. Yet out of Your great compassion, Jesus did not come for the well, but for sinners; not for the mighty, but for the lowly. He reached out and touched the untouchable, welcomed the outcast, forgave the sinner, and called the undeserving into Your presence. 
+    Fill with that same compassion for the guilty, the lowly, the untouchable, the outcast.  
+    Jesus has called us to trust him enough to follow him. But we are weak and fearful creatures. By your Spirit, direct and strengthen us to forsake all and fix our eyes on our Lord, living lives that are pleasing to Him. 
+    Lord of the Harvest, send out workers to everywhere where Darkness still reigns, to everyone who is still lost. 
+    We ask this in the name of Jesus, our King and Saviour.
+    Amen.
 
-We thank you that Jesus has brought the reality of the Kingdom in power on Earth. We thank you that though we have been far and excluded from the kingdom, in Jesus, we have been brought near. 
-
-We are not the strong, but the weak; not the righteous, but the sick in need of Your healing. Yet out of Your great compassion, Jesus did not come for the well, but for sinners; not for the mighty, but for the lowly. He reached out and touched the untouchable, welcomed the outcast, forgave the sinner, and called the undeserving into Your presence. 
-Fill with that same compassion for the guilty, the lowly, the untouchable, the outcast.  
-Jesus has called us to trust him enough to follow him. But we are weak and fearful creatures. By your Spirit, direct and strengthen us to forsake all and fix our eyes on our Lord, living lives that are pleasing to Him. 
-Lord of the Harvest, send out workers to everywhere where Darkness still reigns, to everyone who is still lost. 
-We ask this in the name of Jesus, our King and Saviour.
-Amen.
-For Ben: 
-Almighty God, giver of all that is good, bless your servant Ben, now called to serve you in this church. Fill him with your Holy Spirit and the truth of your word, and clothe him with Christ-likeness of character, that he may faithfully serve you to the glory of your name and to the benefit of your people. We ask this through Jesus Christ our Lord.  Amen. 
-
-Loving Father, send your heavenly blessing upon this your servant, Ben Pantlin. Fill him with courage and humility, faith and zeal. Make him diligent in the study of your Word, and dependent upon the power of your Holy Spirit, and may the beauty of the Lord Jesus be upon him, for the glory of your Name. Amen. 
+- For Ben: 
+    Almighty God, giver of all that is good, bless your servant Ben, now called to serve you in this church. Fill him with your Holy Spirit and the truth of your word, and clothe him with Christ-likeness of character, that he may faithfully serve you to the glory of your name and to the benefit of your people. We ask this through Jesus Christ our Lord.  Amen. 
+    
+    Loving Father, send your heavenly blessing upon this your servant, Ben Pantlin. Fill him with courage and humility, faith and zeal. Make him diligent in the study of your Word, and dependent upon the power of your Holy Spirit, and may the beauty of the Lord Jesus be upon him, for the glory of your Name. Amen. 
 
 
 - **Prayer points can be found [here](https://stgeorgeshurstville.org.au/prayer)**
