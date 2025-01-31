@@ -23,6 +23,7 @@ Dear God, thank you for letting us know you. Please help us learn from your word
 ### Matthew 8:1-22 (NIRV)
 
 **Jesus Heals a Man With Leprosy**
+
 ¹When Jesus came down from the mountainside, large crowds followed him. ² A man with leprosy came and knelt before him and said, “Lord, if you are willing, you can make me clean.”
 
 ³ Jesus reached out his hand and touched the man. “I am willing,” he said. “Be clean!” Immediately he was cleansed of his leprosy. ⁴ Then Jesus said to him, “See that you don’t tell anyone. But go, show yourself to the priest and offer the gift Moses commanded, as a testimony to them.”
