@@ -18,82 +18,40 @@ order: 2
 [comment]: ------------------------------------------------------------------------------------
 ## Bible Reading
 ### Prayer
-Dear God, thank you for letting us know you. Please help us learn from your Word. Help us to serve and praise you. **Amen!**
+Dear God, thank you for letting us know you. Please help us learn from your word. Help us to serve and praise you. **Amen!**
+¹²³⁴⁵⁶⁷⁸⁹⁰
+### Matthew 8:1-22 (NIRV)
+¹When Jesus came down from the mountainside, large crowds followed him. ² A man with leprosy[a] came and knelt before him and said, “Lord, if you are willing, you can make me clean.”
 
-### Psalm 139 (NIRV)
-**For the director of music. A psalm of David.**
+³ Jesus reached out his hand and touched the man. “I am willing,” he said. “Be clean!” Immediately he was cleansed of his leprosy. ⁴ Then Jesus said to him, “See that you don’t tell anyone. But go, show yourself to the priest and offer the gift Moses commanded, as a testimony to them.”
 
-¹ Lord, you have seen what is in my heart.
-    You know all about me.
-² You know when I sit down and when I get up.
-    You know what I’m thinking even though you are far away.
-³ You know when I go out to work and when I come back home.
-    You know exactly how I live.
-⁴ Lord, even before I speak a word,
-    you know all about it.
+The Faith of the Centurion
+⁵ When Jesus had entered Capernaum, a centurion came to him, asking for help. ⁶ “Lord,” he said, “my servant lies at home paralyzed, suffering terribly.”
 
-⁵ You are all around me, behind me and in front of me.
-    You hold me safe in your hand.
-⁶ I’m amazed at how well you know me.
-    It’s more than I can understand.
+⁷ Jesus said to him, “Shall I come and heal him?”
 
-⁷ How can I get away from your Spirit?
-    Where can I go to escape from you?
-⁸ If I go up to the heavens, you are there.
-    If I lie down in the deepest parts of the earth, you are also there.
-⁹ Suppose I were to rise with the sun in the east.
-    Suppose I travel to the west where it sinks into the ocean.
-¹⁰ Your hand would always be there to guide me.
-    Your right hand would still be holding me close.
+⁸ The centurion replied, “Lord, I do not deserve to have you come under my roof. But just say the word, and my servant will be healed. ⁹ For I myself am a man under authority, with soldiers under me. I tell this one, ‘Go,’ and he goes; and that one, ‘Come,’ and he comes. I say to my servant, ‘Do this,’ and he does it.”
 
-¹¹ Suppose I were to say, “I’m sure the darkness will hide me.
-    The light around me will become as dark as night.”
-¹² Even that darkness would not be dark to you.
-    The night would shine like the day,
-    because darkness is like light to you.
+¹⁰ When Jesus heard this, he was amazed and said to those following him, “Truly I tell you, I have not found anyone in Israel with such great faith. ¹¹ I say to you that many will come from the east and the west, and will take their places at the feast with Abraham, Isaac and Jacob in the kingdom of heaven. ¹² But the subjects of the kingdom will be thrown outside, into the darkness, where there will be weeping and gnashing of teeth.”
 
-¹³ You created the deepest parts of my being.
-    You put me together inside my mother’s body.
-¹⁴ How you made me is amazing and wonderful.
-    I praise you for that.
-What you have done is wonderful.
-    I know that very well.
-¹⁵ None of my bones was hidden from you
-    when you made me inside my mother’s body.
-    That place was as dark as the deepest parts of the earth.
-When you were putting me together there,
-¹⁶     your eyes saw my body even before it was formed.
-You planned how many days I would live.
-    You wrote down the number of them in your book
-    before I had lived through even one of them.
+¹³ Then Jesus said to the centurion, “Go! Let it be done just as you believed it would.” And his servant was healed at that moment.
 
-¹⁷ God, your thoughts about me are priceless.
-    No one can possibly add them all up.
-¹⁸ If I could count them,
-    they would be more than the grains of sand.
-If I were to fall asleep counting and then wake up,
-    you would still be there with me.
+Jesus Heals Many
+¹⁴ When Jesus came into Peter’s house, he saw Peter’s mother-in-law lying in bed with a fever. ¹⁵ He touched her hand and the fever left her, and she got up and began to wait on him.
 
-¹⁹ God, I wish you would kill the people who are evil!
-    I wish those murderers would get away from me!
-²⁰ They are your enemies. They misuse your name.
-    They misuse it for their own evil purposes.
-²¹ Lord, I really hate those who hate you!
-    I really hate those who rise up against you!
-²² I have nothing but hatred for them.
-    I consider them to be my enemies.
+¹⁶ When evening came, many who were demon-possessed were brought to him, and he drove out the spirits with a word and healed all the sick. ¹⁷ This was to fulfill what was spoken through the prophet Isaiah:
 
-²³ God, see what is in my heart.
-    Know what is there.
-Test me.
-    Know what I’m thinking.
-²⁴ See if there’s anything in my life you don’t like.
-    Help me live in the way that is always right.
+“He took up our infirmities
+    and bore our diseases.”[b]
 
-### 2 Tim 1:8-10 (NIRV)
-⁸ So don’t be ashamed of the message about our Lord. And don’t be ashamed of me, his prisoner. Instead, join with me as I suffer for the good news. God’s power will help us do that.
-⁹ God has saved us. He has chosen us to live a holy life. It wasn’t because of anything we have done. It was because of his own purpose and grace. Through Christ Jesus, God gave us this grace even before time began. 
-¹⁰ It has now been made known through the coming of our Savior, Christ Jesus. He has broken the power of death. Because of the good news, he has brought life out into the light. That life never dies.
+The Cost of Following Jesus
+¹⁸ When Jesus saw the crowd around him, he gave orders to cross to the other side of the lake. ¹9 Then a teacher of the law came to him and said, “Teacher, I will follow you wherever you go.”
+
+²⁰ Jesus replied, “Foxes have dens and birds have nests, but the Son of Man has no place to lay his head.”
+
+²¹ Another disciple said to him, “Lord, first let me go and bury my father.”
+
+²² But Jesus told him, “Follow me, and let the dead bury their own dead.”
 
 
 
