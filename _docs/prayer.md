@@ -4,50 +4,71 @@ order: 4
 ---
 **Prayer**
 
-Lord God, you know us to be set in the midst of so many great dangers that by reason of the frailty of our nature we cannot always stand upright: grant us such strength and protection as may support us in all dangers and carry us through all temptations; through Jesus Christ our Lord. Amen.
+Heavenly Father, keep your household the Church continually in your true religion; that those who lean only on the hope of your heavenly grace may always be defended by your mighty power; through Jesus Christ our Lord. Amen.
 
 
 ## Week 4: Fourth Sunday of the month
 
 
 **Mission and Vision**
-1. For Growing Out
-    - Heavenly Father, we pray for our church’s outreach efforts. Help us to grow outward, sharing the good news of Jesus with boldness and love. May our words and actions draw people to You and glorify Your name. Amen.
+1 Mission
+    - [Write your own prayer]
   
 **Global and Nation**
-1. Local
-    - Lord, we lift up our local community to You. Bless every household with peace and provision. Help us to be a light, meeting needs, building relationships, and reflecting Your love in all we do. Amen.
+1. World
+   - [Write your own prayer]
   
 **Mission Partners**
-1. High school scripture & chaplaincy 
-    - Gracious God, we pray for high school scripture classes and chaplaincy programs. Bless the teachers and chaplains with wisdom and courage. May they inspire young hearts to know and follow Jesus. Protect and guide their work for Your glory. Amen.
+1. Persecuted Christians
+    - [Write your own prayer]
 
-2. Mathys and PNG
-    - General info: There are >800 languages spoken in Papua New Guinea, but only 13 have complete bibles. Calvin and Ruth work alongside Papua New Guineans in roles that support the ongoing ministry of bible translation. Calvin is an aircraft maintenance engineer, in order to provide transport and logistics support for bible translators. Ruth provides training for the bible translators, so that locals can take the lead in this work. 
-    - [Summary of Dec 2024 newsletter - Please write your prayer around these points below]
-        - Mathys family have returned to Australia for home assignment and will stay here until July 
-        - Give thanks that they can enjoy their first family holiday in over 5 years, and share to family, friends, churches and supporters about what God is doing in Papua New Guinea (they will be visiting us in May)
-        - Give thanks for Jakob (oldest son) who transitioned into independence in February and will be video game programming at the Academy of Interactive Entertainment. 
-        - They have an extremely busy schedule whilst in Australia - please pray for their multiple medical appointments, as well as opportunities to reskill (Calvin is considering an online maintenance control course, Ruth may be attending a scripture typesetting course). Ruth is also on staff for a 4 week Summer Institute of Linguistics (SIL) summer course called Launch (language and culture training for cross-cultural workers), which has just started last week. Their 2 younger children (Andreas and Petra) will be continuing with online schooling. 
+2. Phil & Lil in West Asia
+   - Redacted. Please pray based off of their December 2024 Newsletter
+
 
 
 **Church Ministries**
-1. Disclipleship Groups
-    - Father, thank You for our discipleship groups. Strengthen our fellowship and deepen our understanding of Your Word. Help us to grow in faith and love, encouraging one another to live for Jesus in every aspect of life. Amen.
+1. Property and Redevelopment
+    - Please thank God for the provision of 124 Forest Rd.
+    - Please pray for the Lord’s guidance on our property and facility needs.
+    - Please pray for the needs for space for the 4 pm English congregation and how to make the hall usable for all. 
 
-2. Pastoral care teams
-    - Lord, we pray for the pastoral care visitation team. Bless them with compassion and discernment as they serve. May their visits bring comfort, hope, and the presence of Christ to those in need. Strengthen them as they care for others. Amen.
+2. English Congregation
+    - Please for the family of the late Tony Pang in their grief. Please also pray for Alfred, Cathrine, Justin and Jayden for the loss of Alfred;s mom.
+    - Please pray for the Pantlin family to settle and to know everyone. Please pray that we will express appropriate hospitality.
+    - Please pray for the start of the new ministry year. 
+  
+3. EAL/D
+   - Please pray for teachers and students. Please pray for our plans to start an English club as part of the EAL/D program that it might effectively meet the needs of the community, and provide Gospel opportunities. 
 
 **Groups in Church**
-1. Nepalese church
-    - God of all nations, we pray for the Nepalese fellowship that Pastor BJ is leading. Unite them in love and faith, and may their community flourish in Your grace. Use their witness to draw others into Your kingdom. Bless their leaders with wisdom and strength. Amen.
+1. Staff
+    - Please pray for Ben Pantin that he would settle quickly into the team, and that he team would be wise in helping him. There’re a lot of things for Ben to get his head around, please pray for help.
+    - Please pray that the Lord will provide a new mandarin pastor. 
 
 
-2. Singles, widows and orphans
-    - Loving Father, we pray for singles, widows, and orphans. Remind them of Your unfailing love and presence. May they find comfort, belonging, and purpose in You and in the body of Christ. Be their refuge and strength. Amen.
+
+2. People with disabilities
+    - [Write your own prayer]
+
 
 
 **Special Items & Events**  
+    - Heavenly Father,
+We praise you that you have sent your son to proclaim the good news of the heaven of heaven. A kingdom of righteousness and light where all evil and suffering will be no more, where the poor in spirit are blessed and the hungry filled, and the guilty finds mercy. 
+
+We thank you that Jesus has brought the reality of the Kingdom in power on Earth. We thank you that though we have been far and excluded from the kingdom, in Jesus, we have been brought near. 
+
+We are not the strong, but the weak; not the righteous, but the sick in need of Your healing. Yet out of Your great compassion, Jesus did not come for the well, but for sinners; not for the mighty, but for the lowly. He reached out and touched the untouchable, welcomed the outcast, forgave the sinner, and called the undeserving into Your presence. 
+Fill with that same compassion for the guilty, the lowly, the untouchable, the outcast.  
+Jesus has called us to trust him enough to follow him. But we are weak and fearful creatures. By your Spirit, direct and strengthen us to forsake all and fix our eyes on our Lord, living lives that are pleasing to Him. 
+Lord of the Harvest, send out workers to everywhere where Darkness still reigns, to everyone who is still lost. 
+We ask this in the name of Jesus, our King and Saviour.
+Amen.
+For Ben: 
+Almighty God, giver of all that is good, bless your servant Ben, now called to serve you in this church. Fill him with your Holy Spirit and the truth of your word, and clothe him with Christ-likeness of character, that he may faithfully serve you to the glory of your name and to the benefit of your people. We ask this through Jesus Christ our Lord.  Amen. 
+
+Loving Father, send your heavenly blessing upon this your servant, Ben Pantlin. Fill him with courage and humility, faith and zeal. Make him diligent in the study of your Word, and dependent upon the power of your Holy Spirit, and may the beauty of the Lord Jesus be upon him, for the glory of your Name. Amen. 
 
 
 - **Prayer points can be found [here](https://stgeorgeshurstville.org.au/prayer)**
