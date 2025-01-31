@@ -64,11 +64,35 @@ Dear God, thank you for letting us know you. Please help us learn from your word
 
 | Acts of power | Where did it happen | What was the Enemy to the Kingdom of Heaven | Who was the victim? | How did Jesus save the victim?| Anything else you notice? |
 | ----------- | ----------- | ----------- | ----------- | -----------| -----------|
-|Healing of the leper 8:1-4||||||
-|Healing of the centurion’s servant 8:5-3||||||
-|Healing of Peter’s mother-in-law 8:14-17||||||
+| Healing of the leper 8:1-4 ||||||
+| Healing of the centurion’s servant 8:5-3 ||||||
+| Healing of Peter’s mother-in-law 8:14-17 ||||||
 
+| | What does it mean to be a follower of Jesus? |
+| ----------- | ----------- |
+| Teacher of the Law 8:18-20 ||
+| A disciple 8:21-26 ||
 
+| Acts of power | Where did it happen | What was the Enemy to the Kingdom of Heaven |Who was the victim? | How did Jesus save the victim? | Anything else you notice? |
+| ----------- | ----------- | ----------- | ----------- | -----------| -----------|
+| Calming of the storm 8:23-27 |||||
+| Exorcism 8:28-34 |||||
+| Paralysed man 9:1-8 |||||
+
+| | What does it mean to be a follower of Jesus? |
+| ----------- | ----------- |
+| Matthew the tax collector 9:9-13 ||
+| John’s disciples 9:14-17 ||
+
+| Acts of power | Where did it happen | What was the Enemy to the Kingdom of Heaven |Who was the victim? | How did Jesus save the victim? | Anything else you notice? |
+| ----------- | ----------- | ----------- | ----------- | -----------| -----------|
+| The sick woman 9:18-26 |||||
+| The dead girl 9:18-26 |||||
+| The blind and mute men 9:27-34 |||||
+
+| | What does it mean to be a follower of Jesus? |
+| ----------- | ----------- |
+| The ripe harvest 9:35-38 ||
 
 
 ## Q&A
