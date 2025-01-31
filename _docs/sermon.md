@@ -19,14 +19,16 @@ order: 2
 ## Bible Reading
 ### Prayer
 Dear God, thank you for letting us know you. Please help us learn from your word. Help us to serve and praise you. **Amen!**
-¹²³⁴⁵⁶⁷⁸⁹⁰
+
 ### Matthew 8:1-22 (NIRV)
+
 **Jesus Heals a Man With Leprosy**
 ¹When Jesus came down from the mountainside, large crowds followed him. ² A man with leprosy came and knelt before him and said, “Lord, if you are willing, you can make me clean.”
 
 ³ Jesus reached out his hand and touched the man. “I am willing,” he said. “Be clean!” Immediately he was cleansed of his leprosy. ⁴ Then Jesus said to him, “See that you don’t tell anyone. But go, show yourself to the priest and offer the gift Moses commanded, as a testimony to them.”
 
 **The Faith of the Centurion**
+
 ⁵ When Jesus had entered Capernaum, a centurion came to him, asking for help. ⁶ “Lord,” he said, “my servant lies at home paralyzed, suffering terribly.”
 
 ⁷ Jesus said to him, “Shall I come and heal him?”
@@ -38,6 +40,7 @@ Dear God, thank you for letting us know you. Please help us learn from your word
 ¹³ Then Jesus said to the centurion, “Go! Let it be done just as you believed it would.” And his servant was healed at that moment.
 
 **Jesus Heals Many**
+
 ¹⁴ When Jesus came into Peter’s house, he saw Peter’s mother-in-law lying in bed with a fever. ¹⁵ He touched her hand and the fever left her, and she got up and began to wait on him.
 
 ¹⁶ When evening came, many who were demon-possessed were brought to him, and he drove out the spirits with a word and healed all the sick. ¹⁷ This was to fulfill what was spoken through the prophet Isaiah:
@@ -46,6 +49,7 @@ Dear God, thank you for letting us know you. Please help us learn from your word
     and bore our diseases.”
 
 **The Cost of Following Jesus**
+
 ¹⁸ When Jesus saw the crowd around him, he gave orders to cross to the other side of the lake. ¹9 Then a teacher of the law came to him and said, “Teacher, I will follow you wherever you go.”
 
 ²⁰ Jesus replied, “Foxes have dens and birds have nests, but the Son of Man has no place to lay his head.”
