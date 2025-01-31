@@ -4,9 +4,15 @@ order: 7
 ---
 
 ### Reflection questions:
-1. Do you have some people whom you are afraid of and try to avoid if possible?
-2. ⁠How do you try to deal with that anxiety and how successful is it?
-3. ⁠How do you that know God is both able and willing to help us?
+1. From Matthew 8-9, write down everything you can about: 
+
+- The Kingdom of Heaven
+
+- Jesus 
+
+- Being a Follower of Jesus 
+
+2. Are you willing to follow Jesus everywhere that He tells you to go? Where do you think He’s telling you to go in 2025? 
 
 
 
