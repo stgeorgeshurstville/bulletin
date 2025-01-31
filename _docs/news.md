@@ -13,24 +13,16 @@ order: 5
 
 
 ## General
-- **A Fresh Start to the Year**:
-Join our life course this week. For more details email [Brian](brian.tung@stgeorgeshurstville.org.au)
+- **Re: 124 Forest Rd:** Dear Church Family, we want to share some important news regarding 124 Forest Rd. At the end of June 2025, we will no longer have access to the premises, as the building is set to be demolished. This space was a blessing, provided by the Lord through the generosity of our members when we needed more room for Sunday services. While this is disappointing, it is not unexpected, and we trust that God will continue to lead us forward. As we seek alternative premises, we invite you to pray for wisdom in making the right decisions—considering location, cost, and the future needs of our church. To discuss and pray about the future direction of our church—including property, resources, and redevelopment—we encourage you to join us for a Church Prayer & Vision Meeting on:
+    - 📅 Sunday, 2 March 2025
+    - 🕑 2:00 PM
+    - 📍 At the Church
 
-- **Swapping space 4pm service**:
-The swapping of space between 4pm English and 4pm Mandarin congregation will be postponed until further notice. Please contact Brian if you have any questions or concerns. 
-
-- **Welcoming Pantlin family**:
-We'll welcome the Pantlin family with a pho sunday on 2 February after 4pm church. The costs should be around $10 per person. more details to follow.
-
-- **The Summer Kids Program has finished for 2025!**:
-We are so thankful to God and encouraged by the way God has moved the hearts of many adults across all of our church congregations who have answered the call for help in loving our kids, families and leaders this summer! Please pray that our church would continue to be one where we love and serve each other intergenerationally, especially as we visibly church together in the upcoming All Gen services this year.
-
-- **NewGen Children’s Ministry is on break until February 2025**. Please see flyer for more information for the summer break.
-
-- **All-Gen services**:2/2
-
-- **Mentoring (Y6-8)**
-Our mentoring program is currently on break. This means there will be no Mentoring All-in or 1-1 meetings with mentees during January. Everyone is invited to join in our All Generations Services until Term 1 resumes.
+- **The following Sunday, 9 March 2025, we will have our AGM Sunday**:Combined Morning Service and Annual General Meeting immediately after. Please mark these dates in your calendar and continue to pray for God’s guidance.
+- **We'll welcome the Pantlin family with a pho sunday on 2 February after 4pm church. The costs should be around $10 per person.**
+- **The Summer Kids Program has finished for 2025!** We are so thankful to God and encouraged by the way God has moved the hearts of many adults across all of our church congregations who have answered the call for help in loving our kids, families and leaders this summer! Please pray that our church would continue to be one where we love and serve each other intergenerationally, especially as we visibly church together in the upcoming All Gen services this year.
+- **NewGen Children’s Ministry resumes on 9th February 2025.** We have a crèche/ toddlers program, and a K-6 program at 9:30am, 11am and 4pm. Please leave enough time before service for start of year registrations. If you have any questions please contact Pastor Carol Chiu.
+- **Mentoring (Y6-8)**  is back on! If your child is in Y6-8 and you did not received a message this week from Jaffe Chiu or your child’s mentor, please let Carol or Brian know ASAP to ensure you are included in the communications channel. A reminder that we have Mentoring All-In programs at 12:45pm at 124 Forest Rd on the first week of every month unless you are notified otherwise. 
 
 - [**What are you doing for God’s glory in 2025?**](https://forms.gle/dshYacLA1kB8xpkn7)
 
