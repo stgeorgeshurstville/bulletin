@@ -23,7 +23,7 @@ Heavenly Father, keep your household the Church continually in your true religio
     - [Write your own prayer]
 
 2. Phil & Lil in West Asia
-   - Redacted. Please pray based off of their December 2024 Newsletter
+   - [Redacted. Please pray based off of their December 2024 Newsletter]
 
 
 
