@@ -11,7 +11,7 @@ Heavenly Father, keep your household the Church continually in your true religio
 
 
 **Mission and Vision**
-1 Mission
+1. Mission
     - [Write your own prayer]
   
 **Global and Nation**
