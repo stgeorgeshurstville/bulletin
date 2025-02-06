@@ -20,85 +20,48 @@ order: 2
 ### Prayer
 Dear God, thank you for letting us know you. Please help us learn from your word. Help us to serve and praise you. **Amen!**
 
-### Matthew 8:1-22 (NIRV)
+### Matthew 9:35-10:42 (NIV) 
 
-**Jesus Heals a Man With Leprosy**
+**The Workers Are Few**
+³⁵ Jesus went through all the towns and villages, teaching in their synagogues, proclaiming the good news of the kingdom and healing every disease and sickness. ³⁶ When he saw the crowds, he had compassion on them, because they were harassed and helpless, like sheep without a shepherd. ³⁷ Then he said to his disciples, “The harvest is plentiful but the workers are few. ³⁸ Ask the Lord of the harvest, therefore, to send out workers into his harvest field.”
 
-¹When Jesus came down from the mountainside, large crowds followed him. ² A man with leprosy came and knelt before him and said, “Lord, if you are willing, you can make me clean.”
+**Chapter 10**
+Jesus Sends Out the Twelve
+¹ Jesus called his twelve disciples to him and gave them authority to drive out impure spirits and to heal every disease and sickness.
 
-³ Jesus reached out his hand and touched the man. “I am willing,” he said. “Be clean!” Immediately he was cleansed of his leprosy. ⁴ Then Jesus said to him, “See that you don’t tell anyone. But go, show yourself to the priest and offer the gift Moses commanded, as a testimony to them.”
+² These are the names of the twelve apostles: first, Simon (who is called Peter) and his brother Andrew; James son of Zebedee, and his brother John; ³ Philip and Bartholomew; Thomas and Matthew the tax collector; James son of Alphaeus, and Thaddaeus; ⁴ Simon the Zealot and Judas Iscariot, who betrayed him.
 
-**The Faith of the Centurion**
+⁵ These twelve Jesus sent out with the following instructions: “Do not go among the Gentiles or enter any town of the Samaritans. ⁶ Go rather to the lost sheep of Israel. ⁷ As you go, proclaim this message: ‘The kingdom of heaven has come near.’ ⁸ Heal the sick, raise the dead, cleanse those who have leprosy, drive out demons. Freely you have received; freely give.
 
-⁵ When Jesus had entered Capernaum, a centurion came to him, asking for help. ⁶ “Lord,” he said, “my servant lies at home paralyzed, suffering terribly.”
+⁹ “Do not get any gold or silver or copper to take with you in your belts— ¹⁰ no bag for the journey or extra shirt or sandals or a staff, for the worker is worth his keep. ¹¹ Whatever town or village you enter, search there for some worthy person and stay at their house until you leave. ¹² As you enter the home, give it your greeting. ¹³ If the home is deserving, let your peace rest on it; if it is not, let your return to you. ¹⁴ If anyone will not welcome you or listen to your words, leave that home or town and shake the dust off your feet. ¹⁵ Truly I tell you, it will be more bearable for Sodom and Gomorrah on the day of judgment than for that town.
 
-⁷ Jesus said to him, “Shall I come and heal him?”
+¹⁶ “I am sending you out like sheep among wolves. Therefore be as shrewd as snakes and as innocent as doves. ¹⁷ Be on your guard; you will be handed over to the local councils and be flogged in the synagogues. ¹⁸ On my account you will be brought before governors and kings as witnesses to them and to the Gentiles. ¹⁹ But when they arrest you, do not worry about what to say or how to say it. At that time you will be given what to say, ²⁰ for it will not be you speaking, but the Spirit of your Father speaking through you.
 
-⁸ The centurion replied, “Lord, I do not deserve to have you come under my roof. But just say the word, and my servant will be healed. ⁹ For I myself am a man under authority, with soldiers under me. I tell this one, ‘Go,’ and he goes; and that one, ‘Come,’ and he comes. I say to my servant, ‘Do this,’ and he does it.”
+²¹ “Brother will betray brother to death, and a father his child; children will rebel against their parents and have them put to death. ²² You will be hated by everyone because of me, but the one who stands firm to the end will be saved. ²³ When you are persecuted in one place, flee to another. Truly I tell you, you will not finish going through the towns of Israel before the Son of Man comes.
 
-¹⁰ When Jesus heard this, he was amazed and said to those following him, “Truly I tell you, I have not found anyone in Israel with such great faith. ¹¹ I say to you that many will come from the east and the west, and will take their places at the feast with Abraham, Isaac and Jacob in the kingdom of heaven. ¹² But the subjects of the kingdom will be thrown outside, into the darkness, where there will be weeping and gnashing of teeth.”
+²⁴ “The student is not above the teacher, nor a servant above his master. ²⁵ It is enough for students to be like their teachers, and servants like their masters. If the head of the house has been called Beelzebul, how much more the members of his household!
 
-¹³ Then Jesus said to the centurion, “Go! Let it be done just as you believed it would.” And his servant was healed at that moment.
+²⁶ “So do not be afraid of them, for there is nothing concealed that will not be disclosed, or hidden that will not be made known. ²⁷ What I tell you in the dark, speak in the daylight; what is whispered in your ear, proclaim from the roofs. ²⁸ Do not be afraid of those who kill the body but cannot kill the soul. Rather, be afraid of the One who can destroy both soul and body in hell. ²⁹ Are not two sparrows sold for a penny? Yet not one of them will fall to the ground outside your Father’s care. ³⁰ And even the very hairs of your head are all numbered. ³¹ So don’t be afraid; you are worth more than many sparrows.
 
-**Jesus Heals Many**
+³² “Whoever acknowledges me before others, I will also acknowledge before my Father in heaven. ³³ But whoever disowns me before others, I will disown before my Father in heaven.
 
-¹⁴ When Jesus came into Peter’s house, he saw Peter’s mother-in-law lying in bed with a fever. ¹⁵ He touched her hand and the fever left her, and she got up and began to wait on him.
+³⁴ “Do not suppose that I have come to bring peace to the earth. I did not come to bring peace, but a sword. ³⁵ For I have come to turn
 
-¹⁶ When evening came, many who were demon-possessed were brought to him, and he drove out the spirits with a word and healed all the sick. ¹⁷ This was to fulfill what was spoken through the prophet Isaiah:
+    “‘a man against his father,
+    a daughter against her mother,
+    a daughter-in-law against her mother-in-law—
+    ³⁶ a man’s enemies will be the members of his own household.’ 
 
-“He took up our infirmities
-    and bore our diseases.”
+³⁷ “Anyone who loves their father or mother more than me is not worthy of me; anyone who loves their son or daughter more than me is not worthy of me. ³⁸ Whoever does not take up their cross and follow me is not worthy of me. ³⁹ Whoever finds their life will lose it, and whoever loses their life for my sake will find it.
 
-**The Cost of Following Jesus**
-
-¹⁸ When Jesus saw the crowd around him, he gave orders to cross to the other side of the lake. ¹⁹ Then a teacher of the law came to him and said, “Teacher, I will follow you wherever you go.”
-
-²⁰ Jesus replied, “Foxes have dens and birds have nests, but the Son of Man has no place to lay his head.”
-
-²¹ Another disciple said to him, “Lord, first let me go and bury my father.”
-
-²² But Jesus told him, “Follow me, and let the dead bury their own dead.”
-
-
+⁴⁰ “Anyone who welcomes you welcomes me, and anyone who welcomes me welcomes the one who sent me. ⁴¹ Whoever welcomes a prophet as a prophet will receive a prophet’s reward, and whoever welcomes a righteous person as a righteous person will receive a righteous person’s reward. ⁴² And if anyone gives even a cup of cold water to one of these little ones who is my disciple, truly I tell you, that person will certainly not lose their reward.”
 
 ## Sermon Outline
-- Seeing the King of Heaven in Power
-- Four Acts and a Call
-- What is the Kingdom of Heaven like?
-- What is a follower of Jesus like? 
+Intro - Do you find it hard to be on mission for Jesus? 
 
-| Acts of power | Where did it happen | What was the Enemy to the Kingdom of Heaven | Who was the victim? | How did Jesus save the victim?| Anything else you notice? |
-| ----------- | ----------- | ----------- | ----------- | -----------| -----------|
-| Healing of the leper 8:1-4 ||||||
-| Healing of the centurion’s servant 8:5-3 ||||||
-| Healing of Peter’s mother-in-law 8:14-17 ||||||
-
-| | What does it mean to be a follower of Jesus? |
-| ----------- | ----------- |
-| Teacher of the Law 8:18-20 ||
-| A disciple 8:21-26 ||
-
-| Acts of power | Where did it happen | What was the Enemy to the Kingdom of Heaven |Who was the victim? | How did Jesus save the victim? | Anything else you notice? |
-| ----------- | ----------- | ----------- | ----------- | -----------| -----------|
-| Calming of the storm 8:23-27 |||||
-| Exorcism 8:28-34 |||||
-| Paralysed man 9:1-8 |||||
-
-| | What does it mean to be a follower of Jesus? |
-| ----------- | ----------- |
-| Matthew the tax collector 9:9-13 ||
-| John’s disciples 9:14-17 ||
-
-| Acts of power | Where did it happen | What was the Enemy to the Kingdom of Heaven |Who was the victim? | How did Jesus save the victim? | Anything else you notice? |
-| ----------- | ----------- | ----------- | ----------- | -----------| -----------|
-| The sick woman 9:18-26 |||||
-| The dead girl 9:18-26 |||||
-| The blind and mute men 9:27-34 |||||
-
-| | What does it mean to be a follower of Jesus? |
-| ----------- | ----------- |
-| The ripe harvest 9:35-38 ||
-
+1. The call of being on mission for Jesus.
+2. The cost of being on mission for Jesus.
+3. The worthwhileness of being on mission for Jesus.
 
 ## Q&A
 Got questions or comments? Send them [here](https://tinyurl.com/SGHACQuestionsAnswers)
