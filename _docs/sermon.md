@@ -23,9 +23,11 @@ Dear God, thank you for letting us know you. Please help us learn from your word
 ### Matthew 9:35-10:42 (NIV) 
 
 **The Workers Are Few**
+
 ³⁵ Jesus went through all the towns and villages, teaching in their synagogues, proclaiming the good news of the kingdom and healing every disease and sickness. ³⁶ When he saw the crowds, he had compassion on them, because they were harassed and helpless, like sheep without a shepherd. ³⁷ Then he said to his disciples, “The harvest is plentiful but the workers are few. ³⁸ Ask the Lord of the harvest, therefore, to send out workers into his harvest field.”
 
 **Chapter 10**
+
 Jesus Sends Out the Twelve
 ¹ Jesus called his twelve disciples to him and gave them authority to drive out impure spirits and to heal every disease and sickness.
 
@@ -56,7 +58,9 @@ Jesus Sends Out the Twelve
 
 ⁴⁰ “Anyone who welcomes you welcomes me, and anyone who welcomes me welcomes the one who sent me. ⁴¹ Whoever welcomes a prophet as a prophet will receive a prophet’s reward, and whoever welcomes a righteous person as a righteous person will receive a righteous person’s reward. ⁴² And if anyone gives even a cup of cold water to one of these little ones who is my disciple, truly I tell you, that person will certainly not lose their reward.”
 
+
 ## Sermon Outline
+
 Intro - Do you find it hard to be on mission for Jesus? 
 
 1. The call of being on mission for Jesus.
