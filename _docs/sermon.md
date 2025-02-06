@@ -49,10 +49,10 @@ Jesus Sends Out the Twelve
 
 ³⁴ “Do not suppose that I have come to bring peace to the earth. I did not come to bring peace, but a sword. ³⁵ For I have come to turn
 
-    “‘a man against his father,
-    a daughter against her mother,
-    a daughter-in-law against her mother-in-law—
-    ³⁶ a man’s enemies will be the members of his own household.’ 
+“‘a man against his father,
+a daughter against her mother,
+a daughter-in-law against her mother-in-law—
+³⁶ a man’s enemies will be the members of his own household.’ 
 
 ³⁷ “Anyone who loves their father or mother more than me is not worthy of me; anyone who loves their son or daughter more than me is not worthy of me. ³⁸ Whoever does not take up their cross and follow me is not worthy of me. ³⁹ Whoever finds their life will lose it, and whoever loses their life for my sake will find it.
 
