@@ -14,9 +14,7 @@ order: 5
 
 ## General
 - **Re: 124 Forest Rd:**
-    - Dear Church Family,
-    
-    We want to share some important news regarding 124 Forest Rd. At the end of June 2025, we will no longer have access to the premises, as the building is set to be demolished. This space was a blessing, provided by the Lord through the generosity of our members when we needed more room for Sunday services. While this is disappointing, it is not unexpected, and we trust that God will continue to lead us forward. As we seek alternative premises, we invite you to pray for wisdom in making the right decisions—considering location, cost, and the future needs of our church. To discuss and pray about the future direction of our church—including property, resources, and redevelopment—we encourage you to join us for a Church Prayer & Vision Meeting on:
+    - Dear Church Family,vWe want to share some important news regarding 124 Forest Rd. At the end of June 2025, we will no longer have access to the premises, as the building is set to be demolished. This space was a blessing, provided by the Lord through the generosity of our members when we needed more room for Sunday services. While this is disappointing, it is not unexpected, and we trust that God will continue to lead us forward. As we seek alternative premises, we invite you to pray for wisdom in making the right decisions—considering location, cost, and the future needs of our church. To discuss and pray about the future direction of our church—including property, resources, and redevelopment—we encourage you to join us for a Church Prayer & Vision Meeting on:
     - 📅 Sunday, 2 March 2025
     - 🕑 2:00 PM
     - 📍 At the Church
