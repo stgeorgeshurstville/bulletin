@@ -19,15 +19,13 @@ Almighty Father, whose Son was revealed in majesty before he suffered death upon
    - [Write your own prayer]
   
 **Mission Partners**
-**1. Hoi-Yea Shea in Japan**
-Summary of January newsletter - please write your prayer around these points
+
+**1. Hoi-Yea Shea in Japan**: Summary of January newsletter - please write your prayer around these points
     - Give thanks for the Christmas lunch and concert- for the joy in sharing the gospel and the open and meaningful discussions shared
     - Praise God for the opportunity to share the Christmas story at an after school childcare that Hoi-Yan volunteers at
     - Pray for Hoi-Yan to be disciplined, setting aside time to reflect on the past year and to seek God’s wisdom for the year ahead
 
-**2. Berkeley Life Centre**
-General info:
-Berkeley Life Centre desires to see Jesus Christ transforming lives to transform a community. They minister in the south coast in an area where many people are from a low socioeconomic background. People are coming to faith and the church is making a positive impact.
+**2. Berkeley Life Centre**: General info - Berkeley Life Centre desires to see Jesus Christ transforming lives to transform a community. They minister in the south coast in an area where many people are from a low socioeconomic background. People are coming to faith and the church is making a positive impact.
 
 **Church Ministries**
 - **CanCare**
