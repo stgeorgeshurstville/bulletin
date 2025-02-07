@@ -18,11 +18,9 @@ order: 5
     - 🕑 2:00 PM
     - 📍 At the Church
 
-- **The following Sunday, 9 March 2025, we will have our AGM Sunday**:Combined Morning Service and Annual General Meeting immediately after. Please mark these dates in your calendar and continue to pray for God’s guidance.
-- **We'll welcome the Pantlin family with a pho sunday on 2 February after 4pm church. The costs should be around $10 per person.**
-- **The Summer Kids Program has finished for 2025!** We are so thankful to God and encouraged by the way God has moved the hearts of many adults across all of our church congregations who have answered the call for help in loving our kids, families and leaders this summer! Please pray that our church would continue to be one where we love and serve each other intergenerationally, especially as we visibly church together in the upcoming All Gen services this year.
-- **NewGen Children’s Ministry resumes on 9th February 2025.** We have a crèche/ toddlers program, and a K-6 program at 9:30am, 11am and 4pm. Please leave enough time before service for start of year registrations. If you have any questions please contact Pastor Carol Chiu.
-- **Mentoring (Y6-8)**  is back on! If your child is in Y6-8 and you did not received a message this week from Jaffe Chiu or your child’s mentor, please let Carol or Brian know ASAP to ensure you are included in the communications channel. A reminder that we have Mentoring All-In programs at 12:45pm at 124 Forest Rd on the first week of every month unless you are notified otherwise. 
+- **NewGen Children’s Ministry has resumed for 2025:** We have a 0-5yo crèche/ toddlers program, and a K-6 program at 9:30am, 11am and 4pm. Please leave enough time before service for start of year registrations. If you have any questions please contact Pastor Carol Chiu. 
+
+- **Mentoring (Y6-8) is back on!** If your child is in Y6-8 and you have not yet received a message from Jaffe Chiu or your child’s mentor, please let Carol or Brian know ASAP to ensure you are included in the communications channel. A reminder that we have Mentoring All-In programs at 12:45pm at 124 Forest Rd on the first week of every month unless you are notified otherwise. 
 
 - [**What are you doing for God’s glory in 2025?**](https://forms.gle/dshYacLA1kB8xpkn7)
 
