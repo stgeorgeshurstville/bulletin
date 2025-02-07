@@ -9,13 +9,13 @@ title: Welcome
 [comment]: ##### "where the sentence came from, e.g. Psalm 1:1"  
 [comment]: ----------------------------------------------------  
 
-## Good News for the Broken: Who will heal my brokenness? 
+## The Upside Down Kingdom
 
 
 
 
-#### O come, let us worship and bow down, let us kneel before the Lord, our Maker. For he is our God, and we are the people of his pasture, and the sheep of his hand. 
-##### Psalm 95.6-7
+#### And even if our gospel is veiled, it is veiled to those who are perishing. In their case the god of this world has blinded the minds of the unbelievers, to keep them from seeing the light of the gospel of the glory of Christ, who is the image of God. For we do not proclaim ourselves; we proclaim Jesus Christ as Lord and ourselves as your slaves for Jesus’ sake. For it is the God who said, ‘Let light shine out of darkness’, who has shone in our hearts to give the light of the knowledge of the glory of God in the face of Jesus Christ. 
+##### 2 Corinthians 4:3-6
 
 
 
