@@ -4,10 +4,10 @@ order: 1
 ---
 
 ## 9:30am
-1. Behold Our God
-2. 
-3. This Kingdom
-4. The Man Who Calmed The Sea
+1. Holy Holy Holy!
+2. The Man Who Calmed the Sea
+3. Let Your Kingdom Come
+4. Is He Worthy 
 
 ## 4pm
 1. Your Word
