@@ -36,6 +36,7 @@ Almighty Father, whose Son was revealed in majesty before he suffered death upon
 
 
 **Groups in Church**
+
 **1. Cantonese Congregation**: Lord, we pray for our brothers and sisters of the Cantonese congregation, asking for strength and wisdom as we walk this journey of faith together. Lead us to grow deeper in Christ, to know more of Your truth and love, and to live lives that reflect Your glory. Help us to rely on You in every challenge and opportunity, trusting in Your plans and provisions. Bless our ministry teams and every member of our congregation, uniting us in heart and purpose as we serve together for the glory of Your name. May we demonstrate Christ’s love in our church and beyond. Strengthen us to be faithful witnesses of the Gospel. Open doors for us to share Your love, and equip us to bring hope to those who need You. Let our lives be a testimony of Your grace, so that more people may come to know and experience the joy of salvation in Jesus Christ. Amen.
 
 **2. Volunteers**: Heavenly Father, we pray for all the  volunteers in  different ministry positions at St. George's  Hurstville Anglican Church, especially for the brothers and sisters who are new to the ministries. May God equip them and help them grow and mature. Lead them to use the gifts and talents You have given them to serve You and others. Pray that God will empower them to love and care for Your  people with patience and kindness, and together build up the Body of Christ - the Church. In the name of Christ we pray, Amen!
