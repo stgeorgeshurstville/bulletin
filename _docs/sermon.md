@@ -22,7 +22,7 @@ Dear God, thank you for letting us know you. Please help us learn from your word
 
 ### Matthew 9:35-10:42 (NIV) 
 
-**The Workers Are Few**
+The Workers Are Few
 
 ³⁵ Jesus went through all the towns and villages, teaching in their synagogues, proclaiming the good news of the kingdom and healing every disease and sickness. ³⁶ When he saw the crowds, he had compassion on them, because they were harassed and helpless, like sheep without a shepherd. ³⁷ Then he said to his disciples, “The harvest is plentiful but the workers are few. ³⁸ Ask the Lord of the harvest, therefore, to send out workers into his harvest field.”
 
