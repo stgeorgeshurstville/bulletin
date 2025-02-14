@@ -20,7 +20,7 @@ order: 2
 ### Prayer
 Dear God, thank you for letting us know you. Please help us learn from your word. Help us to serve and praise you. **Amen!**
 
-### Matthew Matthew 11:1-19 (NIV)
+### Matthew 11:1-19 (NIV)
 
 After Jesus had finished instructing his twelve disciples, he went on from there to teach and preach in the towns of Galilee. 
 
