@@ -21,7 +21,8 @@ order: 5
 
 - **NewGen Children’s Ministry has resumed for 2025:** We have a 0-5yo crèche/ toddlers program, and a K-6 program at 9:30am, 11am and 4pm. Please leave enough time before service for start of year registrations. If you have any questions please contact Pastor Carol Chiu. 
 
-- **Mentoring (Y6-8) is back on!** If your child is in Y6-8 and you have not yet received a message from Jaffe Chiu or your child’s mentor, please let Carol or Brian know ASAP to ensure you are included in the communications channel. A reminder that we have Mentoring All-In programs at 12:45pm at 124 Forest Rd on the first week of every month unless you are notified otherwise. 
+- **Youth Group** has started: Reminder that it is every Friday from 7pm to 9pm. Find our more details [here](https://stgeorgeshurstville.org.au/youth-group)
+
 
 - [**What are you doing for God’s glory in 2025?**](https://forms.gle/dshYacLA1kB8xpkn7)
 
