@@ -38,8 +38,11 @@ who will prepare your way before you.’
 ¹⁶ “To what can I compare this generation? They are like children sitting in the marketplaces and calling out to others:
 
 ¹⁷ “‘We played the pipe for you,
+
 and you did not dance;
+
 we sang a dirge,
+
 and you did not mourn.’
 
 ¹⁸ For John came neither eating nor drinking, and they say, ‘He has a demon.’ ¹⁹ The Son of Man came eating and drinking, and they say, ‘Here is a glutton and a drunkard, a friend of tax collectors and sinners.’ But wisdom is proved right by her deeds.”
