@@ -21,7 +21,7 @@ order: 5
 
 - **NewGen Children’s Ministry has resumed for 2025:** We have a 0-5yo crèche/ toddlers program, and a K-6 program at 9:30am, 11am and 4pm. Please leave enough time before service for start of year registrations. If you have any questions please contact Pastor Carol Chiu. 
 
-- **Youth Group** has started: Reminder that it is every Friday from 7pm to 9pm. Find our more details [here].(https://stgeorgeshurstville.org.au/youth-group)
+- **Youth Group has started**: Reminder that it is every Friday from 7pm to 9pm. Find our more details [here].(https://stgeorgeshurstville.org.au/youth-group)
 
 
 - [**What are you doing for God’s glory in 2025?**](https://forms.gle/dshYacLA1kB8xpkn7)
