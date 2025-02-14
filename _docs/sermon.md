@@ -20,57 +20,40 @@ order: 2
 ### Prayer
 Dear God, thank you for letting us know you. Please help us learn from your word. Help us to serve and praise you. **Amen!**
 
-### Matthew 9:35-10:42 (NIV) 
+### Matthew Matthew 11:1-19 (NIV)
 
-The Workers Are Few
+After Jesus had finished instructing his twelve disciples, he went on from there to teach and preach in the towns of Galilee. 
 
-³⁵ Jesus went through all the towns and villages, teaching in their synagogues, proclaiming the good news of the kingdom and healing every disease and sickness. ³⁶ When he saw the crowds, he had compassion on them, because they were harassed and helpless, like sheep without a shepherd. ³⁷ Then he said to his disciples, “The harvest is plentiful but the workers are few. ³⁸ Ask the Lord of the harvest, therefore, to send out workers into his harvest field.”
+² When John, who was in prison, heard about the deeds of the Messiah, he sent his disciples ³ to ask him, “Are you the one who is to come, or should we expect someone else?”
 
-**Chapter 10**
+⁴ Jesus replied, “Go back and report to John what you hear and see: ⁵ The blind receive sight, the lame walk, those who have leprosy are cleansed, the deaf hear, the dead are raised, and the good news is proclaimed to the poor. ⁶ Blessed is anyone who does not stumble on account of me.”
 
-Jesus Sends Out the Twelve
+⁷ As John’s disciples were leaving, Jesus began to speak to the crowd about John: “What did you go out into the wilderness to see? A reed swayed by the wind? ⁸ If not, what did you go out to see? A man dressed in fine clothes? No, those who wear fine clothes are in kings’ palaces. ⁹ Then what did you go out to see? A prophet? Yes, I tell you, and more than a prophet. ¹⁰ This is the one about whom it is written:
 
-¹ Jesus called his twelve disciples to him and gave them authority to drive out impure spirits and to heal every disease and sickness.
+“‘I will send my messenger ahead of you,
+who will prepare your way before you.’ 
 
-² These are the names of the twelve apostles: first, Simon (who is called Peter) and his brother Andrew; James son of Zebedee, and his brother John; ³ Philip and Bartholomew; Thomas and Matthew the tax collector; James son of Alphaeus, and Thaddaeus; ⁴ Simon the Zealot and Judas Iscariot, who betrayed him.
+¹¹ Truly I tell you, among those born of women there has not risen anyone greater than John the Baptist; yet whoever is least in the kingdom of heaven is greater than he. ¹² From the days of John the Baptist until now, the kingdom of heaven has been subjected to violence, and violent people have been raiding it. ¹³ For all the Prophets and the Law prophesied until John. ¹⁴ And if you are willing to accept it, he is the Elijah who was to come. ¹⁵ Whoever has ears, let them hear.
 
-⁵ These twelve Jesus sent out with the following instructions: “Do not go among the Gentiles or enter any town of the Samaritans. ⁶ Go rather to the lost sheep of Israel. ⁷ As you go, proclaim this message: ‘The kingdom of heaven has come near.’ ⁸ Heal the sick, raise the dead, cleanse those who have leprosy, drive out demons. Freely you have received; freely give.
+¹⁶ “To what can I compare this generation? They are like children sitting in the marketplaces and calling out to others:
 
-⁹ “Do not get any gold or silver or copper to take with you in your belts— ¹⁰ no bag for the journey or extra shirt or sandals or a staff, for the worker is worth his keep. ¹¹ Whatever town or village you enter, search there for some worthy person and stay at their house until you leave. ¹² As you enter the home, give it your greeting. ¹³ If the home is deserving, let your peace rest on it; if it is not, let your return to you. ¹⁴ If anyone will not welcome you or listen to your words, leave that home or town and shake the dust off your feet. ¹⁵ Truly I tell you, it will be more bearable for Sodom and Gomorrah on the day of judgment than for that town.
+¹⁷ “‘We played the pipe for you,
+and you did not dance;
+we sang a dirge,
+and you did not mourn.’
 
-¹⁶ “I am sending you out like sheep among wolves. Therefore be as shrewd as snakes and as innocent as doves. ¹⁷ Be on your guard; you will be handed over to the local councils and be flogged in the synagogues. ¹⁸ On my account you will be brought before governors and kings as witnesses to them and to the Gentiles. ¹⁹ But when they arrest you, do not worry about what to say or how to say it. At that time you will be given what to say, ²⁰ for it will not be you speaking, but the Spirit of your Father speaking through you.
-
-²¹ “Brother will betray brother to death, and a father his child; children will rebel against their parents and have them put to death. ²² You will be hated by everyone because of me, but the one who stands firm to the end will be saved. ²³ When you are persecuted in one place, flee to another. Truly I tell you, you will not finish going through the towns of Israel before the Son of Man comes.
-
-²⁴ “The student is not above the teacher, nor a servant above his master. ²⁵ It is enough for students to be like their teachers, and servants like their masters. If the head of the house has been called Beelzebul, how much more the members of his household!
-
-²⁶ “So do not be afraid of them, for there is nothing concealed that will not be disclosed, or hidden that will not be made known. ²⁷ What I tell you in the dark, speak in the daylight; what is whispered in your ear, proclaim from the roofs. ²⁸ Do not be afraid of those who kill the body but cannot kill the soul. Rather, be afraid of the One who can destroy both soul and body in hell. ²⁹ Are not two sparrows sold for a penny? Yet not one of them will fall to the ground outside your Father’s care. ³⁰ And even the very hairs of your head are all numbered. ³¹ So don’t be afraid; you are worth more than many sparrows.
-
-³² “Whoever acknowledges me before others, I will also acknowledge before my Father in heaven. ³³ But whoever disowns me before others, I will disown before my Father in heaven.
-
-³⁴ “Do not suppose that I have come to bring peace to the earth. I did not come to bring peace, but a sword. ³⁵ For I have come to turn
-
-  “‘a man against his father, 
-  
-  a daughter against her mother, 
-  
-  a daughter-in-law against her mother-in-law—
-  
-  ³⁶ a man’s enemies will be the members of his own household.’ 
-  
-
-³⁷ “Anyone who loves their father or mother more than me is not worthy of me; anyone who loves their son or daughter more than me is not worthy of me. ³⁸ Whoever does not take up their cross and follow me is not worthy of me. ³⁹ Whoever finds their life will lose it, and whoever loses their life for my sake will find it.
-
-⁴⁰ “Anyone who welcomes you welcomes me, and anyone who welcomes me welcomes the one who sent me. ⁴¹ Whoever welcomes a prophet as a prophet will receive a prophet’s reward, and whoever welcomes a righteous person as a righteous person will receive a righteous person’s reward. ⁴² And if anyone gives even a cup of cold water to one of these little ones who is my disciple, truly I tell you, that person will certainly not lose their reward.”
+¹⁸ For John came neither eating nor drinking, and they say, ‘He has a demon.’ ¹⁹ The Son of Man came eating and drinking, and they say, ‘Here is a glutton and a drunkard, a friend of tax collectors and sinners.’ But wisdom is proved right by her deeds.”
 
 
 ## Sermon Outline
 
-Intro - Do you find it hard to be on mission for Jesus? 
+- The Age of the Offended
+- The Context
+- The Greatest Showman
+- God offends
+- Even His teammates
+- Conclusions 
 
-1. The call of being on mission for Jesus.
-2. The cost of being on mission for Jesus.
-3. The worthwhileness of being on mission for Jesus.
 
 ## Q&A
 Got questions or comments? Send them [here](https://tinyurl.com/SGHACQuestionsAnswers)
