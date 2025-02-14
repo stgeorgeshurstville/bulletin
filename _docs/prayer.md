@@ -52,7 +52,7 @@ The pastoral search process. The first round of interviews will be next week. Pl
 
 **Special Items & Events**
 
-**From the passage:**
+**1. From the passage:**
 Our heavenly Father,
 Jesus defies our expectations, confronts our sin, and offends our pride. Thank You for including us in Your kingdom, where even the least among us is greater than John the Baptist, not by our merit, but by Your grace.
 We confess that we often put Jesus in a box, shaping Him to fit our desires rather than surrendering to His lordship. Challenge us, Lord, to take Him on His terms, to be transformed by His truth, and to conform to His likeness by the power of Your Spirit.
