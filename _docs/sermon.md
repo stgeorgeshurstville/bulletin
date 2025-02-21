@@ -50,7 +50,6 @@ till he has brought justice through to victory.
 
 
 ## Sermon Outline
-### 
 
 - The quest for rest
 - Find rest in the wrong places
