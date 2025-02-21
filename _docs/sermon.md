@@ -20,43 +20,42 @@ order: 2
 ### Prayer
 Dear God, thank you for letting us know you. Please help us learn from your word. Help us to serve and praise you. **Amen!**
 
-### Matthew 11:1-19 (NIV)
+### Matthew 11:28-12:21 (NIV)
 
-After Jesus had finished instructing his twelve disciples, he went on from there to teach and preach in the towns of Galilee. 
+28 “Come to me, all you who are weary and burdened, and I will give you rest. 29 Take my yoke upon you and learn from me, for I am gentle and humble in heart, and you will find rest for your souls. 30 For my yoke is easy and my burden is light.”
 
-² When John, who was in prison, heard about the deeds of the Messiah, he sent his disciples ³ to ask him, “Are you the one who is to come, or should we expect someone else?”
+12 At that time Jesus went through the grainfields on the Sabbath. His disciples were hungry and began to pick some heads of grain and eat them. 2 When the Pharisees saw this, they said to him, “Look! Your disciples are doing what is unlawful on the Sabbath.”
 
-⁴ Jesus replied, “Go back and report to John what you hear and see: ⁵ The blind receive sight, the lame walk, those who have leprosy are cleansed, the deaf hear, the dead are raised, and the good news is proclaimed to the poor. ⁶ Blessed is anyone who does not stumble on account of me.”
+3 He answered, “Haven’t you read what David did when he and his companions were hungry? 4 He entered the house of God, and he and his companions ate the consecrated bread—which was not lawful for them to do, but only for the priests. 5 Or haven’t you read in the Law that the priests on Sabbath duty in the temple desecrate the Sabbath and yet are innocent? 6 I tell you that something greater than the temple is here. 7 If you had known what these words mean, ‘I desire mercy, not sacrifice,’[a] you would not have condemned the innocent. 8 For the Son of Man is Lord of the Sabbath.”
 
-⁷ As John’s disciples were leaving, Jesus began to speak to the crowd about John: “What did you go out into the wilderness to see? A reed swayed by the wind? ⁸ If not, what did you go out to see? A man dressed in fine clothes? No, those who wear fine clothes are in kings’ palaces. ⁹ Then what did you go out to see? A prophet? Yes, I tell you, and more than a prophet. ¹⁰ This is the one about whom it is written:
+9 Going on from that place, he went into their synagogue, 10 and a man with a shriveled hand was there. Looking for a reason to bring charges against Jesus, they asked him, “Is it lawful to heal on the Sabbath?”
 
-“‘I will send my messenger ahead of you,
-who will prepare your way before you.’ 
+11 He said to them, “If any of you has a sheep and it falls into a pit on the Sabbath, will you not take hold of it and lift it out? 12 How much more valuable is a person than a sheep! Therefore it is lawful to do good on the Sabbath.”
 
-¹¹ Truly I tell you, among those born of women there has not risen anyone greater than John the Baptist; yet whoever is least in the kingdom of heaven is greater than he. ¹² From the days of John the Baptist until now, the kingdom of heaven has been subjected to violence, and violent people have been raiding it. ¹³ For all the Prophets and the Law prophesied until John. ¹⁴ And if you are willing to accept it, he is the Elijah who was to come. ¹⁵ Whoever has ears, let them hear.
+13 Then he said to the man, “Stretch out your hand.” So he stretched it out and it was completely restored, just as sound as the other. 14 But the Pharisees went out and plotted how they might kill Jesus.
 
-¹⁶ “To what can I compare this generation? They are like children sitting in the marketplaces and calling out to others:
+15 Aware of this, Jesus withdrew from that place. A large crowd followed him, and he healed all who were ill. 16 He warned them not to tell others about him. 17 This was to fulfill what was spoken through the prophet Isaiah:
 
-¹⁷ “‘We played the pipe for you,
+18 “Here is my servant whom I have chosen,
+    the one I love, in whom I delight;
+I will put my Spirit on him,
+    and he will proclaim justice to the nations.
+19 He will not quarrel or cry out;
+    no one will hear his voice in the streets.
+20 A bruised reed he will not break,
+    and a smoldering wick he will not snuff out,
+till he has brought justice through to victory.
+21     In his name the nations will put their hope.”
 
-and you did not dance;
-
-we sang a dirge,
-
-and you did not mourn.’
-
-¹⁸ For John came neither eating nor drinking, and they say, ‘He has a demon.’ ¹⁹ The Son of Man came eating and drinking, and they say, ‘Here is a glutton and a drunkard, a friend of tax collectors and sinners.’ But wisdom is proved right by her deeds.”
 
 
 ## Sermon Outline
-### Greater than the Greatest
+### 
 
-- The Age of the Offended
-- The Context
-- The Greatest Showman
-- God offends
-- Even His teammates
-- Conclusions 
+- The quest for rest
+- Find rest in the wrong places
+- The promise of rest
+- Conclusions
 
 
 ## Q&A
