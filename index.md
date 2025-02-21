@@ -10,13 +10,13 @@ title: Welcome
 [comment]: ----------------------------------------------------  
 
 ## The Upside Down Kingdom 
-### Greater than the Greatest 
+### The life of the party
 
 
 
 
-#### When you call to me, says the Lord, I will answer you; I will be with you in trouble, I will rescue you and honour you.
-##### Psalm 91.15,16
+#### My heart says to the Lord, 'Your face, Lord do I seek.' Hide not your face from me. Turn not your servant away in anger, for you have been my help. 
+##### Psalm 27.8-9
 
 
 
