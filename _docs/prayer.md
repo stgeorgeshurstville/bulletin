@@ -11,16 +11,19 @@ Lord Jesus Christ, for our sake you fasted forty days and forty nights: give us 
 
 
 **Mission and Vision**
+
 1. Mission
 
   
 **Global and Nation**
+
 1. Local
 - Please pray for the Democratic Republic of Congo, which is experiencing horrific unrest and war. Thousands have died, and over six million people have been forced from their homes, fleeing to neighboring countries like Uganda and Rwanda. 
 - You can read more [here](https://sydneyanglicans.net/news/children-caught-in-congo-chaos/54657)
 
   
 **Mission Partners**
+
 **1. Mathys and PNG**
 General info: There are >800 languages spoken in Papua New Guinea, but only 13 have complete bibles. Calvin and Ruth work alongside Papua New Guineans in roles that support the ongoing ministry of bible translation. Calvin is an aircraft maintenance engineer, in order to provide transport and logistics support for bible translators. Ruth provides training for the bible translators, so that locals can take the lead in this work. 
 
@@ -30,11 +33,13 @@ Give thanks for Jakob (oldest son) who has now started studying video game progr
 
 
 **Church Ministries**
+
 **Discipleship groups**
 Please pray for all the discipleship groups that started meeting again last week. Pray that our members won't give up meeting together, but will encourage others in their group, just as Christ has drawn them to himself.
 
 
 **Groups in Church**
+
 **1. Nepalese church**
 - Our weekly bible study resumed last month. Each week we normally gather 7 to 10 people in our bible study. 
 - Please pray that this group will grow in their understanding of God’s word and become mature disciples of Jesus. 
@@ -45,6 +50,7 @@ Please pray for all the discipleship groups that started meeting again last week
 
 
 **Special Items & Events**
+
 **1. From the passage:**
 From the passage:
 Heavenly Father,
