@@ -11,11 +11,11 @@ Lord Jesus Christ, for our sake you fasted forty days and forty nights: give us 
 
 
 ###Mission and Vision###
-1. Mission
+Mission
 
   
 ###Global and Nation###
-1. Local
+Local
 - Please pray for the Democratic Republic of Congo, which is experiencing horrific unrest and war. Thousands have died, and over six million people have been forced from their homes, fleeing to neighboring countries like Uganda and Rwanda. 
 - You can read more [here](https://sydneyanglicans.net/news/children-caught-in-congo-chaos/54657)
 
