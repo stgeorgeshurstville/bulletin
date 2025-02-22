@@ -29,13 +29,13 @@ Give thanks that they can enjoy their first family holiday in over 5 years, and 
 Give thanks for Jakob (oldest son) who has now started studying video game programming at the Academy of Interactive Entertainment
 
 
-###Church Ministries
+### Church Ministries
 
 **Discipleship groups**
 Please pray for all the discipleship groups that started meeting again last week. Pray that our members won't give up meeting together, but will encourage others in their group, just as Christ has drawn them to himself.
 
 
-###Groups in Church
+### Groups in Church
 
 **1. Nepalese church**
 - Our weekly bible study resumed last month. Each week we normally gather 7 to 10 people in our bible study. 
@@ -46,7 +46,7 @@ Please pray for all the discipleship groups that started meeting again last week
 **2.Singles, widows and orphans**
 
 
-###Special Items & Events
+### Special Items & Events
 
 **From the passage:**
 From the passage:
