@@ -9,14 +9,13 @@ title: Welcome
 [comment]: ##### "where the sentence came from, e.g. Psalm 1:1"  
 [comment]: ----------------------------------------------------  
 
-## The Upside Down Kingdom 
-### The life of the party
+## Who will heal my brokenness?
 
 
 
 
-#### My heart says to the Lord, 'Your face, Lord do I seek.' Hide not your face from me. Turn not your servant away in anger, for you have been my help. 
-##### Psalm 27.8-9
+#### O come, let us worship and bow down, let us kneel before the Lord, our Maker. For He is our God, and we are the people of His pasture, and the sheep of His hand. 
+##### Psalm 95.6-7
 
 
 
