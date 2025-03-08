@@ -14,12 +14,12 @@ order: 5
 
 ## General
 - The 2025 Autumn Life Quarterly has been published, which contains ministries reports for the Annual General Meeting, testifying to God's wonderful work in the church and in each person's life. Don't miss it. For more information, please visit the church website: https://stgeorgeshurstville.org.au/agm2025
-Youth Group has started: Friday 7-9pm. 
+- Youth Group has started: Friday 7-9pm. [here](https://stgeorgeshurstville.org.au/youth-group) for more detail. 
 
-- Discipleship Groups are back! 
+- **Discipleship Groups are back!**
 Looking to deepen your understanding of the Bible and connect with others? Our discipleship groups have kicked off for the year, and anyone is welcome to join. These groups offer a fantastic opportunity to learn from each other and grow in our faith in Jesus. Groups meet Tuesday through Thursday evenings, and on Sunday mornings and afternoons. If you'd like to join a group, please email Ben at ben.pantlin@stgeorgeshurstville.org.au.
 
-- NewGen Children’s Ministry has resumed for 2025. We have a 0-5yo crèche/ toddlers program, and a K-6 program at 9:30am, 11am and 4pm. Please leave enough time before service for start of year registrations. If you have any questions please contact Pastor Carol Chiu. 
+- **NewGen Children’s Ministry has resumed for 2025.** We have a 0-5yo crèche/ toddlers program, and a K-6 program at 9:30am, 11am and 4pm. Please leave enough time before service for start of year registrations. If you have any questions please contact Pastor Carol Chiu. 
 
 
 - [**What are you doing for God’s glory in 2025?**](https://forms.gle/dshYacLA1kB8xpkn7)
