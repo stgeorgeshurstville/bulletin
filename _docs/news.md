@@ -8,7 +8,6 @@ order: 5
 | Date | Event | Time |
 | ----- | ----- | ----- |
 | **MARCH** | 
-| 2 MAR | Church Property Meeting | 2:00 PM |
 | 9 MAR | Annual General Meeting | 1:00 PM |
 
 
