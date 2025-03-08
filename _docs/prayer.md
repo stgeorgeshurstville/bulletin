@@ -4,28 +4,37 @@ order: 4
 ---
 **Prayer**
 
-Heavenly Father,
-We thank you, for the immeasurable gift of being part of your family. We rejoice in the fellowship we share with our brothers, mothers, and sisters in faith as we all strive to do your will. But Lord, we know there is a tendency to think of you differently, to accuse you as someone you are not, to ask of you things we should not, or to be ashamed of being associated with you. For those times, we ask for your grace that welcomes us back home into your family. Amen.
+Almighty God, grant that we, who justly deserve to be punished for our sinful deeds, may in your mercy and kindness be pardoned and restored; through our Lord and Saviour Jesus Christ. Amen.
+
+This week for our AGM combined service we are praying for three areas, our local community, Our country and the world. 
 
 
 
-## Week 1: (first Sunday of the Month) 
+
+## The Fourth Sunday in Lent (New Life) 
 
 
-### Mission and Vision ###
+### Hurstville ###
+- We pray for all those in our local area who don’t know Christ, that you will open their hearts to hear your gospel message and be saved.
+- We pray for our local council representatives, our mayor Elise Borg, our deputy mayor Nancy Liu, and all other council representatives. We pray that they will uphold their office with integrity and honour as they serve the people in the local community.
+- We pray for the growing Nepalese community, which makes up 15.8% of all Nepalese people in Australia. Pray that they will come to faith through our Sangati church, which meets on Monday afternoons.
+- We pray for all local businesses in the area, that they will work ethically and positively influence the local area.
 
   
-### Global and Nation ###
+### Australia ###
+- We pray for the ongoing safety of those who have been affected by Cyclone Alfred in Southeast Queensland. We pray for minimal damage to property and human life.
+- We pray for the upcoming federal election that will occur sometime this year. We pray that whichever candidate gets elected will lead Australia in a way so that we may lead peaceful and quiet lives in all godliness and holiness (1 Peter 2:2).
+- We pray for our First Nations peoples, that the gap may be bridged where reconciliation, forgiveness, and healing may occur for our indigenous Australians.
+- We pray for all the gospel workers who are scattered throughout all Australia, help them to persevere in this important task in making you known.
 
 
-### Mission Partners
-- Persecuted Christians
-- Compassion. (General info: Compassion is a Christian international holistic child development organisation. In response to God’s call, Compassion gives hope to the hopeless, spreading the gospel of Jesus Christ in a culturally relevant, non-coercive way. Through our Child Sponsorship Program, more than 2 million children are currently being released from poverty in Jesus’ name.)
-
-
-### Church Ministries
-**EAL/D**
-Please continue to pray for our students who attend our EAL/D classes. We have had about 40 students attend over the past two weeks. We are eager to teach the students the gospel message, so please pray that many will choose to put their faith in Jesus.
+### The World ###
+- We pray for the ongoing escalation and conflict that is taking place in the Congo, as they are in the midst of a civil war - https://sydneyanglicans.net/news/children-caught-in-congo-chaos/54657
+- We want to continue to pray for all our mission partners who are preaching the gospel overseas. Specifically we pray for 
+  - JC in Southeast Asia
+  - Hoi-Yan in Japan with OMF
+  - Philip and Lillian in West Asia
+  - Mathys in PNG
 
 
 - **Prayer points can be found [here](https://stgeorgeshurstville.org.au/prayer)**
