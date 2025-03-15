@@ -7,18 +7,22 @@ order: 5
 
 | Date | Event | Time |
 | ----- | ----- | ----- |
-| **MARCH** | 
-| 9 MAR | Annual General Meeting | 1:00 PM |
+| **APRIL** | 
+| 6 APR | 4pm English service moving to the chapel | 4:00 PM |
 
 
 ## General
-- The 2025 Autumn Life Quarterly has been published, which contains ministries reports for the Annual General Meeting, testifying to God's wonderful work in the church and in each person's life. Don't miss it. For more information, please visit the church website: https://stgeorgeshurstville.org.au/agm2025
-- Youth Group has started: Friday 7-9pm. [Here](https://stgeorgeshurstville.org.au/youth-group) for more detail. 
+- **Vision 2025:** Our vision for 2025 is the ‘shine for Jesus, everywhere, anytime.’ 
+We would love for you to take a few minutes to complete the Shine survey to help give us a picture of where we are as a church.  https://docs.google.com/forms/d/e/1FAIpQLSezXaAZ_-lCp9NhPs6MlBz5c127LD8oH5YMn1BdLzrOT2Q8Ug/viewform?usp=dialog
+- **Combined Service and AGM:** Thank you for praying for last week, for those who’ve come and took part. The minutes of the AGM and February parish council have been adopted and are available. Please contact the office if you wish to access a copy.   
+- **The 2025 Autumn Life Quarterly** has been published, which contains ministries reports for the Annual General Meeting, testifying to God's wonderful work in the church and in each person's life. Don't miss it. For more information, please visit the church website: https://stgeorgeshurstville.org.au/agm2025
+- **Our 4PM English Service is Overflowing – We Need to Act!** God has been growing our church, and our 4PM English service is now so full that visitors are leaving because they can't find a seat. With Easter coming, this challenge will only get bigger. 
+
+To make space for more people to hear the gospel, we’re making a change: **From 6 April 2025, our English and Mandarin congregations will swap meeting spaces.** We’ll also be working hard to ensure the Hall is well-prepared for our Mandarin brothers and sisters.
+This is an exciting opportunity to welcome more people and keep sharing Jesus with our community—let’s embrace it together!   
 
 - **Discipleship Groups are back!**
 Looking to deepen your understanding of the Bible and connect with others? Our discipleship groups have kicked off for the year, and anyone is welcome to join. These groups offer a fantastic opportunity to learn from each other and grow in our faith in Jesus. Groups meet Tuesday through Thursday evenings, and on Sunday mornings and afternoons. If you'd like to join a group, please email Ben at ben.pantlin@stgeorgeshurstville.org.au.
-
-- **NewGen Children’s Ministry has resumed for 2025.** We have a 0-5yo crèche/ toddlers program, and a K-6 program at 9:30am, 11am and 4pm. Please leave enough time before service for start of year registrations. If you have any questions please contact Pastor Carol Chiu. 
 
 
 - [**What are you doing for God’s glory in 2025?**](https://forms.gle/dshYacLA1kB8xpkn7)
