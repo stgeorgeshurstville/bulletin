@@ -48,6 +48,7 @@ and turn, and I would heal them.’
 
 ¹⁸ “Listen then to what the parable of the sower means: ¹⁹ When anyone hears the message about the kingdom and does not understand it, the evil one comes and snatches away what was sown in their heart. This is the seed sown along the path. ²⁰ The seed falling on rocky ground refers to someone who hears the word and at once receives it with joy. ²¹ But since they have no root, they last only a short time. When trouble or persecution comes because of the word, they quickly fall away. ²² The seed falling among the thorns refers to someone who hears the word, but the worries of this life and the deceitfulness of wealth choke the word, making it unfruitful. ²³ But the seed falling on good soil refers to someone who hears the word and understands it. This is the one who produces a crop, yielding a hundred, sixty or thirty times what was sown.”
 
+### Parables of the kingdom
 
 ## Sermon Outline
 
