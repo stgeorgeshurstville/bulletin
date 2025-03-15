@@ -7,12 +7,13 @@ order: 7
 
 #### Reflection Questions
 
-Read Matthew 5:14-16
+Read Matthew 13:1-23
 
-1. How does Jesus leverage Isaiah's imagery? (Look up Isaiah 2:1-5)
-2. Do you think it's possible for Christians to cover their light? Why or why not?
-3. What does it mean for your light to shine before others? You may like to look up Philippians 2:14-16, Ephesians 5:8-13 to give you an idea how you can shine.
-4. If no one glorifies God through your shining, have you failed?
+1. Who does the farmer represent as the one who scatters the seed? (v3)
+2. Why do some find Jesus’ parables hard to understand? (v14-15)
+3. What is it that makes us more blessed than the prophets of old? (v16-17)
+4. What occurs when the seed lands on good soil? What will it look like for you to yield a harvest hundred, sixty or thirty fold? (v23)
+
 
 
 
