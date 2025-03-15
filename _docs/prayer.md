@@ -9,7 +9,7 @@ We beseech you, almighty God, to look in mercy on your people: that by your grea
 
 
 
-## Qwwk 3 (Third Sunday of the month)
+## Week 3 (Third Sunday of the month)
 
 ### From the passage ###
 From Matthew 13:
