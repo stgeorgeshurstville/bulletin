@@ -12,8 +12,10 @@ We beseech you, almighty God, to look in mercy on your people: that by your grea
 ## Week 3 (Third Sunday of the month)
 
 ### From the passage ###
-From Matthew 13:
+**From Matthew 13:**
+
 Heavenly Father,
+
 We praise You for Your kingdom, hidden from the proud but revealed to those who come in humility. Thank You for sending Jesus, who spoke in parables—not to confuse, but to separate true disciples from the crowd. Give us ears to hear and hearts that truly understand.
 
 Father, we confess how easily we can be distracted—by worries, wealth, or our own independence. Break our pride, that we may come to Jesus not as those who think we see, but as the blind who long for sight. Make us like the good soil, receiving Your Word with faith and bearing fruit that glorifies You.
