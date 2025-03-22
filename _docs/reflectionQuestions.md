@@ -9,10 +9,10 @@ order: 7
 
 Read Matthew 13:1-23
 
-1. Who does the farmer represent as the one who scatters the seed? (v3)
-2. Why do some find Jesus’ parables hard to understand? (v14-15)
-3. What is it that makes us more blessed than the prophets of old? (v16-17)
-4. What occurs when the seed lands on good soil? What will it look like for you to yield a harvest hundred, sixty or thirty fold? (v23)
+1. Is the kingdom of heaven priceless or worthless? How do you know? 
+2. Please read Matthew 14:1-12. What does this tell you about the kingdoms of Man? 
+3. Please read Matthew 14:13-36. What does this tell you about the kingdom of Heaven?
+4. How could Matthew 14 help you to face: the attack of the evil one; opposition and hardship because of the Word; the worries of this life and the deceptions of wealth?  
 
 
 
