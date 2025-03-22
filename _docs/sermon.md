@@ -42,29 +42,23 @@ But Jesus said to them, “A prophet is not without honor except in his own town
 ¹⁷ “We have here only five loaves of bread and two fish,” they answered.
 
 ¹⁸ “Bring them here to me,” he said. ¹⁹ And he directed the people to sit down on the grass. Taking the five loaves and the two fish and looking up to heaven, he gave thanks and broke the loaves. Then he gave them to the disciples, and the disciples gave them to the people. ²⁰ They all ate and were satisfied, and the disciples picked up twelve basketfuls of broken pieces that were left over. ²¹ The number of those who ate was about five thousand men, besides women and children.
-
 ²² Immediately Jesus made the disciples get into the boat and go on ahead of him to the other side, while he dismissed the crowd. ²³ After he had dismissed them, he went up on a mountainside by himself to pray. Later that night, he was there alone, ²⁴ and the boat was already a considerable distance from land, buffeted by the waves because the wind was against it.
-
 ²⁵ Shortly before dawn Jesus went out to them, walking on the lake. ²⁶ When the disciples saw him walking on the lake, they were terrified. “It’s a ghost,” they said, and cried out in fear.
-
 ²⁷ But Jesus immediately said to them: “Take courage! It is I. Don’t be afraid.”
-
 ²⁸ “Lord, if it’s you,” Peter replied, “tell me to come to you on the water.”
-
 ²⁹ “Come,” he said.
-
 Then Peter got down out of the boat, walked on the water and came toward Jesus. ³⁰ But when he saw the wind, he was afraid and, beginning to sink, cried out, “Lord, save me!”
-
 ³¹ Immediately Jesus reached out his hand and caught him. “You of little faith,” he said, “why did you doubt?”
-
 ³² And when they climbed into the boat, the wind died down. ³³ Then those who were in the boat worshiped him, saying, “Truly you are the Son of God.”
-### Parables of the kingdom
 
 ## Sermon Outline
+1. Cyclone Alfred 
+2. Herod’s feast 
+3. Banquet of the Lamb 
+4. In the Eye of the Storm 
+5. Conclusions 
 
-1. A riddle that demands an interpretation.
-2. A riddle that will stay a mystery for some.
-3. A riddle that can bring a blessing for others. 
+
 
 
 ## Q&A
