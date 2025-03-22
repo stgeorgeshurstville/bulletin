@@ -8,7 +8,6 @@ order: 7
 The kingdom of heaven is demonstrated in what Jesus did - in feeding the 5000 and in walking on water. Jesus is our compassionate Lord who is able and willing to protect, provide and save. 
 
 #### Reflection Questions
-
 Read Matthew 13:1-23
 
 1. Is the kingdom of heaven priceless or worthless? How do you know? 
