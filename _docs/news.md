@@ -33,7 +33,7 @@ During the school holidays, we have a wonderful opportunity to come together as 
 
 -27th of April 
 
-- **Easter 2025: From Darkness to Dawn!**
+- **Easter 2025- From Darkness to Dawn:**
 Do you feel the weight of the world's darkness? Political storms, echoes of conflict, and an uncertain environment marked by floods, cyclones, and wildfires. Yet, at Easter, we are reminded that even the deepest night cannot extinguish the hope of a new dawn. Come to our Easter services and discover this new dawn, a promise of hope that comes through Jesus' death and resurrection.
 
 -Good Friday, April 18th:
