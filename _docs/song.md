@@ -4,16 +4,16 @@ order: 1
 ---
 
 ## 9:30am
-1. Holy Forever
-2. This Kingdom
-3. Teach us to number our days
-4. We Belong to the Day
+1. And Can It Be
+2. Jesus Strong & Kind
+3. Turn Your Eyes Upon Jesus
+4. Shine Jesus Shine
 
    
 ## 4pm
-1. Apostle's Creed
-2. By Faith
-3. Your Word
-4. No Other Name
+1. Ancient of Days
+2. We Belong To The Day
+3. Come Behold the Wonderous Mystery
+4. All Glory be to Christ
 
 Check out the church spotify playlist [here](https://open.spotify.com/playlist/3gh0ZKXkJBDbNEnZqJJDXj?si=0908aa3f87544643)
