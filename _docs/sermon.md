@@ -20,7 +20,7 @@ order: 2
 ### Prayer
 Dear God, thank you for letting us know you. Please help us learn from your word. Help us to serve and praise you. Amen!
 
-### Matthew 13:1-23 (NIV)
+### Matthew 13:53-14:33 (NIV)
 **Parable of the Sower**
 
 That same day Jesus went out of the house and sat by the lake. ² Such large crowds gathered around him that he got into a boat and sat in it, while all the people stood on the shore. ³ Then he told them many things in parables, saying: “A farmer went out to sow his seed. ⁴ As he was scattering the seed, some fell along the path, and the birds came and ate it up. ⁵ Some fell on rocky places, where it did not have much soil. It sprang up quickly, because the soil was shallow. ⁶ But when the sun came up, the plants were scorched, and they withered because they had no root. ⁷ Other seed fell among thorns, which grew up and choked the plants. ⁸ Still other seed fell on good soil, where it produced a crop—a hundred, sixty or thirty times what was sown. ⁹ Whoever has ears, let them hear.”
