@@ -48,7 +48,8 @@ Government: Write your own prayer
 - For pastor Bijiya as he starts a 1 day a week role at Exclesia College seeking to reach Nepali students.
 - International Nepali church conference in Hong Kong to be held in May.  
 
-- **Singles, widows and orphans:** Write your own prayer.
+**Singles, widows and orphans:** 
+- Write your own prayer.
 
 
 ### Special items & events ###
