@@ -46,7 +46,7 @@ Government: Write your own prayer
 **Pastoral Care Teams:**
 
 ### Groups in Church ###
-- **Nepalese Church:**
+**Nepalese Church:**
 - Hurstville Nepali Sangati (‘sangati’ means fellowship). This is the Bible study group established by pastor Bijiya. There’s between 5 to 10 people in the group of Christians and non-Christians.
 - For pastor Bijiya as he starts a 1 day a week role at Exclesia College seeking to reach Nepali students.
 - International Nepali church conference in Hong Kong to be held in May.  
