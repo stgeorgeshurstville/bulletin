@@ -9,13 +9,13 @@ title: Welcome
 [comment]: ##### "where the sentence came from, e.g. Psalm 1:1"  
 [comment]: ----------------------------------------------------  
 
-## Parables of the kingdom
+## The Upside Down Kingdom
 
 
 
 
-#### [In the name of Christ, the psalmist prays:] Vindicate me, O God, and defend my cause against an ungodly people; from deceitful and unjust men deliver me, for you are the God in whom I take refuge. 
-##### Psalm 43.1,2a
+#### [In the name of Christ, the psalmist prays:] Lift up your heads, O gates! and be lifted up, O ancient doors! that the king of glory may come in. Who is the King of glory? The Lord of hosts, he is the king of glory!  
+##### Psalm 24.9,10
 
 
 
