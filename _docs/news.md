@@ -42,6 +42,7 @@ Do you feel the weight of the world's darkness? Political storms, echoes of conf
 -Easter Sunday, April 20th:
 9:30 AM at 124 Forest Road
 4:00 PM at 2 The Avenue
+
 "A new day will dawn on us from above because our God is loving and merciful. He will give light to those who live in the dark and in death’s shadow. He will guide us into the way of peace." Luke 1:78-79
 
 
