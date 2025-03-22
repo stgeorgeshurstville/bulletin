@@ -21,33 +21,43 @@ order: 2
 Dear God, thank you for letting us know you. Please help us learn from your word. Help us to serve and praise you. Amen!
 
 ### Matthew 13:53-14:33 (NIV)
-**Parable of the Sower**
+⁵³ When Jesus had finished these parables, he moved on from there. ⁵⁴ Coming to his hometown, he began teaching the people in their synagogue, and they were amazed. “Where did this man get this wisdom and these miraculous powers?” they asked. ⁵⁵ “Isn’t this the carpenter’s son? Isn’t his mother’s name Mary, and aren’t his brothers James, Joseph, Simon and Judas? ⁵⁶ Aren’t all his sisters with us? Where then did this man get all these things?” ⁵⁷ And they took offense at him.
 
-That same day Jesus went out of the house and sat by the lake. ² Such large crowds gathered around him that he got into a boat and sat in it, while all the people stood on the shore. ³ Then he told them many things in parables, saying: “A farmer went out to sow his seed. ⁴ As he was scattering the seed, some fell along the path, and the birds came and ate it up. ⁵ Some fell on rocky places, where it did not have much soil. It sprang up quickly, because the soil was shallow. ⁶ But when the sun came up, the plants were scorched, and they withered because they had no root. ⁷ Other seed fell among thorns, which grew up and choked the plants. ⁸ Still other seed fell on good soil, where it produced a crop—a hundred, sixty or thirty times what was sown. ⁹ Whoever has ears, let them hear.”
+But Jesus said to them, “A prophet is not without honor except in his own town and in his own home.”
 
-¹⁰ The disciples came to him and asked, “Why do you speak to the people in parables?”
+⁵⁸ And he did not do many miracles there because of their lack of faith.
 
-¹¹ He replied, “Because the knowledge of the secrets of the kingdom of heaven has been given to you, but not to them. ¹² Whoever has will be given more, and they will have an abundance. Whoever does not have, even what they have will be taken from them. ¹³ This is why I speak to them in parables:
+¹⁴ At that time Herod the tetrarch heard the reports about Jesus, ² and he said to his attendants, “This is John the Baptist; he has risen from the dead! That is why miraculous powers are at work in him.”
 
-“Though seeing, they do not see;
-though hearing, they do not hear or understand.
+³ Now Herod had arrested John and bound him and put him in prison because of Herodias, his brother Philip’s wife, ⁴ for John had been saying to him: “It is not lawful for you to have her.” ⁵ Herod wanted to kill John, but he was afraid of the people, because they considered John a prophet.
 
-¹⁴ In them is fulfilled the prophecy of Isaiah:
+⁶ On Herod’s birthday the daughter of Herodias danced for the guests and pleased Herod so much ⁷ that he promised with an oath to give her whatever she asked. ⁸ Prompted by her mother, she said, “Give me here on a platter the head of John the Baptist.” ⁹ The king was distressed, but because of his oaths and his dinner guests, he ordered that her request be granted ¹⁰ and had John beheaded in the prison. ¹¹ His head was brought in on a platter and given to the girl, who carried it to her mother. ¹² John’s disciples came and took his body and buried it. Then they went and told Jesus.
 
-“‘You will be ever hearing but never understanding;
-you will be ever seeing but never perceiving.
-¹⁵ For this people’s heart has become calloused;
-they hardly hear with their ears,
-and they have closed their eyes.
-Otherwise they might see with their eyes,
-hear with their ears,
-understand with their hearts
-and turn, and I would heal them.’
+¹³ When Jesus heard what had happened, he withdrew by boat privately to a solitary place. Hearing of this, the crowds followed him on foot from the towns. ¹⁴ When Jesus landed and saw a large crowd, he had compassion on them and healed their sick.
 
-¹⁶ But blessed are your eyes because they see, and your ears because they hear. ¹⁷ For truly I tell you, many prophets and righteous people longed to see what you see but did not see it, and to hear what you hear but did not hear it.
+¹⁵ As evening approached, the disciples came to him and said, “This is a remote place, and it’s already getting late. Send the crowds away, so they can go to the villages and buy themselves some food.”
 
-¹⁸ “Listen then to what the parable of the sower means: ¹⁹ When anyone hears the message about the kingdom and does not understand it, the evil one comes and snatches away what was sown in their heart. This is the seed sown along the path. ²⁰ The seed falling on rocky ground refers to someone who hears the word and at once receives it with joy. ²¹ But since they have no root, they last only a short time. When trouble or persecution comes because of the word, they quickly fall away. ²² The seed falling among the thorns refers to someone who hears the word, but the worries of this life and the deceitfulness of wealth choke the word, making it unfruitful. ²³ But the seed falling on good soil refers to someone who hears the word and understands it. This is the one who produces a crop, yielding a hundred, sixty or thirty times what was sown.”
+¹⁶ Jesus replied, “They do not need to go away. You give them something to eat.”
 
+¹⁷ “We have here only five loaves of bread and two fish,” they answered.
+
+¹⁸ “Bring them here to me,” he said. ¹⁹ And he directed the people to sit down on the grass. Taking the five loaves and the two fish and looking up to heaven, he gave thanks and broke the loaves. Then he gave them to the disciples, and the disciples gave them to the people. ²⁰ They all ate and were satisfied, and the disciples picked up twelve basketfuls of broken pieces that were left over. ²¹ The number of those who ate was about five thousand men, besides women and children.
+
+²² Immediately Jesus made the disciples get into the boat and go on ahead of him to the other side, while he dismissed the crowd. ²³ After he had dismissed them, he went up on a mountainside by himself to pray. Later that night, he was there alone, ²⁴ and the boat was already a considerable distance from land, buffeted by the waves because the wind was against it.
+
+²⁵ Shortly before dawn Jesus went out to them, walking on the lake. ²⁶ When the disciples saw him walking on the lake, they were terrified. “It’s a ghost,” they said, and cried out in fear.
+
+²⁷ But Jesus immediately said to them: “Take courage! It is I. Don’t be afraid.”
+
+²⁸ “Lord, if it’s you,” Peter replied, “tell me to come to you on the water.”
+
+²⁹ “Come,” he said.
+
+Then Peter got down out of the boat, walked on the water and came toward Jesus. ³⁰ But when he saw the wind, he was afraid and, beginning to sink, cried out, “Lord, save me!”
+
+³¹ Immediately Jesus reached out his hand and caught him. “You of little faith,” he said, “why did you doubt?”
+
+³² And when they climbed into the boat, the wind died down. ³³ Then those who were in the boat worshiped him, saying, “Truly you are the Son of God.”
 ### Parables of the kingdom
 
 ## Sermon Outline
