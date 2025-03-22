@@ -4,6 +4,8 @@ order: 7
 ---
 
 
+#### Big Idea
+The kingdom of heaven is demonstrated in what Jesus did - in feeding the 5000 and in walking on water. Jesus is our compassionate Lord who is able and willing to protect, provide and save. 
 
 #### Reflection Questions
 
