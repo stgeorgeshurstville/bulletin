@@ -27,7 +27,7 @@ But Jesus said to them, “A prophet is not without honor except in his own town
 
 ⁵⁸ And he did not do many miracles there because of their lack of faith.
 
-14 At that time Herod the tetrarch heard the reports about Jesus, ² and he said to his attendants, “This is John the Baptist; he has risen from the dead! That is why miraculous powers are at work in him.”
+¹⁴ At that time Herod the tetrarch heard the reports about Jesus, ² and he said to his attendants, “This is John the Baptist; he has risen from the dead! That is why miraculous powers are at work in him.”
 
 ³ Now Herod had arrested John and bound him and put him in prison because of Herodias, his brother Philip’s wife, ⁴ for John had been saying to him: “It is not lawful for you to have her.” ⁵ Herod wanted to kill John, but he was afraid of the people, because they considered John a prophet.
 
