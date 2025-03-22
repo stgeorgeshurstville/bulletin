@@ -32,30 +32,38 @@ For Growing Deep: Write your own prayer
 Government: Write your own prayer
 
 ### Mission Partners ###
-- **JC:** JC is ministering in a secure location. Our support allows him to be in the country and share the gospel.
-- **Melissa Wang at Focus Adelaide:** FOCUS is a group for international students at Adelaide Uni. Melissa seeks to support their student committee in running the group's weekly activities. She also meets one to one with female students to disciple them through reading the Bible and prayer.
+- **Mathys and PNG:** General info: There are >800 languages spoken in Papua New Guinea, but only 13 have complete bibles. Calvin and Ruth work alongside Papua New Guineans in roles that support the ongoing ministry of bible translation. Calvin is an aircraft maintenance engineer, in order to provide transport and logistics support for bible translators. Ruth provides training for the bible translators, so that locals can take the lead in this work. 
+- **High school scripture & chaplaincy:**
 
 
 ### Church Ministries ###
-**Children and Families:**
-- Praise God for raising godly leaders to show Jesus’ love to our littlest disciples of Jesus in our church. Pray for God to increase in our team gentleness and  humility like that of our Lord Jesus, also energy and creativity as we model and challenge kids to shine for Jesus everywhere and at all times.
-- Pray for parents as they live out what following Jesus looks like to their kids day by day. Pray that God would increase patience in parents and that homes would be shaped by the gospel of grace.
-- Pray for mentors walking with mentees and their parents during a period of many changes and challenges. Pray for genuine love and care as mentors seek to build relationships and trust with mentees and parents.
+**Discipleship Groups:**
+- Discipleship groups are one of the key structures that help our people continue following Jesus. 
+- Please keep praying for our d-group leaders as they pastor those in their groups with the Word of God. 
+- Please pray for those who attend these groups, that they will allow themselves to be shaped by the Word of God. 
+- Please pray that we can start more d-groups and raise up new leaders who are eager to pastor.
 
-**Youth:**
-Thanking God for the youth who have been coming.For the families who adjusted their schedules.  The youth group is going through Two ways to Live. Please pray that all the young people will understand the Gospel, be clear about the choice that they must make, where they stand and by God’s SPirit come to faith in Jesus. Please pray for the young people will continue to grow in being respectful to one another and that the leaders will know how to encourage them to do this.
-
-**SRE:**
-Praise God in answering prayers so that all the year groups at Hurstville PS have a SRE teacher! Pray for the team (Lam, Kimjeng, Tracey, Felishia, George, Steph and Carol) to be bold, faithful and sensitive as we handle and teach the precious truths of the gospel in a public secular space.
-
+**Pastoral Care Teams:**
 
 ### Groups in Church ###
-- **Mandarin congregation:** Please thank God for those who have expressed their interest in the position of the Mandarin assistant pastor at St George’s. The selection process is coming close to the end, please pray that the Lord will make clear the one whom He has chosen to lead his people here. Please pray that we will patiently wait, continue to be faithful in our mission, and be depend on the Lord and not on people.
-- **Families:** Write your own prayer.
+- **Nepalese Church:**
+- Hurstville Nepali Sangati (‘sangati’ means fellowship). This is the Bible study group established by pastor Bijiya. There’s between 5 to 10 people in the group of Christians and non-Christians.
+- For pastor Bijiya as he starts a 1 day a week role at Exclesia College seeking to reach Nepali students.
+- International Nepali church conference in Hong Kong to be held in May.  
+
+- **Singles, widows and orphans:** Write your own prayer.
 
 
 ### Special items & events ###
-The archbishop has asked for prayer for the GAFCON meeting in Texas and for the meeting of the Australian bishops after that.  
+Heavenly Father,
+
+You are our strong tower, and to You all things in heaven and earth will bow. Be the refuge and defence of Jeremy’s family—his widow, Amelia; his mother, Rowena; his grandmother, Betty; his father, Edwin; his brother, Ashley; and all who loved him. May they find comfort, consolation, and hope in our Lord Jesus, whom You have raised from the dead, knowing that those who are in Him will also be raised.  
+
+We give thanks for Jeremy’s life, and in faith and trust, we commend him into Your keeping, praying that in Your good purposes, we may one day rejoice with him in Your eternal kingdom. Kindle our hope, and let our grief give way to the joy of Your promises.  
+
+We pray this in the name of Jesus, who was dead but is now alive.  
+
+Amen.  
 
 
 
