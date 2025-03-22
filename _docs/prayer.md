@@ -4,27 +4,25 @@ order: 4
 ---
 **Prayer**
 
-We beseech you, almighty God, to look in mercy on your people: that by your great goodness they may be governed and preserved evermore; through Jesus Christ our Lord. Amen.
+Almighty and everlasting God, in tender love towards mankind you sent your Son, our Saviour Jesus Christ, to take our nature upon him and to suffer death on the cross, that all mankind should follow the example of his great humility: grant that we may follow the example of his suffering, and also be made partakers of his resurrection; through him who lives and reigns with you and the Holy Spirit, now and for ever. Amen.
 
 
 
-
-## Week 3 (Third Sunday of the month)
+## Week 4 (Fourth Sunday of the month)
 
 ### From the passage ###
 **From Matthew 13:**
 
 Heavenly Father,
+Father, we see the stark contrast between the kingdom of this world and the kingdom of heaven. In the world, the powerful seek to control, to take, and to destroy. But in Your kingdom, the King comes to serve, to provide, and to save. The world feasts in self-indulgence, but You prepare a banquet of life. Teach us to trust in You, to lay aside all that is worthless, and to take hold of what is truly priceless—the kingdom of heaven, where You reign in justice, mercy, and love.
 
-We praise You for Your kingdom, hidden from the proud but revealed to those who come in humility. Thank You for sending Jesus, who spoke in parables—not to confuse, but to separate true disciples from the crowd. Give us ears to hear and hearts that truly understand.
+Lord, you are the great ‘I am’, who have walked on the waves to save His people from the greatest of all our enemies, sin and judgment, and in whom there is no fear. 
+We are weak, but You are strong. We are fearful, but You are our peace. We waver, but You hold us fast. Teach us to reach out our hands to You, to trust not in our own strength but in Your saving power. And may our lives reflect the truth that Jesus is Lord, the King who reigns not in cruelty but in compassion, not in arrogance but in grace.
 
-Father, we confess how easily we can be distracted—by worries, wealth, or our own independence. Break our pride, that we may come to Jesus not as those who think we see, but as the blind who long for sight. Make us like the good soil, receiving Your Word with faith and bearing fruit that glorifies You.
-Lord Jesus, You alone open the way to the kingdom. Thank You that there is no test to pass, no achievement required—only the call to come. Help us to trust in You fully, to treasure Your kingdom above all else, and to shine Your light in the world.
+We confess that like Peter— we are often quick to step out in faith but just as quick to falter when we see the wind and the waves. Forgive us for when we doubt Your power, Your goodness, and Your love. Help us to lift our eyes and fix them on Your Son, our Saviour, our King, our ever-present help in trouble.
+We lift up to You those who are in the midst of suffering. Lord, You are the God who provides, who protects, and who saves. We ask for comfort beyond what human hands can give, for strength that only comes from Your Spirit, and for the deep assurance that in Jesus, death is not the end.
 
-You have taught us that a day of judgment is coming, when the wheat will be gathered, and the weeds will be burned. Help us not to be complacent but to take Your warning seriously. Keep us watchful and faithful, ready for Your return, and living each day as true disciples who treasure Your kingdom above all else.
-In Your mercy, draw many to repentance before that day comes. May many be found in You, shining like the righteous in our Father's kingdom.
-
-In the  name of the one who will come again to gather the harvest,
+In Jesus’ name, we pray,
 Amen.
 
 ### Mission and Vision ###
