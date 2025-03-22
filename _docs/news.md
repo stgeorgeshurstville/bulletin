@@ -20,8 +20,6 @@ We would love for you to take a few minutes to complete the Shine survey to help
 
 - **Post- AGM forums:** 12 April (Cantonese) at 430pm; 13 April 130pm in the church. For members to ask any questions and raise any matter they wish to raise.
   
-- **The 2025 Autumn Life Quarterly** God has been growing our church, and our 4PM English service is now so full that visitors are leaving because they can't find a seat. With Easter coming, this challenge will only get bigger.
-  
 - **Our 4PM English Service is Overflowing – We Need to Act!** God has been growing our church, and our 4PM English service is now so full that visitors are leaving because they can't find a seat. With Easter coming, this challenge will only get bigger. To make space for more people to hear the gospel, we’re making a change: **From 6 April 2025, our English and Mandarin congregations will swap meeting spaces.** We’ll also be working hard to ensure the Hall is well-prepared for our Mandarin brothers and sisters. This is an exciting opportunity to welcome more people and keep sharing Jesus with our community—let’s embrace it together!
 
 - **All Gen!**
