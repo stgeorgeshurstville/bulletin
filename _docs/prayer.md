@@ -33,7 +33,6 @@ Government: Write your own prayer
 
 ### Mission Partners ###
 - **Mathys and PNG:** General info: There are >800 languages spoken in Papua New Guinea, but only 13 have complete bibles. Calvin and Ruth work alongside Papua New Guineans in roles that support the ongoing ministry of bible translation. Calvin is an aircraft maintenance engineer, in order to provide transport and logistics support for bible translators. Ruth provides training for the bible translators, so that locals can take the lead in this work. 
-- **High school scripture & chaplaincy:**
 
 
 ### Church Ministries ###
@@ -42,8 +41,6 @@ Government: Write your own prayer
 - Please keep praying for our d-group leaders as they pastor those in their groups with the Word of God. 
 - Please pray for those who attend these groups, that they will allow themselves to be shaped by the Word of God. 
 - Please pray that we can start more d-groups and raise up new leaders who are eager to pastor.
-
-**Pastoral Care Teams:**
 
 ### Groups in Church ###
 **Nepalese Church:**
