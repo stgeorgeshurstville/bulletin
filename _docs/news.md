@@ -24,11 +24,11 @@ We would love for you to take a few minutes to complete the Shine survey to help
 - **All Gen!**
 During the school holidays, we have a wonderful opportunity to come together as one assembly (regardless of age or stage) and learn the truth of the Gospel. Specifically, we'll be tracing the story of Jesus's life during his final days, from his arrival in Jerusalem on Palm Sunday to his crucifixion on Good Friday, his resurrection on Easter Sunday and his ascension back into heaven. These all-age services will be fun, interactive, and greatly edifying for everyone. The dates are listed below:
 
--13th of April
+ -13th of April
   
--18th of April (Good Friday) 
+ -18th of April (Good Friday) 
 
--20th of April (Easter Sunday) 
+ -20th of April (Easter Sunday) 
 
 -27th of April 
 
