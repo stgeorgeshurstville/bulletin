@@ -9,7 +9,10 @@ order: 5
 | ----- | ----- | ----- |
 | **APRIL** | 
 | 6 APR | 4pm English service moving to the chapel | 4:00 PM |
-
+| 12 APR | Post- AGM forums (Cantonese) | 4:30 PM |
+| 13 APR | Post- AGM forums | 1:30 PM |
+| 18 APR | Good Friday Service | 11:00 AM |
+| 20 APR | Easter Service | 9:30 AM & 4:00PM |
 
 ## General
 - **Vision 2025:** Our vision for 2025 is the ‘shine for Jesus, everywhere, anytime.’ 
@@ -24,11 +27,11 @@ We would love for you to take a few minutes to complete the Shine survey to help
 - **All Gen!**
 During the school holidays, we have a wonderful opportunity to come together as one assembly (regardless of age or stage) and learn the truth of the Gospel. Specifically, we'll be tracing the story of Jesus's life during his final days, from his arrival in Jerusalem on Palm Sunday to his crucifixion on Good Friday, his resurrection on Easter Sunday and his ascension back into heaven. These all-age services will be fun, interactive, and greatly edifying for everyone. The dates are listed below:
 
- -13th of April
+-13th of April
   
- -18th of April (Good Friday) 
+-18th of April (Good Friday) 
 
- -20th of April (Easter Sunday) 
+-20th of April (Easter Sunday) 
 
 -27th of April 
 
