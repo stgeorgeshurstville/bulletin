@@ -20,9 +20,13 @@ We would love for you to take a few minutes to complete the Shine survey to help
 This is an exciting opportunity to welcome more people and keep sharing Jesus with our community—let’s embrace it together!  
 - **All Gen!**
 During the school holidays, we have a wonderful opportunity to come together as one assembly (regardless of age or stage) and learn the truth of the Gospel. Specifically, we'll be tracing the story of Jesus's life during his final days, from his arrival in Jerusalem on Palm Sunday to his crucifixion on Good Friday, his resurrection on Easter Sunday and his ascension back into heaven. These all-age services will be fun, interactive, and greatly edifying for everyone. The dates are listed below:
--13th of April 
+
+-13th of April
+  
 -18th of April (Good Friday) 
+
 -20th of April (Easter Sunday) 
+
 -27th of April 
 - **Easter 2025: From Darkness to Dawn!**
 Do you feel the weight of the world's darkness? Political storms, echoes of conflict, and an uncertain environment marked by floods, cyclones, and wildfires. Yet, at Easter, we are reminded that even the deepest night cannot extinguish the hope of a new dawn. Come to our Easter services and discover this new dawn, a promise of hope that comes through Jesus' death and resurrection.
