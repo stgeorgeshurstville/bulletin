@@ -47,7 +47,7 @@ Do you feel the weight of the world's darkness? Political storms, echoes of conf
 
 - [**What are you doing for God’s glory in 2025?**](https://forms.gle/dshYacLA1kB8xpkn7)
 
-- **Growing in Our Welcoming:**
+**Growing in Our Welcoming:**
   
   <img width="236" alt="Screenshot 2023-07-01 134203" src="https://github.com/stgeorgeshurstville/bulletin/assets/119166299/b540ac1c-0ba4-481e-90a5-5464939f7e4c">
 
