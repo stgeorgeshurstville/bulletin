@@ -28,9 +28,9 @@ Mission: Write your own prayer
 Government: Write your own prayer
 
 ### Mission Partners ###
-- **Moore College:** Firstly, we pray for the students, those who have set aside their lives, their careers, and their comforts to dedicate themselves to your service. We ask that you would bless their studies, that you would grant them wisdom, understanding, and a deep love for your Word. Sustain them through the challenges of their training, both academic and spiritual. Equip them for whatever ministry you have planned for them, and may they grow in grace and knowledge of our Lord and Savior, Jesus Christ. Give them resilience, patience, and a strong sense of your calling.
+**Moore College:** Firstly, we pray for the students, those who have set aside their lives, their careers, and their comforts to dedicate themselves to your service. We ask that you would bless their studies, that you would grant them wisdom, understanding, and a deep love for your Word. Sustain them through the challenges of their training, both academic and spiritual. Equip them for whatever ministry you have planned for them, and may they grow in grace and knowledge of our Lord and Savior, Jesus Christ. Give them resilience, patience, and a strong sense of your calling.
   
-- Secondly, we pray for the lecturers, those who are entrusted with the sacred task of training future ministers of your Gospel. Grant them wisdom and discernment as they impart your truth. May they handle your Word faithfully and truthfully, always pointing to the supremacy of Christ. Bless their efforts to equip others to serve you effectively. Give them a deep love for their students, and may their teaching bear fruit that lasts for eternity
+Secondly, we pray for the lecturers, those who are entrusted with the sacred task of training future ministers of your Gospel. Grant them wisdom and discernment as they impart your truth. May they handle your Word faithfully and truthfully, always pointing to the supremacy of Christ. Bless their efforts to equip others to serve you effectively. Give them a deep love for their students, and may their teaching bear fruit that lasts for eternity
 
 
 ### Church Ministries ###
