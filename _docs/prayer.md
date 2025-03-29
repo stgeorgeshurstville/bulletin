@@ -11,7 +11,6 @@ Merciful God, you have made all people and hate nothing that you have made, nor 
 
 ### From the passage ###
 **From Matthew 13:**
-
 Almighty and Gracious Father, 
 
 We come before you acknowledging that we often deceive ourselves. We trust in our own goodness, our own sacrifices, and forget that what you desire is an obedient heart. Lord, cleanse us from the inside out by the blood of Jesus. We confess that our hearts are so easily drawn to pride, self-righteousness, and appearances. Like the Canaanite woman, we come to you with empty hands, knowing that only your mercy and grace can save us. Give us eyes to recognise our need and the faith to cling to Jesus. May we not hide behind religious acts but shine your true glory in Jesus to the world.
