@@ -3,7 +3,6 @@ title: Prayer
 order: 4
 ---
 **Prayer**
-
 Merciful God, you have made all people and hate nothing that you have made, nor do you desire the death of a sinner but rather that he should be converted and live: have mercy on your ancient people the Jews, and all who do not know you, or who deny the faith of Christ crucified. Take from them all ignorance, hardness of heart, and contempt of your word; and bring them home to your fold, blessed Lord, so that they may become one flock under one shepherd, Jesus Christ our Lord; who lives and reigns with you and the Holy Spirit, one God, for ever and ever. Amen.
 
 
