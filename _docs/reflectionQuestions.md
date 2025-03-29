@@ -5,13 +5,14 @@ order: 7
 
 
 #### Big Idea
-The kingdom of heaven is demonstrated in what Jesus did - in feeding the 5000 and in walking on water. Jesus is our compassionate Lord who is able and willing to protect, provide and save. 
 
-#### Reflection Questions
-1. Is the kingdom of heaven priceless or worthless? How do you know? 
-2. Please read Matthew 14:1-12. What does this tell you about the kingdoms of Man? 
-3. Please read Matthew 14:13-36. What does this tell you about the kingdom of Heaven?
-4. How could Matthew 14 help you to face: the attack of the evil one; opposition and hardship because of the Word; the worries of this life and the deceptions of wealth?  
+
+#### Reflection Questions (Matthew 15:1-39)
+1. From Matthew 15:1-20, are traditions inherently good or bad? What type of traditions is Jesus opposed to? How is this a warning to us as a church community?
+2. What is the discord that Jesus is making between the Pharisees' traditions and their hearts?
+3. In comparison, why is the Gentile woman's faith (Matthew 15:21-28) considered greater than that of the Pharisees?
+4. To conclude this section, we have Jesus healing and feeding the crowds on top of a mountain (Matthew 15:29-39). What does this remind you of? You may wish to refer to Isaiah 2:1-5 and Matthew 5:14-16.
+
 
 
 
