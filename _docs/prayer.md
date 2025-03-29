@@ -4,26 +4,22 @@ order: 4
 ---
 **Prayer**
 
-Almighty and everlasting God, in tender love towards mankind you sent your Son, our Saviour Jesus Christ, to take our nature upon him and to suffer death on the cross, that all mankind should follow the example of his great humility: grant that we may follow the example of his suffering, and also be made partakers of his resurrection; through him who lives and reigns with you and the Holy Spirit, now and for ever. Amen.
+Merciful God, you have made all people and hate nothing that you have made, nor do you desire the death of a sinner but rather that he should be converted and live: have mercy on your ancient people the Jews, and all who do not know you, or who deny the faith of Christ crucified. Take from them all ignorance, hardness of heart, and contempt of your word; and bring them home to your fold, blessed Lord, so that they may become one flock under one shepherd, Jesus Christ our Lord; who lives and reigns with you and the Holy Spirit, one God, for ever and ever. Amen.
 
 
 
-## Week 4 (Fourth Sunday of the month)
+## Week 5 (Fifth Sunday of the month)
 
 ### From the passage ###
 **From Matthew 13:**
 
-Heavenly Father,
-Father, we see the stark contrast between the kingdom of this world and the kingdom of heaven. In the world, the powerful seek to control, to take, and to destroy. But in Your kingdom, the King comes to serve, to provide, and to save. The world feasts in self-indulgence, but You prepare a banquet of life. Teach us to trust in You, to lay aside all that is worthless, and to take hold of what is truly priceless—the kingdom of heaven, where You reign in justice, mercy, and love.
+Almighty and Gracious Father, 
 
-Lord, you are the great ‘I am’, who have walked on the waves to save His people from the greatest of all our enemies, sin and judgment, and in whom there is no fear. 
-We are weak, but You are strong. We are fearful, but You are our peace. We waver, but You hold us fast. Teach us to reach out our hands to You, to trust not in our own strength but in Your saving power. And may our lives reflect the truth that Jesus is Lord, the King who reigns not in cruelty but in compassion, not in arrogance but in grace.
+We come before you acknowledging that we often deceive ourselves. We trust in our own goodness, our own sacrifices, and forget that what you desire is an obedient heart. Lord, cleanse us from the inside out by the blood of Jesus. We confess that our hearts are so easily drawn to pride, self-righteousness, and appearances. Like the Canaanite woman, we come to you with empty hands, knowing that only your mercy and grace can save us. Give us eyes to recognise our need and the faith to cling to Jesus. May we not hide behind religious acts but shine your true glory in Jesus to the world.
 
-We confess that like Peter— we are often quick to step out in faith but just as quick to falter when we see the wind and the waves. Forgive us for when we doubt Your power, Your goodness, and Your love. Help us to lift our eyes and fix them on Your Son, our Saviour, our King, our ever-present help in trouble.
-We lift up to You those who are in the midst of suffering. Lord, You are the God who provides, who protects, and who saves. We ask for comfort beyond what human hands can give, for strength that only comes from Your Spirit, and for the deep assurance that in Jesus, death is not the end.
+Thank you that in Jesus, even the most unclean can be washed and welcomed. 
 
-In Jesus’ name, we pray,
-Amen.
+In his name, we pray. Amen.
 
 ### Mission and Vision ###
 For Growing Deep: Write your own prayer
@@ -32,36 +28,27 @@ For Growing Deep: Write your own prayer
 Government: Write your own prayer
 
 ### Mission Partners ###
-- **Mathys and PNG:** General info: There are >800 languages spoken in Papua New Guinea, but only 13 have complete bibles. Calvin and Ruth work alongside Papua New Guineans in roles that support the ongoing ministry of bible translation. Calvin is an aircraft maintenance engineer, in order to provide transport and logistics support for bible translators. Ruth provides training for the bible translators, so that locals can take the lead in this work. 
+- **Moore College:** Firstly, we pray for the students, those who have set aside their lives, their careers, and their comforts to dedicate themselves to your service. We ask that you would bless their studies, that you would grant them wisdom, understanding, and a deep love for your Word. Sustain them through the challenges of their training, both academic and spiritual. Equip them for whatever ministry you have planned for them, and may they grow in grace and knowledge of our Lord and Savior, Jesus Christ. Give them resilience, patience, and a strong sense of your calling.
+
+Secondly, we pray for the lecturers, those who are entrusted with the sacred task of training future ministers of your Gospel. Grant them wisdom and discernment as they impart your truth. May they handle your Word faithfully and truthfully, always pointing to the supremacy of Christ. Bless their efforts to equip others to serve you effectively. Give them a deep love for their students, and may their teaching bear fruit that lasts for eternity
 
 
 ### Church Ministries ###
-**Discipleship Groups:**
-- Discipleship groups are one of the key structures that help our people continue following Jesus. 
-- Please keep praying for our d-group leaders as they pastor those in their groups with the Word of God. 
-- Please pray for those who attend these groups, that they will allow themselves to be shaped by the Word of God. 
-- Please pray that we can start more d-groups and raise up new leaders who are eager to pastor.
+**Support ministries: communication, vestry, cleaning, flower, bulletin, meals, AV, etc:**
+Write your own prayer.
 
 ### Groups in Church ###
-**Nepalese Church:**
-- Hurstville Nepali Sangati (‘sangati’ means fellowship). This is the Bible study group established by pastor Bijiya. There’s between 5 to 10 people in the group of Christians and non-Christians.
-- For pastor Bijiya as he starts a 1 day a week role at Exclesia College seeking to reach Nepali students.
-- International Nepali church conference in Hong Kong to be held in May.  
+**Volunteers:**
+Dear God, we come before You with a grateful heart. We praise the Lord for the volunteers who serve in various service positions at St Georges. . Thank you for each of them giving of their God-given gifts talents, and time to serve your kingdom and your people. We thank them for their faithful service and the love they demonstrate through their good deeds. Lord, may you bless every volunteer. Empower their service. May they be filled with Your joy and peace, and serve the Lord all their lives.
+
 
 **Singles, widows and orphans:** 
 - Write your own prayer.
 
 
 ### Special items & events ###
-Heavenly Father,
-
-You are our strong tower, and to You all things in heaven and earth will bow. Be the refuge and defence of Jeremy’s family—his widow, Amelia; his mother, Rowena; his grandmother, Betty; his father, Edwin; his brother, Ashley; and all who loved him. May they find comfort, consolation, and hope in our Lord Jesus, whom You have raised from the dead, knowing that those who are in Him will also be raised.  
-
-We give thanks for Jeremy’s life, and in faith and trust, we commend him into Your keeping, praying that in Your good purposes, we may one day rejoice with him in Your eternal kingdom. Kindle our hope, and let our grief give way to the joy of Your promises.  
-
-We pray this in the name of Jesus, who was dead but is now alive.  
-
-Amen.  
+**From Darkness to Dawn - Easter weekend:**
+Heavenly Father, we lift up our Easter services to you. We pray that your Holy Spirit would draw many newcomers to hear the life-giving message of the Gospel. Open their hearts to understand the death and resurrection of Jesus, moving them from spiritual darkness into the dawn of your saving grace. 
 
 
 
