@@ -14,9 +14,9 @@ title: Welcome
 
 
 
-#### [In the name of Christ, the psalmist prays:] Lift up your heads, O gates! and be lifted up, O ancient doors! that the king of glory may come in. Who is the King of glory? The Lord of hosts, he is the king of glory!  Jesus says: Now is the judgment of this world, now shall the ruler of this world be cast out; and I, when I am lifted up from the earth will draw all men to myself. John 12.31
+#### Jesus says: Now is the judgment of this world, now shall the ruler of this world be cast out; and I, when I am lifted up from the earth will draw all men to myself.
 
-##### Psalm 24:9-10
+##### John 12:31
 
 
 
