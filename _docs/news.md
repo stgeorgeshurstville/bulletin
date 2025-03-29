@@ -15,11 +15,18 @@ order: 5
 | 20 APR | Easter Service | 9:30 AM & 4:00PM |
 
 ## General
-**Vision 2025:** Our vision for 2025 is the ‘shine for Jesus, everywhere, anytime.’ 
-We would love for you to take a few minutes to complete the Shine survey to help give us a picture of where we are as a church.  https://docs.google.com/forms/d/e/1FAIpQLSezXaAZ_-lCp9NhPs6MlBz5c127LD8oH5YMn1BdLzrOT2Q8Ug/viewform?usp=dialog
+**Mandarin Pastor:** We are pleased to announce that Pastor Jairus Ji has accepted our invitation to be the pastor of the Mandarin congregation at St George’s. Jairus holds a Graduate Diploma in Divinity from SMBC and is currently pursuing his Master of Divinity. He has served in various ministry contexts, including student ministry at the University of Sydney, and has most recently been ministering at an Anglican church in Sydney’s southwest.
 
-**Post- AGM forums:** 12 April (Cantonese) at 4:30pm; 13 April 1:30pm in the church. For members to ask any questions and raise any matter they wish to raise.
-  
+Jairus was born into a Christian family from childhood, and his parents are both pastors in China. In addition to his theological training, Jairus is a qualified accountant. He is married to Priscilla, and they are expecting their first child in May. Jairus will commence his ministry with us on 1 May 2025. We praise God for His kind provision and invite you to join us in praying for Jairus, Priscilla, their little one, and our brothers and sisters at Jairus’ current church as they prepare for this transition.
+
+**Vision 2025:** Our vision for 2025 is the ‘shine for Jesus, everywhere, anytime.’ We would love for you to take a few minutes to complete the Shine survey to help give us a picture of where we are as a church. https://docs.google.com/forms/d/e/1FAIpQLSezXaAZ_-lCp9NhPs6MlBz5c127LD8oH5YMn1BdLzrOT2Q8Ug/viewform?usp=dialog
+
+**Post- AGM forums:** 12 April (Cantonese) at 4:30pm; 13 April 1:30pm in the church. For members to ask any questions and raise any matter they wish to raise. There are a number of matters that were raised prior to the AGM and at the AGM, including but not limited to: 
+- Moving out of 124 Forest Rd at the end of June 2025. Renting new premises and which congregation and ministry will move to the new premises
+- Our strategy of consolidating children ministry and church/congregation planting
+- Governance v management
+- Representation and feedback from congregations 
+
 **Our 4PM English Service is Overflowing – We Need to Act:** God has been growing our church, and our 4PM English service is now so full that visitors are leaving because they can't find a seat. With Easter coming, this challenge will only get bigger. To make space for more people to hear the gospel, we’re making a change: **From 6 April 2025, our English and Mandarin congregations will swap meeting spaces.** We’ll also be working hard to ensure the Hall is well-prepared for our Mandarin brothers and sisters. This is an exciting opportunity to welcome more people and keep sharing Jesus with our community—let’s embrace it together!
 
 **All Gen:**
