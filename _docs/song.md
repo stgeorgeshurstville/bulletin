@@ -10,7 +10,7 @@ order: 1
 4. See The Man
 
    
-## 4pm
+## 4:00 pm
 1. How great thou art
 2. Yet not I but through Christ in me
 3. Come Thou Fount
