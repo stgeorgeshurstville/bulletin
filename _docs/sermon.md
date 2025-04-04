@@ -20,35 +20,53 @@ order: 2
 ### Prayer
 Dear God, thank you for letting us know you. Please help us learn from your word. Help us to serve and praise you. Amen!
 
-### Matthew 14:34-15:39 (NIV)
+### Matthew 16 (NIV)
 
-³⁴ When they had crossed over, they landed at Gennesaret. ³⁵ And when the men of that place recognized Jesus, they sent word to all the surrounding country. People brought all their sick to him ³⁶ and begged him to let the sick just touch the edge of his cloak, and all who touched it were healed.
+**The Demand for a Sign**
 
-¹⁵ Then some Pharisees and teachers of the law came to Jesus from Jerusalem and asked, ² “Why do your disciples break the tradition of the elders? They don’t wash their hands before they eat!”
+¹ The Pharisees and Sadducees came to Jesus and tested him by asking him to show them a sign from heaven. 
 
-³ Jesus replied, “And why do you break the command of God for the sake of your tradition? ⁴ For God said, ‘Honor your father and mother’ and ‘Anyone who curses their father or mother is to be put to death.’ ⁵ But you say that if anyone declares that what might have been used to help their father or mother is ‘devoted to God,’ ⁶ they are not to ‘honor their father or mother’ with it. Thus you nullify the word of God for the sake of your tradition. ⁷ You hypocrites! Isaiah was right when he prophesied about you:
+² He replied, “When evening comes, you say, ‘It will be fair weather, for the sky is red,’ ³ and in the morning, ‘Today it will be stormy, for the sky is red and overcast.’ You know how to interpret the appearance of the sky, but you cannot interpret the signs of the times. ⁴ A wicked and adulterous generation looks for a sign, but none will be given it except the sign of Jonah.” Jesus then left them and went away. 
 
-⁸ “‘These people honor me with their lips,
-but their hearts are far from me.
-⁹ They worship me in vain;
-their teachings are merely human rules.’ ”
+**The Yeast of the Pharisees and Sadducees**
 
-¹⁰ Jesus called the crowd to him and said, “Listen and understand. ¹¹ What goes into someone’s mouth does not defile them, but what comes out of their mouth, that is what defiles them.”
+⁵ When they went across the lake, the disciples forgot to take bread. ⁶ “Be careful,” Jesus said to them. “Be on your guard against the yeast of the Pharisees and Sadducees.” 
 
-¹² Then the disciples came to him and asked, “Do you know that the Pharisees were offended when they heard this?”
+⁷ They discussed this among themselves and said, “It is because we didn’t bring any bread.” 
 
-¹³ He replied, “Every plant that my heavenly Father has not planted will be pulled up by the roots. ¹⁴ Leave them; they are blind guides. If the blind lead the blind, both will fall into a pit.”
+⁸ Aware of their discussion, Jesus asked, “You of little faith, why are you talking among yourselves about having no bread? ⁹ Do you still not understand? Don’t you remember the five loaves for the five thousand, and how many basketfuls you gathered? ¹⁰ Or the seven loaves for the four thousand, and how many basketfuls you gathered? ¹¹ How is it you don’t understand that I was not talking to you about bread? But be on your guard against the yeast of the Pharisees and Sadducees.” ¹² Then they understood that he was not telling them to guard against the yeast used in bread, but against the teaching of the Pharisees and Sadducees. 
 
-¹⁵ Peter said, “Explain the parable to us.”
+**Peter Declares That Jesus Is the Messiah**
 
-¹⁶ “Are you still so dull?” Jesus asked them. ¹⁷ “Don’t you see that whatever enters the mouth goes into the stomach and then out of the body? ¹⁸ But the things that come out of a person’s mouth come from the heart, and these defile them. ¹⁹ For out of the heart come evil thoughts—murder, adultery, sexual immorality, theft, false testimony, slander. ²⁰ These are what defile a person; but eating with unwashed hands does not defile them.”
+¹³ When Jesus came to the region of Caesarea Philippi, he asked his disciples, “Who do people say the Son of Man is?” 
+
+¹⁴ They replied, “Some say John the Baptist; others say Elijah; and still others, Jeremiah or one of the prophets.” 
+
+¹⁵ “But what about you?” he asked. “Who do you say I am?” 
+
+¹⁶ Simon Peter answered, “You are the Messiah, the Son of the living God.” 
+
+¹⁷ Jesus replied, “Blessed are you, Simon son of Jonah, for this was not revealed to you by flesh and blood, but by my Father in heaven. ¹⁸ And I tell you that you are Peter, and on this rock I will build my church, and the gates of Hades will not overcome it. ¹⁹ I will give you the keys of the kingdom of heaven; whatever you bind on earth will be bound in heaven, and whatever you loose on earth will be loosed in heaven.” ²⁰ Then he ordered his disciples not to tell anyone that he was the Messiah. 
+
+**Jesus Predicts His Death**
+
+²¹ From that time on Jesus began to explain to his disciples that he must go to Jerusalem and suffer many things at the hands of the elders, the chief priests and the teachers of the law, and that he must be killed and on the third day be raised to life. 
+
+²² Peter took him aside and began to rebuke him. “Never, Lord!” he said. “This shall never happen to you!” 
+
+²³ Jesus turned and said to Peter, “Get behind me, Satan! You are a stumbling block to me; you do not have in mind the concerns of God, but merely human concerns.” 
+
+²⁴ Then Jesus said to his disciples, “Whoever wants to be my disciple must deny themselves and take up their cross and follow me. ²⁵ For whoever wants to save their life will lose it, but whoever loses their life for me will find it. ²⁶ What good will it be for someone to gain the whole world, yet forfeit their soul? Or what can anyone give in exchange for their soul? ²⁷ For the Son of Man is going to come in his Father’s glory with his angels, and then he will reward each person according to what they have done. 
+
+²⁸ “Truly I tell you, some who are standing here will not taste death before they see the Son of Man coming in his kingdom.” 
 
 ## Sermon Outline
-1. The Kingdom of Either/Or 
-2. Clean v Unclean 
-3. Unclean hearts 
-4. Cleaning the ‘uncleanable’ 
-5. Conclusions 
+1. Identity authentication
+2. Authenticating Jesus
+3. Who is Jesus?
+4. Who are you?
+5. Committed or Crucified? 
+
  
 
 
