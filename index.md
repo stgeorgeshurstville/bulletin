@@ -14,9 +14,9 @@ title: Welcome
 
 
 
-#### Jesus says: Now is the judgment of this world, now shall the ruler of this world be cast out; and I, when I am lifted up from the earth will draw all men to myself.
+#### [In the name of Christ, the psalmist prays: Vindicate me, O God, and defend my cause against an ungodly people; from deceitful and unjust men deliver me, for you are the God in whom I take refuge.
 
-##### John 12:31
+##### Psalm 43:1,2a
 
 
 
