@@ -27,10 +27,10 @@ We ask all this in the precious name of Jesus, our Lord and Saviour.
 Amen. 
 
 ### Mission and Vision ###
-Mission: Write your own prayer
+**Mission:** Write your own prayer
   
 ### Global & Nation ###
-Government: Write your own prayer
+**Government:** Write your own prayer
 
 ### Mission Partners ###
 **Persecuted Christians:** Write your own prayer
