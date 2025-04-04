@@ -3,17 +3,17 @@ title: Songs
 order: 1
 ---
 
-## 9:30am
-1. You Alone
-2. Jesus Christ, The King & Saviour
-3. By Faith
-4. See The Man
+## 9:
+1. Rock of Ages
+2. Because He Lives
+3. The Church’s One Foundation
+4. Thanksgiving
 
    
 ## 4:00pm
-1. How great thou art
-2. Yet not I but through Christ in me
-3. Come Thou Fount
-4. All creatures of our God and King
+1. All I Have Is Christ
+2. More Than Conquerers
+3. Your Will Be Done
+4. It Was Finished Upon That Cross
 
 Check out the church spotify playlist [here](https://open.spotify.com/playlist/3gh0ZKXkJBDbNEnZqJJDXj?si=0908aa3f87544643)
