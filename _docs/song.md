@@ -3,7 +3,7 @@ title: Songs
 order: 1
 ---
 
-## 9:
+## 9:30am
 1. Rock of Ages
 2. Because He Lives
 3. The Church’s One Foundation
