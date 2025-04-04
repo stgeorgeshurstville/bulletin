@@ -2,7 +2,7 @@
 title: Prayer
 order: 4
 ---
-**Prayer**
+
 We beseech you, almighty God, to look in mercy on your people: that by your great goodness they may be governed and preserved evermore; through Jesus Christ our Lord. Amen.
 
 
