@@ -14,9 +14,9 @@ title: Welcome
 
 
 
-#### [In the name of Christ, the psalmist prays: Vindicate me, O God, and defend my cause against an ungodly people; from deceitful and unjust men deliver me, for you are the God in whom I take refuge.
+#### The stone which the builders has rejected has become the head of the corner. This is the Lord's doing; it is marvellous in our eyes. 
 
-##### Psalm 43:1,2a
+##### Psalm 118: 24-25
 
 
 
