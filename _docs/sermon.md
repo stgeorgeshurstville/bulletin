@@ -40,9 +40,9 @@ Dear God, thank you for letting us know you. Please help us learn from your word
 
 
 ## Sermon Outline
-Spot 1 - Jesus’ entrance wasn't grand. 
-Spot 2 - Jesus’ reception was mixed. 
-Spot 3 - But none of that matters as he is the king over everything! 
+Spot 1. Jesus’ entrance wasn't grand 
+Spot 2. Jesus’ reception was mixed 
+Spot 3. But none of that matters as he is the king over everything! 
 
  
 
