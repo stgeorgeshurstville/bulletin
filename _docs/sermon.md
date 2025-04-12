@@ -32,8 +32,10 @@ Dear God, thank you for letting us know you. Please help us learn from your word
 
 ³⁷ Jesus came near the place where the road goes down the Mount of Olives. There the whole crowd of disciples began to praise God with joy. In loud voices they praised him for all the miracles they had seen. They shouted, 
 
-³⁸ “Blessed is the king who comes in the name of the Lord!” (Psalm 118: 26) 
+³⁸ “Blessed is the king who comes in the name of the Lord!” (Psalm 118: 26)  
+
 “May there be peace and glory in the highest heaven!” 
+
 ³⁹ Some of the Pharisees in the crowd spoke to Jesus. “Teacher,” they said, “tell your disciples to stop!” 
 
 ⁴⁰ “I tell you,” he replied, “if they keep quiet, the stones will cry out.” 
