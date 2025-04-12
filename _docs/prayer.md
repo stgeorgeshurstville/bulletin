@@ -3,75 +3,34 @@ title: Prayer
 order: 4
 ---
 
-We beseech you, almighty God, to look in mercy on your people: that by your great goodness they may be governed and preserved evermore; through Jesus Christ our Lord. Amen.
+Almighty Father, you have given your only Son Jesus Christ to die for our sins and to rise again for our justification: grant that we may put away the old leaven of corruption and wickedness, and always serve you in sincerity and truth; through the merits of Jesus Christ our Lord. Amen.
 
 
 
-## Week 1 (first Sunday of the month)
-
-### From the passage ###
-**From Matthew 16:**
-Heavenly Father,
-You alone are God, and salvation is found in Christ alone. We thank You for revealing Jesus to us—not just as a wise teacher or miracle worker, but as the Messiah, the Son of the living God, the King of Your eternal kingdom. 
-
-Yet, Lord, in trying to gain the world, we have forsaken our Lord. Forgive us. We have sought comfort over costly discipleship, approval over obedience, and control over surrender. Protect us from the poison of a sign-seeking, self-justifying, self-glorifying faith. Expose the ways we twist Your truth to serve our own desires rather than bowing before Christ as Lord. 
-
-Help us to see ever more clearly the sufficiency of Jesus, that we may trust Him completely and take up our cross daily. Strip away our pride, our fears, and our love for this world, and fix our eyes on the One who endured the cross for our sake. 
-
-Thank You that in Jesus, You have revealed Your glory—not in earthly power but in self-giving, sacrificial love. Through His rejection, suffering, and death, You have brought us life. And through His resurrection, You have triumphed over sin and death. 
-
-Lord, only Jesus—Jesus alone—can change our stone-like hearts. Shape us into true disciples, followers who do not merely admire Christ from a distance but who are willing to lose our lives for His sake. Help us to forsake the fleeting treasures of this world and embrace the eternal riches of Your kingdom. Strengthen us to live not for ourselves but for Jesus and His church, a people redeemed for Your glory. 
-
-We ask all this in the precious name of Jesus, our Lord and Saviour. 
-
-Amen. 
+## Week 2 (Second Sunday of the month)
 
 ### Mission and Vision ###
-**Mission:** Write your own prayer
+**For Growing Up:** Write your own prayer
   
 ### Global & Nation ###
-**Government:** Write your own prayer
+**Nation:** Write your own prayer
 
 ### Mission Partners ###
-**Persecuted Christians:** Write your own prayer
+**Berkeley Life Centre:** General info: Berkeley Life Centre desires to see Jesus Christ transforming lives to transform a community. They minister in the south coast in an area where many people are from a low socioeconomic background. People are coming to faith and the church is making a positive impact.
 
-**Compassion:** General info:
-Compassion is a Christian international holistic child development organisation. In response to God’s call, Compassion gives hope to the hopeless, spreading the gospel of Jesus Christ in a culturally relevant, non-coercive way. Through our Child Sponsorship Program, more than 2 million children are currently being released from poverty in Jesus’ name. 
-
-**Phil & Lil in West Asia**
+**Hoi-Yan Shea in Japan**
 
 ### Church Ministries ###
-**Redevelopment:** Thank God for the offer from Hurstville Public School to use their hall. Thank Him also His provision of 124 Forest Rd for the past year.  Please pray for the decisions ahead about how to use the space and facilities that will bring the salvation knowledge of Jesus to more people, growth and blessings to His people, careful stewardship of the resources He’s entrusted to us. 
+**CanCare:** Heavenly Father, we praise You for Your mercy and kindness. You understand the trials and suffering we face and are compassionate toward our weaknesses. We thank You for using CanCare to support those who are battling or have overcome cancer, along with their families and friends. Through Christ’s love, they serve and walk alongside them on this challenging journey. Lord, we ask that You continue to lead the CanCare team. Grant them wisdom, discernment, and a spirit of unity as they care for this community. This year, CanCare is committed to promoting education on life and death, with the hope of fostering a more positive understanding of this topic among the Chinese community. May it lead to deeper reflection on the reality and meaning of death, and in turn, a more holistic approach to cherishing and valuing life. We pray that You would guide and bless all aspects of this work. 
 
-**English Congregation:** 4pm congregation moving back to the chapel. Praising God for the growth of the congregation, for the kindness of the 4pm Mandarin congregation. For adjustment to the change. For the continued growth of the Gospel in both congregations and the children ministry as a result of this decision. 
+**Evangelism teams:** Gracious Lord, we thank You for the opportunities You have given us to proclaim Your name to those who are lost and far from You. Please continue to open our eyes to see the people You place before us, and grant us boldness and wisdom to share the mystery of the Gospel without fear. Lord, prepare the hearts of those we encounter. Remove the barriers that hinder the Gospel, and instead, create rich, healthy soil in their hearts, ready to receive the good news of Jesus Christ. Strengthen and unite our team as we labour together for Your kingdom. May the words we speak and the lives we live reflect Your love and truth, drawing people closer to You.
 
-**EAL/D:** Thank God for the opportunity to share Jesus' love with those who are wanting to learn English.
-Thank God for our dedicated teachers (Catherine, Chi-Wa, and Amy) and for their countless hours preparing lessons each week. Thank God for the 40-odd students who attend our classes each week. We are amazed by their willingness to learn. Please pray that the lessons will draw them closer to your love. Please pray for our board game week happening this Wednesday. Please pray that this week will be a time of fun, fellowship, and meaningful connection.
+**Nursing home:** Dear Heavenly Father, You are the God of grace and hope. You understand every challenge and burden that each elderly person carries in their heart. We ask for Your mighty hand to touch their lives and bring comfort to their souls. Help them to turn their hearts fully to You, trust in You completely, and find true peace and blessings in Your presence. For those living in nursing homes or requiring special care at home, may they deeply experience the love of Christ surrounding them. Lord, use every member of the care and visitation team as a channel of Your love. May those they visit feel the joy and encouragement of genuine fellowship and the fullness of love shared among them.
 
 ### Groups in Church ###
-**Staff:** Thanking God for Jairus (new Mandarin pastor) and Priscilla. Please pray that they’ll finish well at their current church. For their move to Hurstville - provision of a house. For Priscilla’s pregnancy. For us (the Mandarin congregations, Jairus and the staff) to work well together. 
+**Cantonese Congregation:** Lord, we pray for our brothers and sisters of the Cantonese congregation, asking for continued stability and spiritual growth in every aspect of our community. May Your Word take deep root in our hearts, and may our lives be shaped by Your truth and love. Help us to live out this year’s vision: Shine for Christ — Everywhere, Anytime, and to reflect His love and truth in our daily lives. We also pray for unity among us as one body in Christ, serving together with one heart and spirit. We pray for the Gospel class that started on April 6, may seekers continue to encounter Jesus through Your Word and come to know Your salvation and love. As we enter the Easter season, we thank You for the resurrection of our Lord Jesus. May this season renew our hope and deepen our faith. We pray that our Easter events will proclaim the gospel clearly and lead many to know the Risen Christ.
 
-**People with disabilities:** Write your own prayer.
-
-
-### Special items & events ###
-**From Darkness to Dawn - Easter weekend:**
-Heavenly Father, we lift up our Easter services to you. We pray that your Holy Spirit would draw many newcomers to hear the life-giving message of the Gospel. Open their hearts to understand the death and resurrection of Jesus, moving them from spiritual darkness into the dawn of your saving grace. 
-
-**For Myanmar:** “I love you, O LORD, my strength. The LORD is my rock and my fortress and my deliverer, my God, my rock, in whom I take refuge.” (Psalm 18:1-2) 
-
-You are the God of all comfort, sovereign over all creation. We come to you today with heavy hearts for all those affected by the earthquake in Myanmar and Thailand. 
-
-We ask for your protection for all impacted by the earthquake, especially those needing to be rescued, medical assistance, and emergency aid. We pray for those displaced, injured, and mourning. We pray for comfort and strength for those who have lost homes, possessions, and livelihood. Please help them as they look to you in their times of trouble. Hear their cry for help in their time of affliction. Help them to find hope in Jesus, in the depths of their despair. 
-
-We pray for those involved in the rescue operation and emergency efforts. We pray for the ministry of the Anglican church in Myanmar, as they bring hope and help to those made vulnerable by this disaster. Give them the physical and emotional fortitude to continue their selfless efforts. May the name of Jesus be praised through their efforts. 
-
-Please be with Archbishop Stephen Than, Bishop David Nyi Nyi of Mandalay Diocese, Bishop John Zau Li of Myitkyina Diocese, and Bishop Alan Kyan Myo Naing of Homalin Diocese, along with their clergy and laity, as they demonstrate the love of Jesus to those affected. 
-
-In Jesus' name, we pray. 
-
-https://ardfa.org.au/myanmar-earthquake
-
+**Volunteers:** Gracious God, we humbly come before You in prayer today to offer our immense gratitude for your provision with our faithful volunteers at church.May Your Spirit bless them with continual guidance as they faithfully serve you and your people. We ask You to bestow upon them resilience, daring, and humility. Let joy, peace, and satisfaction be upon the good work that they do.Inspire and motivate them to persist through trying circumstances, steadfast in their dedication to serving  those around them. We are deeply grateful for these volunteers, whose shining radiance reflects the profound beauty and compassion of Your love.In Jesus’ name, we pray, Amen.
 
 
 - **Prayer points can be found [here](https://stgeorgeshurstville.org.au/prayer)**
