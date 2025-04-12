@@ -4,17 +4,15 @@ order: 7
 ---
 
 
-#### Big Idea
+### Big Idea
 
 
-#### Reflection Questions (Matthew 16)
+#### Reflection Questions
 
-Read Matthew 16:24-28 
+1. Why did it not bother Jesus that his entrance wasn’t grand or that the Pharisees didn’t worship him like the disciples?
+2. Looking ahead, how do we know that Jesus will be the king over everything? (Luke 19:40)
+3. Are you welcoming Jesus as the king over everything? 
 
-1. "This shall never happen to you." (Matthew 16:23). Why were Jesus' future sufferings so repulsive for Peter?
-2. Why was Peter's statement so repulsive for Jesus?
-3. Why must those who follow Jesus also suffer as He did?
-4. What makes following Jesus' example worthwhile?
 
 
 
