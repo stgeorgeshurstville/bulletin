@@ -22,7 +22,9 @@ Dear God, thank you for letting us know you. Please help us learn from your word
 
 ### Luke 19: 30-40 (NIRV)
 
-³⁰ “Go to the village ahead of you. As soon as you get there, you will find a donkey’s colt tied up. No one has ever ridden it. Untie it and bring it here. ³¹ Someone may ask you, ‘Why are you untying it?’ If so, say, ‘The Lord needs it.’ ” 
+**Jesus Comes to Jerusalem as King**
+
+²⁸ After Jesus had said this, he went on ahead. He was going up to Jerusalem. ²⁹ He approached Bethphage and Bethany. The hill there was called the Mount of Olives. Jesus sent out two of his disciples. He said to them, ³⁰ “Go to the village ahead of you. As soon as you get there, you will find a donkey’s colt tied up. No one has ever ridden it. Untie it and bring it here. ³¹ Someone may ask you, ‘Why are you untying it?’ If so, say, ‘The Lord needs it.’ ” 
 
 ³² Those who were sent ahead went and found the young donkey. It was there just as Jesus had told them. ³³ They were untying the colt when its owners came. The owners asked them, “Why are you untying the colt?” 
 
