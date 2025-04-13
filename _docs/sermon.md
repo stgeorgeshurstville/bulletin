@@ -20,7 +20,7 @@ order: 2
 ### Prayer
 Dear God, thank you for letting us know you. Please help us learn from your word. Help us to serve and praise you. **Amen**
 
-### Luke 19: 30-40 (NIRV)
+### Luke 19: 28-40 (NIRV)
 
 **Jesus Comes to Jerusalem as King**
 
