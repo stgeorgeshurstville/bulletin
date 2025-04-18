@@ -7,6 +7,8 @@ Almighty God, you have given your only Son to be for us both a sacrifice for sin
 
 ## Week 2 (Second Sunday of the month)
 
+| Command | Description |
+| --- | --- |
 | From the Passage | Dear Father, Thank You for raising Jesus from the dead. Thank You that disappointment, death, and despair are not the end of the story. Like the disciples, we are slow to understand, quick to fear, and often sad. But thank You that Jesus came back to us—not as a ghost or symbol—but as our living Saviour. Please open our minds and hearts to truly see Him. Give us hope in loss, joy in suffering, and courage to share His love. Make us not just committed Christians, but crucified ones—ready to live for You. The world needs the joy that Jesus brings. Please give us opportunities to share this joy with everyone around us this Easter. In Jesus’ name, Amen. |
 | Special Items & Events | Easter Sunday, KYKC, Easter markets | 
 | Myanmar | Dear Lord, You are the God of all comfort, sovereign over all creation. We come to you today with heavy hearts for all those affected by the earthquake in Myanmar and Thailand.
