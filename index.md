@@ -9,14 +9,14 @@ title: Welcome
 [comment]: ##### "where the sentence came from, e.g. Psalm 1:1"  
 [comment]: ----------------------------------------------------  
 
-## The Upside Down Kingdom
+## The Rising of the King
 
 
 
 
-#### The stone which the builders has rejected has become the head of the corner. This is the Lord's doing; it is marvellous in our eyes. 
+#### Make a joyful noise to God, all the earth; sing to the glory of his name; give to him glorious praise.
 
-##### Psalm 118: 24-25
+##### Psalm 66: 1-3
 
 
 
