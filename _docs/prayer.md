@@ -7,16 +7,11 @@ Almighty God, you have given your only Son to be for us both a sacrifice for sin
 
 ## Week 2 (Second Sunday of the month)
 
-### Mission and Vision ###
-**For Growing Up:** Write your own prayer
-  
-### Global & Nation ###
-**Nation:** Write your own prayer
-
-### Mission Partners ###
-**Berkeley Life Centre:** General info: Berkeley Life Centre desires to see Jesus Christ transforming lives to transform a community. They minister in the south coast in an area where many people are from a low socioeconomic background. People are coming to faith and the church is making a positive impact.
-
-**Hoi-Yan Shea in Japan**
+|  | BSB No. | Account No. |
+| ----------- | ----------- | ----------- |
+| General Offertory | 032-055 | 135822 |
+| Missions | 032-055 |494673 |
+| Projects | 032-055 | 253052|
 
 ### Church Ministries ###
 **CanCare:** Heavenly Father, we praise You for Your mercy and kindness. You understand the trials and suffering we face and are compassionate toward our weaknesses. We thank You for using CanCare to support those who are battling or have overcome cancer, along with their families and friends. Through Christ’s love, they serve and walk alongside them on this challenging journey. Lord, we ask that You continue to lead the CanCare team. Grant them wisdom, discernment, and a spirit of unity as they care for this community. This year, CanCare is committed to promoting education on life and death, with the hope of fostering a more positive understanding of this topic among the Chinese community. May it lead to deeper reflection on the reality and meaning of death, and in turn, a more holistic approach to cherishing and valuing life. We pray that You would guide and bless all aspects of this work. 
