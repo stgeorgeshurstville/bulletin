@@ -32,7 +32,10 @@ Your donation may go towards such things as:
 
 **The lock to the Hall has been changed. For access please contact the office:** 
 
-**Easter Markets:** Pls pray. Pls come along. YOu can still be part of it. Pleaser talk to one of the pastors. 
+**Easter Markets:** Pls pray. Pls come along. YOu can still be part of it. Pleaser talk to one of the pastors. 4:00 PM at 2 The Avenue
+
+**Vision 2025:** Our vision for 2025 is the ‘Shine for Jesus, everywhere, anytime.’ 
+We would love for you to take a few minutes to complete the Shine survey to help give us a picture of where we are as a church [here](https://docs.google.com/forms/d/e/1FAIpQLSezXaAZ_-lCp9NhPs6MlBz5c127LD8oH5YMn1BdLzrOT2Q8Ug/viewform?usp=dialog)
 
 **Post-AGM forum:** Thank you for those who took the time to come and give us your thoughts. We will be following these up with more meetings. A decision needs to be made around the end of May. 
 
