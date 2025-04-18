@@ -7,12 +7,11 @@ Almighty God, you have given your only Son to be for us both a sacrifice for sin
 
 ## Week 2 (Second Sunday of the month)
 
-| From the Passage | Dear Father, Thank You for raising Jesus from the dead. Thank You that disappointment, death, and despair are not the end of the story. Like the disciples, we are slow to understand, quick to fear, and often sad. But thank You that Jesus came back to us—not as a ghost or symbol—but as our living Saviour. Please open our minds and hearts to truly see Him. Give us hope in loss, joy in suffering, and courage to share His love. Make us not just committed Christians, but crucified ones—ready to live for You. The world needs the joy that Jesus brings. Please give us opportunities to share this joy with everyone around us this Easter. In Jesus’ name, Amen.
- | Account No. |
-| ----------- | ----------- | ----------- |
-| General Offertory | 032-055 | 135822 |
-| Missions | 032-055 |494673 |
-| Projects | 032-055 | 253052|
+| From the Passage | Dear Father, Thank You for raising Jesus from the dead. Thank You that disappointment, death, and despair are not the end of the story. Like the disciples, we are slow to understand, quick to fear, and often sad. But thank You that Jesus came back to us—not as a ghost or symbol—but as our living Saviour. Please open our minds and hearts to truly see Him. Give us hope in loss, joy in suffering, and courage to share His love. Make us not just committed Christians, but crucified ones—ready to live for You. The world needs the joy that Jesus brings. Please give us opportunities to share this joy with everyone around us this Easter. In Jesus’ name, Amen. |
+| ----------- | ----------- | 
+| General Offertory | 032-055 |
+| Missions | 032-055 |
+| Projects | 032-055 | 
 
 ### Church Ministries ###
 **CanCare:** Heavenly Father, we praise You for Your mercy and kindness. You understand the trials and suffering we face and are compassionate toward our weaknesses. We thank You for using CanCare to support those who are battling or have overcome cancer, along with their families and friends. Through Christ’s love, they serve and walk alongside them on this challenging journey. Lord, we ask that You continue to lead the CanCare team. Grant them wisdom, discernment, and a spirit of unity as they care for this community. This year, CanCare is committed to promoting education on life and death, with the hope of fostering a more positive understanding of this topic among the Chinese community. May it lead to deeper reflection on the reality and meaning of death, and in turn, a more holistic approach to cherishing and valuing life. We pray that You would guide and bless all aspects of this work. 
