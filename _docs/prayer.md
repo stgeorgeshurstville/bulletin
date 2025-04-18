@@ -3,9 +3,7 @@ title: Prayer
 order: 4
 ---
 
-Almighty Father, you have given your only Son Jesus Christ to die for our sins and to rise again for our justification: grant that we may put away the old leaven of corruption and wickedness, and always serve you in sincerity and truth; through the merits of Jesus Christ our Lord. Amen.
-
-
+Almighty God, you have given your only Son to be for us both a sacrifice for sin and also an example of godly life; give us grace that we may always thankfully receive the immeasurable benefit of his sacrifice, and also daily endeavour to follow in the blessed steps of his most holy life; who now lives and reigns with you and the Holy Spirit, one God, for evermore. Amen.
 
 ## Week 2 (Second Sunday of the month)
 
