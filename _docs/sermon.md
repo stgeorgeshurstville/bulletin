@@ -20,27 +20,16 @@ order: 2
 ### Prayer
 Dear God, thank you for letting us know you. Please help us learn from your word. Help us to serve and praise you. **Amen**
 
-### Luke 19: 28-40 (NIRV)
+### Luke 24: 36-49 (NIRV)
 
-**Jesus Comes to Jerusalem as King**
+**Jesus Appears to the Disciples**
 
-²⁸ After Jesus had said this, he went on ahead. He was going up to Jerusalem. ²⁹ He approached Bethphage and Bethany. The hill there was called the Mount of Olives. Jesus sent out two of his disciples. He said to them, ³⁰ “Go to the village ahead of you. As soon as you get there, you will find a donkey’s colt tied up. No one has ever ridden it. Untie it and bring it here. ³¹ Someone may ask you, ‘Why are you untying it?’ If so, say, ‘The Lord needs it.’ ” 
+³⁶ While they were still talking about this, Jesus himself stood among them and said to them, “Peace be with you.
+³⁷ They were startled and frightened, thinking they saw a ghost. ³⁸ He said to them, “Why are you troubled, and why do doubts rise in your minds? ³⁹ Look at my hands and my feet. It is I myself! Touch me and see; a ghost does not have flesh and bones, as you see I have.”
+⁴⁰ When he had said this, he showed them his hands and feet. ⁴¹ And while they still did not believe it because of joy and amazement, he asked them, “Do you have anything here to eat?” ⁴² They gave him a piece of broiled fish, ⁴³ and he took it and ate it in their presence.
+⁴⁴ He said to them, “This is what I told you while I was still with you: Everything must be fulfilled that is written about me in the Law of Moses, the Prophets and the Psalms.”
+⁴⁵ Then he opened their minds so they could understand the Scriptures. ⁴⁶ He told them, “This is what is written: The Messiah will suffer and rise from the dead on the third day, ⁴⁷ and repentance for the forgiveness of sins will be preached in his name to all nations, beginning at Jerusalem. ⁴⁸ You are witnesses of these things. ⁴⁹ I am going to send you what my Father has promised; but stay in the city until you have been clothed with power from on high.”
 
-³² Those who were sent ahead went and found the young donkey. It was there just as Jesus had told them. ³³ They were untying the colt when its owners came. The owners asked them, “Why are you untying the colt?” 
-
-³⁴ They replied, “The Lord needs it.” 
-
-³⁵ Then the disciples brought the colt to Jesus. They threw their coats on the young donkey and put Jesus on it. ³⁶ As he went along, people spread their coats on the road. 
-
-³⁷ Jesus came near the place where the road goes down the Mount of Olives. There the whole crowd of disciples began to praise God with joy. In loud voices they praised him for all the miracles they had seen. They shouted, 
-
-³⁸ “Blessed is the king who comes in the name of the Lord!” (Psalm 118: 26)  
-
-“May there be peace and glory in the highest heaven!” 
-
-³⁹ Some of the Pharisees in the crowd spoke to Jesus. “Teacher,” they said, “tell your disciples to stop!” 
-
-⁴⁰ “I tell you,” he replied, “if they keep quiet, the stones will cry out.” 
 
 
 ## Sermon Outline
