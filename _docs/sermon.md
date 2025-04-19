@@ -39,11 +39,11 @@ Dear God, thank you for letting us know you. Please help us learn from your word
 ### Intro: Choose an emoji to describe your current feeling. Share with someone nearby.
 😊 Happy? 😴 Tired? 😠 Angry? 🤔 Curious? ❓ Don’t know? 😢 Sad?
 
-## Disappointment – “We had hoped…” (Luke 24:17, 21) ##
+**Disappointment – “We had hoped…” (Luke 24:17, 21)**
 - Hope crushed by Jesus' death.
 - Real human experiences of disappointment and confusion.
 
-## Shock – “Is this a ghost?!” (Luke 24:37–43) ##
+**Shock – “Is this a ghost?!” (Luke 24:37–43)**
 - Jesus shows hands, feet, and eats fish.
 - Proves He’s alive—bodily resurrection.
 
