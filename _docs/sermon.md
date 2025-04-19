@@ -47,23 +47,17 @@ Dear God, thank you for letting us know you. Please help us learn from your word
 - Jesus shows hands, feet, and eats fish.
 - Proves He’s alive—bodily resurrection.
 
-## Revelation – “Everything is about Jesus” (vv. 25–27, 44–46) ##
+**Revelation – “Everything is about Jesus” (vv. 25–27, 44–46)**
 - Scriptures foretold it all.
 - Jesus explains the cross and resurrection were always God’s plan.
 
-## Joy – “They still did not believe it because of joy…” (v. 41) ##
+**Joy – “They still did not believe it because of joy…” (v. 41)**
 - Joy replaces fear.
 - God doesn’t erase pain—He redeems it.
 
-## Mission – “You are witnesses” (vv. 47–49) ##
+**Mission – “You are witnesses” (vv. 47–49)**
 - The resurrection message is for the world.
 - Joy that must be shared.
-
-
- 
-
-
-
 
 ## Q&A
 Got questions or comments? Send them [here](https://tinyurl.com/SGHACQuestionsAnswers)
