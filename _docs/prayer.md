@@ -13,12 +13,10 @@ Almighty God, you show to those who are in error the light of your truth so that
 | Mission & Vision | Write your own prayer :)  | 
 | Global & Nation | Write your own prayer :) |
 | Mission Partners  | Mathys and PNG: General info: There are >800 languages spoken in Papua New Guinea, but only 13 have complete bibles. Calvin and Ruth work alongside Papua New Guineans in roles that support the ongoing ministry of bible translation. Calvin is an aircraft maintenance engineer, in order to provide transport and logistics support for bible translators. Ruth provides training for the bible translators, so that locals can take the lead in this work. 
-
-
 [Summary of March 2025 newsletter]
-Currently on home assignment in Melbourne. Give thanks for being able to enjoy a family holiday
-Pray for them as they present and speak at churches. Pray for God to continue providing financial partnerships as they determine a new field budget and aim to return to PNG in July. Pray that they can trust God to be content and be good stewards of his generous provision. 
-Pray for their children (Jakob as he settles into new student accommodation, and for Andreas/Petra as they continue schooling online) |
+- Currently on home assignment in Melbourne. Give thanks for being able to enjoy a family holiday
+- Pray for them as they present and speak at churches. Pray for God to continue providing financial partnerships as they determine a new field budget and aim to return to PNG in July. Pray that they can trust God to be content and be good stewards of his generous provision.
+- Pray for their children (Jakob as he settles into new student accommodation, and for Andreas/Petra as they continue schooling online) |
 |Special Items & Events | KYCK
 Easter markets
 Lord, we thank You for the opportunity to reach into the community through the Easter night market and to share the joyful message of Your resurrection. Thank You for watching over the entire event and for using brothers and sisters from all congregations to serve together in unity, bearing witness to Your love. We ask that You bless each brother and sister who served, and continue to work in the hearts of those who were reached. Draw them to know You. Please bless the follow-up efforts, and may the seeds of the gospel bear fruit in Your perfect timing. To You be all the glory.
