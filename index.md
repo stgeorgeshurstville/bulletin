@@ -9,14 +9,11 @@ title: Welcome
 [comment]: ##### "where the sentence came from, e.g. Psalm 1:1"  
 [comment]: ----------------------------------------------------  
 
-## The Rising of the King
+## The Accension of the King
 
+#### The Lord is my shepherd. He gives me everything I need. The Lord loves what is right and fair. The earth is full of his faithful love. The heavens were made when the Lord commanded it to happen. All the stars were created by the breath of his mouth. Psalm 23:1, 33:5-6 (NIRV)
 
-
-
-#### Make a joyful noise to God, all the earth; sing to the glory of his name; give to him glorious praise.
-
-##### Psalm 66: 1-3
+##### Psalm 23:1,33:5-6
 
 
 
