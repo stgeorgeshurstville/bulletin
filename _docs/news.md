@@ -19,9 +19,9 @@ order: 5
 - **Vision 2025:** Our vision for 2025 is the ‘Shine for Jesus, everywhere, anytime.’ 
 We would love for you to take a few minutes to complete the Shine survey to help give us a picture of where we are as a church [here](https://docs.google.com/forms/d/e/1FAIpQLSezXaAZ_-lCp9NhPs6MlBz5c127LD8oH5YMn1BdLzrOT2Q8Ug/viewform?usp=dialog)
 
-**Post-AGM forum:** Thank you for those who took the time to come and give us your thoughts. We will be following these up with more meetings. A decision needs to be made around the end of May. 
+- **Post-AGM forum:** Thank you for those who took the time to come and give us your thoughts. We will be following these up with more meetings. A decision needs to be made around the end of May. 
 
-**All Gen:**
+- **All Gen:**
 During the school holidays, we have a wonderful opportunity to come together as one assembly (regardless of age or stage) and learn the truth of the Gospel. Specifically, we'll be tracing the story of Jesus's life during his final days, from his arrival in Jerusalem on Palm Sunday to his crucifixion on Good Friday, his resurrection on Easter Sunday and his ascension back into heaven. These all-age services will be fun, interactive, and greatly edifying for everyone. The dates are listed below:
 
 - 20th of April (Easter Sunday) 
