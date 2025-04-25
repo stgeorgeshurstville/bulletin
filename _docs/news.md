@@ -7,34 +7,16 @@ order: 5
 
 | Date | Event | Time |
 | ----- | ----- | ----- |
-| **APRIL** | 
-| 20 APR | Easter Service | 9:30 AM & 4:00PM |
+
 
 ## General
-**Giving for relief in Myanmar and the training of Nepali missionaries:** 
+- **Easter markets:** Thankful for the answer to prayer, for the many who helped. We gave away various flyers, 300+ church information cards, 500 balloons. Several people came to church the following day. 
 
-**ARDFA Myanmar appeal:** YOU CAN HELP by making a TAX-DEDUCTIBLE DONATION. Click here--> https://ardfa.org.au/myanmar-earthquake
-Your donation may go towards such things as:
-- ♥ food and water
-- ♥ emergency packs
-- ♥ medical assistance
-- ♥ temporary accommodation or shelter
-- ♥ food allowance
-- ♥ transportation
-- ♥ trauma counselling
-- ♥ restoration and recovery
-- ♥ repairs and resettlement 
+- **Construction work is being done in the Seminar and ‘Creche’ rooms during the school holidays (please see AGM reports). This will impact users. For enquiry please contact the office:** 
 
+- **The lock to the Hall has been changed. For access please contact the office:** 
 
-**Pokhara Mission Centre:** The total building cost is around $1.5m of which 60% has already been raised or pledged. INF Australia would like to contribute $200,000. Gi_s to this appeal are tax deductible and a generous donor has offered to match all donations dollar for dollar. 
-
-**Construction work is being done in the Seminar and ‘Creche’ rooms during the school holidays (please see AGM reports). This will impact users. For enquiry please contact the office:** 
-
-**The lock to the Hall has been changed. For access please contact the office:** 
-
-**Easter Markets:** Pls pray. Pls come along. YOu can still be part of it. Pleaser talk to one of the pastors. 4:00 PM at 2 The Avenue
-
-**Vision 2025:** Our vision for 2025 is the ‘Shine for Jesus, everywhere, anytime.’ 
+- **Vision 2025:** Our vision for 2025 is the ‘Shine for Jesus, everywhere, anytime.’ 
 We would love for you to take a few minutes to complete the Shine survey to help give us a picture of where we are as a church [here](https://docs.google.com/forms/d/e/1FAIpQLSezXaAZ_-lCp9NhPs6MlBz5c127LD8oH5YMn1BdLzrOT2Q8Ug/viewform?usp=dialog)
 
 **Post-AGM forum:** Thank you for those who took the time to come and give us your thoughts. We will be following these up with more meetings. A decision needs to be made around the end of May. 
@@ -44,17 +26,14 @@ During the school holidays, we have a wonderful opportunity to come together as 
 
 - 20th of April (Easter Sunday) 
 
-- 27th of April 
+- 27th of April
 
-**Easter 2025- From Darkness to Dawn:**
-Do you feel the weight of the world's darkness? Political storms, echoes of conflict, and an uncertain environment marked by floods, cyclones, and wildfires. Yet, at Easter, we are reminded that even the deepest night cannot extinguish the hope of a new dawn. Come to our Easter services and discover this new dawn, a promise of hope that comes through Jesus' death and resurrection.
+**Over the next three weeks, get ready to explore the very heart of what we believe as we trace how our God came to earth to rescue us and unite us to himself.**
+This week, and every week, is a great opportunity to invite friends and family to hear why this is good news for them. To get a taste of what's to come, why not read John 1:1-14?
 
-- Easter Sunday, April 20th:
-9:30 AM at 124 Forest Road
-4:00 PM at 2 The Avenue
-
-"A new day will dawn on us from above because our God is loving and merciful. He will give light to those who live in the dark and in death’s shadow. He will guide us into the way of peace." Luke 1:78-79
-
+- The Very Person of God - 4th of May (John 1:1-14)
+- The Story of the First and Last Adam - 11th of May (Romans 5:12-19)
+- Being United with Christ - 18th of May (Ephesians 2:1-10)
 
 - [**What are you doing for God’s glory in 2025?**](https://forms.gle/dshYacLA1kB8xpkn7)
 
