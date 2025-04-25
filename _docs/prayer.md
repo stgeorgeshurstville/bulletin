@@ -9,18 +9,7 @@ Almighty God, you show to those who are in error the light of your truth so that
 
 | Pointers | Description |
 | --- | --- |
-| From the Passage | Loving Father,
- Thank You that Jesus is not only risen but is reigning.
- Thank You that He didn’t just leave us with a mission,
- but gave us His Spirit to live in us and empower us.
-Help us to remember that we are not alone.
- You are still at work—calling people to repentance for the forgiveness of sin.
- Give us courage when we are afraid,
- love when we feel dry,
- and strength when we are tired.
-Use our lives—our words, our work, our families,
- to help others know the good news of Jesus.
- And lead us this week to follow where You are going.
+| From the Passage | Loving Father,Thank You that Jesus is not only risen but is reigning. Thank You that He didn’t just leave us with a mission, but gave us His Spirit to live in us and empower us. Help us to remember that we are not alone. You are still at work—calling people to repentance for the forgiveness of sin. Give us courage when we are afraid, love when we feel dry, and strength when we are tired. Use our lives—our words, our work, our families, to help others know the good news of Jesus. And lead us this week to follow where You are going.
 In Jesus’ name, Amen. |
 | Mission & Vision | Write your own prayer :)  | 
 | Global & Nation | Write your own prayer :) |
