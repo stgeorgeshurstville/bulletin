@@ -40,5 +40,13 @@ Dear God, thank you for letting us know you. Please help us learn from your word
 1. Whats something thad hard but you find easy?
     - Why? Becauyse you're motivated
 
+2. The Impossible Task (vv47-48)
+    - Jesus gave His disciples a mission: "“Repentance for the forgiveness of sins will be preached… to all nations… starting in Jerusalem.”
+
+3. The Reason We Struggle: A Motivation Gap
+   - We don’t struggle because it’s hard—we struggle because we’re not motivated.
+  
+4. Why the Ascension Matters (vv.49–53)
+
 ## Q&A
 Got questions or comments? Send them [here](https://tinyurl.com/SGHACQuestionsAnswers)
