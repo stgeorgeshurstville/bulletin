@@ -38,7 +38,7 @@ Dear God, thank you for letting us know you. Please help us learn from your word
 
 ### Intro: Motivation Matters 
 1. Whats something thad hard but you find easy?
-  - Why? Becauyse you're motivated
+    - Why? Becauyse you're motivated
 
 ## Q&A
 Got questions or comments? Send them [here](https://tinyurl.com/SGHACQuestionsAnswers)
