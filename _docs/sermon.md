@@ -20,19 +20,15 @@ order: 2
 ### Prayer
 Dear God, thank you for letting us know you. Please help us learn from your word. Help us to serve and praise you. **Amen!**
 
-### Luke 24: 36-49 (NIRV)
+### Luke 24: 44-53 (NIRV)
 
-**Jesus Appears to the Disciples**
+⁴⁴ Jesus said to them, “This is what I told you while I was still with you. Everything written about me in the Law of Moses, the Prophets and the Psalms must come true.”
 
-³⁶ While they were still talking about this, Jesus himself stood among them and said to them, “Peace be with you.
+⁴⁵ Then he opened their minds so they could understand the Scriptures. ⁴⁶ He told them, “This is what is written. The Messiah will suffer. He will rise from the dead on the third day. ⁴⁷ His followers will preach in his name. They will tell others to turn away from their sins and be forgiven. People from every nation will hear it, beginning at Jerusalem. ⁴⁸ You have seen these things with your own eyes. ⁴⁹ I am going to send you what my Father has promised. But for now, stay in the city. Stay there until you have received power from heaven.”
 
-³⁷ They were startled and frightened, thinking they saw a ghost. ³⁸ He said to them, “Why are you troubled, and why do doubts rise in your minds? ³⁹ Look at my hands and my feet. It is I myself! Touch me and see; a ghost does not have flesh and bones, as you see I have.”
+**Jesus Is Taken Up Into Heaven**
 
-⁴⁰ When he had said this, he showed them his hands and feet. ⁴¹ And while they still did not believe it because of joy and amazement, he asked them, “Do you have anything here to eat?” ⁴² They gave him a piece of broiled fish, ⁴³ and he took it and ate it in their presence.
-
-⁴⁴ He said to them, “This is what I told you while I was still with you: Everything must be fulfilled that is written about me in the Law of Moses, the Prophets and the Psalms.”
-
-⁴⁵ Then he opened their minds so they could understand the Scriptures. ⁴⁶ He told them, “This is what is written: The Messiah will suffer and rise from the dead on the third day, ⁴⁷ and repentance for the forgiveness of sins will be preached in his name to all nations, beginning at Jerusalem. ⁴⁸ You are witnesses of these things. ⁴⁹ I am going to send you what my Father has promised; but stay in the city until you have been clothed with power from on high.”
+⁵⁰ Jesus led his disciples out to the area near Bethany. Then he lifted up his hands and blessed them. ⁵¹ While he was blessing them, he left them. He was taken up into heaven. ⁵² Then they worshiped him. With great joy, they returned to Jerusalem. ⁵³ Every day they went to the temple, praising God.
 
 ## Sermon Outline
 
