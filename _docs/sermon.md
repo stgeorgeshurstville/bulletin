@@ -18,7 +18,7 @@ order: 2
 [comment]: ------------------------------------------------------------------------------------
 ## Bible Reading
 ### Prayer
-Dear God, thank you for letting us know you. Please help us learn from your word. Help us to serve and praise you. **Amen**
+Dear God, thank you for letting us know you. Please help us learn from your word. Help us to serve and praise you. **Amen!**
 
 ### Luke 24: 36-49 (NIRV)
 
@@ -36,28 +36,9 @@ Dear God, thank you for letting us know you. Please help us learn from your word
 
 ## Sermon Outline
 
-### Intro: Choose an emoji to describe your current feeling. Share with someone nearby.
-😊 Happy? 😴 Tired? 😠 Angry? 🤔 Curious? ❓ Don’t know? 😢 Sad?
-
-**Disappointment – “We had hoped…” (Luke 24:17, 21)**
-- Hope crushed by Jesus' death.
-- Real human experiences of disappointment and confusion.
-
-**Shock – “Is this a ghost?!” (Luke 24:37–43)**
-- Jesus shows hands, feet, and eats fish.
-- Proves He’s alive—bodily resurrection.
-
-**Revelation – “Everything is about Jesus” (vv. 25–27, 44–46)**
-- Scriptures foretold it all.
-- Jesus explains the cross and resurrection were always God’s plan.
-
-**Joy – “They still did not believe it because of joy…” (v. 41)**
-- Joy replaces fear.
-- God doesn’t erase pain—He redeems it.
-
-**Mission – “You are witnesses” (vv. 47–49)**
-- The resurrection message is for the world.
-- Joy that must be shared.
+### Intro: Motivation Matters 
+1. Whats something thad hard but you find easy?
+  - Why? Becauyse you're motivated
 
 ## Q&A
 Got questions or comments? Send them [here](https://tinyurl.com/SGHACQuestionsAnswers)
