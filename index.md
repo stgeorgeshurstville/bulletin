@@ -9,7 +9,7 @@ title: Welcome
 [comment]: ##### "where the sentence came from, e.g. Psalm 1:1"  
 [comment]: ----------------------------------------------------  
 
-## TThe Gospel: Unlocking the Good News by counting down from 3, 2 and 1
+## The Gospel: Unlocking the Good News by counting down from 3, 2 and 1
 
 ### The Very Person of God 
 
