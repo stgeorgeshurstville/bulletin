@@ -40,8 +40,9 @@ This week, and every week, is a great opportunity to invite friends and family t
 - The Very Person of God - 4th of May (John 1:1-14)
 - The Story of the First and Last Adam - 11th of May (Romans 5:12-19)
 - Being United with Christ - 18th of May (Ephesians 2:1-10)
-  ![Screenshot 2025-05-02 212140](https://github.com/user-attachments/assets/4017bcde-d4ba-4ae4-b65b-ac74005f8425)
 
+ ![Screenshot 2025-05-02 212140](https://github.com/user-attachments/assets/4017bcde-d4ba-4ae4-b65b-ac74005f8425)
+ 
 - [**What are you doing for God’s glory in 2025?**](https://forms.gle/dshYacLA1kB8xpkn7)
 
 **Growing in Our Welcoming:**
