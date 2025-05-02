@@ -9,11 +9,14 @@ title: Welcome
 [comment]: ##### "where the sentence came from, e.g. Psalm 1:1"  
 [comment]: ----------------------------------------------------  
 
-## The Accension of the King
+## TThe Gospel: unlocking the good news by counting down from 3,2 and 1
 
-#### The Lord is my shepherd. He gives me everything I need. The Lord loves what is right and fair. The earth is full of his faithful love. The heavens were made when the Lord commanded it to happen. All the stars were created by the breath of his mouth. Psalm 23:1, 33:5-6 (NIRV)
+### The Very Person of God 
 
-##### Psalm 23:1,33:5-6
+
+#### [O sing to the Lord a new song, for he has done marvellous things.] The Lord has made known his victory, and he has revealed his vindication in the sight of the nation
+
+##### Psalm 98.2
 
 
 
