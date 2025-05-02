@@ -10,11 +10,22 @@ order: 5
 
 
 ## General
-- **Church Office Returns to the Rectory** - After a year-long trial period, we've determined that the Rectory's Vestry is not the ideal location for our church office. Effective immediately, the office has returned to its original location at the Rectory. We extend our heartfelt thanks to:
+- **Church Office Returns to the Rectory**: After a year-long trial period, we've determined that the Rectory's Vestry is not the ideal location for our church office. Effective immediately, the office has returned to its original location at the Rectory. We extend our heartfelt thanks to:
   - Pastor Bijaya and family for their generous hospitality
   - Jen Tung and her team of volunteers for their hard work during the transition
 
   For security and confidentiality reasons, please note the office is now accessible only to staff members. We appreciate your understanding as we make this adjustment to better serve our church family.
+
+_ **Ministry Support Centre Renovation Complete:** Exciting updates at our Ministry Support Centre! The space has been transformed with:
+  ✔ Removal of dividing walls
+  ✔ Installation of new folding doors
+  ✔ Enhanced flexibility for various ministries
+  
+  This project was made possible through your faithful giving. If you'd like to help cover the remaining costs, donations can be made to:
+    Projects Account
+    BSB: 032-055
+    Account #: 253052
+  We thank God for providing the resources and skilled workers to complete this improvement to our shared ministry space.
 
 
 **Over the next three weeks, get ready to explore the very heart of what we believe as we trace how our God came to earth to rescue us and unite us to himself.**
