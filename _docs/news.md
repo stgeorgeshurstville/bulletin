@@ -24,7 +24,7 @@ order: 5
 
   This project was made possible through your faithful giving. If you'd like to help cover the remaining costs, donations can be made to:
 
-  Projects Account
+  **Projects Account**
 
   BSB: 032-055
 
