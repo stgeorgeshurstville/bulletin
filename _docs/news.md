@@ -32,7 +32,7 @@ order: 5
   
   We thank God for providing the resources and skilled workers to complete this improvement to our shared ministry space.
 
-- **Vision 2025:** Our vision for 2025 is the ‘shine for Jesus, everywhere, anytime.’ We would love for you to take a few minutes to complete the Shine survey to help give us a picture of where we are as a church [here].(https://docs.google.com/forms/d/e/1FAIpQLSezXaAZ_-lCp9NhPs6MlBz5c127LD8oH5YMn1BdLzrOT2Q8Ug/viewform?usp=dialog)
+- **Vision 2025:** Our vision for 2025 is the ‘shine for Jesus, everywhere, anytime.’ We would love for you to take a few minutes to complete the Shine survey to help give us a picture of where we are as a church [here](https://docs.google.com/forms/d/e/1FAIpQLSezXaAZ_-lCp9NhPs6MlBz5c127LD8oH5YMn1BdLzrOT2Q8Ug/viewform?usp=dialog).
 
 
 - **Over the next three weeks, get ready to explore the very heart of what we believe as we trace how our God came to earth to rescue us and unite us to himself.**
