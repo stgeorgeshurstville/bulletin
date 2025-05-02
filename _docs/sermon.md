@@ -30,18 +30,13 @@ In the beginning was the Word, and the Word was with God, and the Word was God. 
 
 
 ## Sermon Outline
-
-### Intro: Motivation Matters 
-1. What is something hard but you find easy?
-    - Why? Because you're motivated
-
-2. The Impossible Task (vv47-48)
-    - Jesus gave His disciples a mission: "Repentance for the forgiveness of sins will be preached… to all nations… starting in Jerusalem.”
-
-3. The Reason We Struggle: A Motivation Gap
-   - We don’t struggle because it’s hard—we struggle because we’re not motivated.
-  
-4. Why the Ascension Matters (vv.49–53)
+- Shining and speaking
+- Speaklife 321
+- Start with Jesus
+- The God you’ve never met
+- People will not see the light
+- Love overflow
+- What’s next? 
 
 ## Q&A
 Got questions or comments? Send them [here](https://tinyurl.com/SGHACQuestionsAnswers)
