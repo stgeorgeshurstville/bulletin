@@ -13,8 +13,10 @@ Almighty God, you alone can order the unruly wills and passions of sinful men: g
 | Mission & Vision |  | 
 | Global & Nation |  |
 | Mission Partners  | General info:<br><br>
-Compassion is a Christian international holistic child development organisation. In response to God’s call, Compassion gives hope to the hopeless, spreading the gospel of Jesus Christ in a culturally relevant, non-coercive way. Through our Child Sponsorship Program, more than 2 million children are currently being released from poverty in Jesus’ name. 
-|
-|Special Items & Events | KYCK, Easter markets, Lord, we thank You for the opportunity to reach into the community through the Easter night market and to share the joyful message of Your resurrection. Thank You for watching over the entire event and for using brothers and sisters from all congregations to serve together in unity, bearing witness to Your love. We ask that You bless each brother and sister who served, and continue to work in the hearts of those who were reached. Draw them to know You. Please bless the follow-up efforts, and may the seeds of the gospel bear fruit in Your perfect timing. To You be all the glory. Collection for Myanmar earthquake recovery aid (ARDFA) |
+Compassion is a Christian international holistic child development organisation. In response to God’s call, Compassion gives hope to the hopeless, spreading the gospel of Jesus Christ in a culturally relevant, non-coercive way. Through our Child Sponsorship Program, more than 2 million children are currently being released from poverty in Jesus’ name.|
+| Church Ministries | English Congregation:<br>Please pray for those doing the Life Course and those preparing for baptism. Please pray that the Lord will use Speaklife 321 to move us to mission. Thank God for the opportunity to use the hall of Hurstville Public School and for providing the opportunity to connect with the school community.  Please shape our thoughts and our hearts for the lost.|
+| Groups In Church| Staff:<br>Please give thanks to God for bringing pastor Jairus to our midst. Please pray for him and for Priscilla as they settle in our community.|
+| Special Items & Events |  |
+
 
 - **Prayer points can be found [here](https://stgeorgeshurstville.org.au/prayer)**
