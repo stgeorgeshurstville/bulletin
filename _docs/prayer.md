@@ -9,15 +9,7 @@ Almighty God, you alone can order the unruly wills and passions of sinful men: g
 
 | Pointers | Description |
 | --- | --- |
-| From the Passage | Heavenly Father,
-
-Thank You for not remaining distant, but for sending Your Son, Jesus, to reveal Your love and draw us into it. Thank You that in Him, we see Your true self. Open our eyes to behold Your love more clearly each day.
-
-Without Your work and Your grace, those we meet remain in darkness, just as we once did. Have mercy on our world, Lord, as You have had mercy on us.
-
-Free us to speak, not out of obligation, but from the overflow of encountering Your light and receiving Your love. Cast out our fears by filling us with deeper love for You and for the lost. Give us wisdom to know what to say and when to speak—and humility to listen when silence is needed.
-
-May our lives and words point always to Jesus, in whose name we pray, Amen.
+| From the Passage | Heavenly Father,<br>Thank You for not remaining distant, but for sending Your Son, Jesus, to reveal Your love and draw us into it. Thank You that in Him, we see Your true self. Open our eyes to behold Your love more clearly each day.<br>Without Your work and Your grace, those we meet remain in darkness, just as we once did. Have mercy on our world, Lord, as You have had mercy on us.<br>Free us to speak, not out of obligation, but from the overflow of encountering Your light and receiving Your love. Cast out our fears by filling us with deeper love for You and for the lost. Give us wisdom to know what to say and when to speak—and humility to listen when silence is needed.<br>May our lives and words point always to Jesus, in whose name we pray, Amen.
  |
 | Mission & Vision |  | 
 | Global & Nation |  |
