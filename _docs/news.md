@@ -21,7 +21,8 @@ order: 5
   ✔ Removal of dividing walls
   ✔ Installation of new folding doors
   ✔ Enhanced flexibility for various ministries
-    This project was made possible through your faithful giving. If you'd like to help cover the remaining costs, donations can be made to:
+
+  This project was made possible through your faithful giving. If you'd like to help cover the remaining costs, donations can be made to:
 
   Projects Account
   BSB: 032-055
