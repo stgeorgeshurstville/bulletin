@@ -20,15 +20,14 @@ order: 2
 ### Prayer
 Dear God, thank you for letting us know you. Please help us learn from your word. Help us to serve and praise you. **Amen!**
 
-### Luke 24: 44-53 (NIRV)
+### John 1:1-14 (NIV)
 
-⁴⁴ Jesus said to them, “This is what I told you while I was still with you. Everything written about me in the Law of Moses, the Prophets and the Psalms must come true.”
+In the beginning was the Word, and the Word was with God, and the Word was God. ² He was with God in the beginning. ³ Through him all things were made; without him nothing was made that has been made. ⁴ In him was life, and that life was the light of all mankind. ⁵ The light shines in the darkness, and the darkness has not overcome it.
 
-⁴⁵ Then he opened their minds so they could understand the Scriptures. ⁴⁶ He told them, “This is what is written. The Messiah will suffer. He will rise from the dead on the third day. ⁴⁷ His followers will preach in his name. They will tell others to turn away from their sins and be forgiven. People from every nation will hear it, beginning at Jerusalem. ⁴⁸ You have seen these things with your own eyes. ⁴⁹ I am going to send you what my Father has promised. But for now, stay in the city. Stay there until you have received power from heaven.”
+⁶ There was a man sent from God whose name was John. ⁷ He came as a witness to testify concerning that light, so that through him all might believe. ⁸ He himself was not the light; he came only as a witness to the light.
 
-**Jesus Is Taken Up Into Heaven**
+⁹ The true light that gives light to everyone was coming into the world. ¹⁰ He was in the world, and though the world was made through him, the world did not recognize him. ¹¹ He came to that which was his own, but his own did not receive him. ¹² Yet to all who did receive him, to those who believed in his name, he gave the right to become children of God— ¹³ children born not of natural descent, nor of human decision or a husband’s will, but born of God.
 
-⁵⁰ Jesus led his disciples out to the area near Bethany. Then he lifted up his hands and blessed them. ⁵¹ While he was blessing them, he left them. He was taken up into heaven. ⁵² Then they worshiped him. With great joy, they returned to Jerusalem. ⁵³ Every day they went to the temple, praising God.
 
 ## Sermon Outline
 
