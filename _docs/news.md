@@ -13,7 +13,7 @@ order: 5
 - **Church Office Returns to the Rectory** - After a year-long trial period, we've determined that the Rectory's Vestry is not the ideal location for our church office. Effective immediately, the office has returned to its original location at the Rectory. We extend our heartfelt thanks to:
   - Pastor Bijaya and family for their generous hospitality
   - Jen Tung and her team of volunteers for their hard work during the transition
-  For security and confidentiality reasons, please note the office is now accessible only to staff members. We appreciate your understanding as we make this adjustment to better serve our church family.
+    For security and confidentiality reasons, please note the office is now accessible only to staff members. We appreciate your understanding as we make this adjustment to better serve our church family.
 
 
 **Over the next three weeks, get ready to explore the very heart of what we believe as we trace how our God came to earth to rescue us and unite us to himself.**
