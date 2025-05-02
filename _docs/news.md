@@ -10,23 +10,11 @@ order: 5
 
 
 ## General
-- **Easter markets:** Thankful for the answer to prayer, for the many who helped. We gave away various flyers, 300+ church information cards, 500 balloons. Several people came to church the following day. 
+- **Church Office Returns to the Rectory** - After a year-long trial period, we've determined that the Rectory's Vestry is not the ideal location for our church office. Effective immediately, the office has returned to its original location at the Rectory. We extend our heartfelt thanks to:
+  - Pastor Bijaya and family for their generous hospitality
+  - Jen Tung and her team of volunteers for their hard work during the transition
+For security and confidentiality reasons, please note the office is now accessible only to staff members. We appreciate your understanding as we make this adjustment to better serve our church family.
 
-- **Construction work is being done in the Seminar and ‘Creche’ rooms during the school holidays (please see AGM reports). This will impact users. For enquiry please contact the office:** 
-
-- **The lock to the Hall has been changed. For access please contact the office:** 
-
-- **Vision 2025:** Our vision for 2025 is the ‘Shine for Jesus, everywhere, anytime.’ 
-We would love for you to take a few minutes to complete the Shine survey to help give us a picture of where we are as a church [here](https://docs.google.com/forms/d/e/1FAIpQLSezXaAZ_-lCp9NhPs6MlBz5c127LD8oH5YMn1BdLzrOT2Q8Ug/viewform?usp=dialog)
-
-- **Post-AGM forum:** Thank you for those who took the time to come and give us your thoughts. We will be following these up with more meetings. A decision needs to be made around the end of May. 
-
-- **All Gen:**
-During the school holidays, we have a wonderful opportunity to come together as one assembly (regardless of age or stage) and learn the truth of the Gospel. Specifically, we'll be tracing the story of Jesus's life during his final days, from his arrival in Jerusalem on Palm Sunday to his crucifixion on Good Friday, his resurrection on Easter Sunday and his ascension back into heaven. These all-age services will be fun, interactive, and greatly edifying for everyone. The dates are listed below:
-
-- 20th of April (Easter Sunday) 
-
-- 27th of April
 
 **Over the next three weeks, get ready to explore the very heart of what we believe as we trace how our God came to earth to rescue us and unite us to himself.**
 This week, and every week, is a great opportunity to invite friends and family to hear why this is good news for them. To get a taste of what's to come, why not read John 1:1-14?
