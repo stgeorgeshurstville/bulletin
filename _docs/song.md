@@ -4,10 +4,10 @@ order: 1
 ---
 
 ## 9:30am
-1. No Other Name
-2. Jesus Strong and Kind
-3. Crown Him with Many Crowns
-4. Let Your Kingdom Come 
+1. How Great Thou Art
+2. Holy Holy, Holy! 
+3. How Deep the Fathers Love For Us
+4. Shine Jesus Shine
    
 ## 4:00pm
 1. It Was Finished Upon That Cross
