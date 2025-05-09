@@ -11,13 +11,11 @@ title: Welcome
 
 ## The Gospel: Unlocking the Good News by counting down from 3, 2 and 1
 
-### The Very Person of God 
+### Two: The story of the first and last Adam 
 
 
-#### [O sing to the Lord a new song, for he has done marvellous things.] The Lord has made known his victory, and he has revealed his vindication in the sight of the nation
-
-##### Psalm 98.2
-
+#### Declare this with a shout of joy, proclaim it, send it forth to the end of the earth: say, 'The Lord has set his people free.' 
+##### Isaiah 48:20
 
 
 ---
