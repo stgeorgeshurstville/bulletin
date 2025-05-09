@@ -4,11 +4,9 @@ order: 5
 ---
 
 ## Upcoming Dates
-None at the moment
 
-[comment]: Uncomment the table below when there's actually data to fill in
-[comment]:| Date | Event | Time |
-[comment]:| ----- | ----- | ----- |
+| Date | Event | Time |
+| ----- | ----- | ----- |
 
 
 ## General
