@@ -3,18 +3,20 @@ title: Prayer
 order: 4
 ---
 
-Almighty God, you alone can order the unruly wills and passions of sinful men: grant to your people that they may love what you command and desire what you promise, that so, among the many and varied changes of the world, our hearts may surely there be fixed where true joys are to be found; through Jesus Christ our Lord. Amen.
+## Collect
+Heavenly Father, the giver of all good things, fill our hearts with thankfulness, and grant that by your holy inspiration we may think those things that are good, and by your merciful guidance may perform them; through our Lord Jesus Christ. Amen.
+
 
 ## Week 4 (Fourth Sunday of the month)
 
 | Pointers | Description |
 | --- | --- |
-| From the Passage | Heavenly Father,<br><br>Thank You for not remaining distant, but for sending Your Son, Jesus, to reveal Your love and draw us into it. Thank You that in Him, we see Your true self. Open our eyes to behold Your love more clearly each day.<br><br>Without Your work and Your grace, those we meet remain in darkness, just as we once did. Have mercy on our world, Lord, as You have had mercy on us.<br><br>Free us to speak, not out of obligation, but from the overflow of encountering Your light and receiving Your love. Cast out our fears by filling us with deeper love for You and for the lost. Give us wisdom to know what to say and when to speak—and humility to listen when silence is needed.<br><br>May our lives and words point always to Jesus, in whose name we pray, Amen.|
-| Mission & Vision |  | 
-| Global & Nation |  |
-| Mission Partners  | General info:<br>Compassion is a Christian international holistic child development organisation. In response to God’s call, Compassion gives hope to the hopeless, spreading the gospel of Jesus Christ in a culturally relevant, non-coercive way. Through our Child Sponsorship Program, more than 2 million children are currently being released from poverty in Jesus’ name.|
-| Church Ministries | English Congregation:<br>Please pray for those doing the Life Course and those preparing for baptism. Please pray that the Lord will use Speaklife 321 to move us to mission. Thank God for the opportunity to use the hall of Hurstville Public School and for providing the opportunity to connect with the school community.  Please shape our thoughts and our hearts for the lost.|
-| Groups In Church| Staff:<br>Please give thanks to God for bringing pastor Jairus to our midst. Please pray for him and for Priscilla as they settle in our community.|
+| From the Passage |  |
+| Mission & Vision | Mission<br>*Please write your own prayer* | 
+| Global & Nation | World<br>*Please write your own prayer* |
+| Mission Partners  | Persecuted Christians<br>*Please write your own prayer* <br><br>Phil & Lil in West Asia<br>*Please write your own prayer*|
+| Church Ministries | CanCare:<br>Heavenly Father, we praise You for Your mercy and kindness. You understand the trials and suffering we face and are compassionate toward our weaknesses. We thank You for using CanCare to support those who are battling or have overcome cancer, along with their families and friends. Through Christ’s love, they serve and walk alongside them on this challenging journey. Lord, we ask that You continue to lead the CanCare team. Grant them wisdom and a spirit of unity as they care for this community. In just a moment, Your gracious hand has brought CanCare through 18 years of faithful ministry. As the team prepares for the 18th Anniversary Thanksgiving Dinner, we pray that You would grant them wisdom and strength. Please bless all the preparations, and may this event be a powerful testimony that brings glory to Your name.<br><br>Nursing home / Pastoral Care Teams<br>Dear Heavenly Father, You are the God of grace and hope. You understand every challenge and burden that each elderly person carries in their heart. We ask for Your mighty hand to touch their lives and bring comfort to their souls. Help them to turn their hearts fully to You, trust in You completely, and find true peace and blessings in Your presence. For those living in nursing homes or requiring special care at home, may they deeply experience the love of Christ surrounding them. Lord, use every member of the care and visitation team as a channel of Your love. May those they visit feel the joy and encouragement of genuine fellowship and the fullness of love shared among them.|
+| Groups In Church| Singles, widows and orphans<br>*Please write your own prayer*|
 | Special Items & Events |  |
 
 
