@@ -34,18 +34,14 @@ order: 5
 
 - **Vision 2025:** Our vision for 2025 is the ‘shine for Jesus, everywhere, anytime.’ We would love for you to take a few minutes to complete the Shine survey to help give us a picture of where we are as a church [here](https://docs.google.com/forms/d/e/1FAIpQLSezXaAZ_-lCp9NhPs6MlBz5c127LD8oH5YMn1BdLzrOT2Q8Ug/viewform?usp=dialog).
 
-**The Gospel - 3, 2, 1**
+**Term 2 - Sermon Series**
 
 ![Screenshot 2025-05-02 212140](https://github.com/user-attachments/assets/4017bcde-d4ba-4ae4-b65b-ac74005f8425)
-
-- **Over the next three weeks, get ready to explore the very heart of what we believe as we trace how our God came to earth to rescue us and unite us to himself.**
-This week, and every week, is a great opportunity to invite friends and family to hear why this is good news for them. To get a taste of what's to come, why not read John 1:1-14?
 
 - The Very Person of God - 4th of May (John 1:1-14)
 - The Story of the First and Last Adam - 11th of May (Romans 5:12-19)
 - Being United with Christ - 18th of May (Ephesians 2:1-10)
- 
-- [**What are you doing for God’s glory in 2025?**](https://forms.gle/dshYacLA1kB8xpkn7)
+
 
 **Growing in Our Welcoming:**
   
