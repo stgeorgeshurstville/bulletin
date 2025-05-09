@@ -20,23 +20,23 @@ order: 2
 ### Prayer
 Dear God, thank you for letting us know you. Please help us learn from your word. Help us to serve and praise you. **Amen!**
 
-### John 1:1-14 (NIV)
+### Romans 5:12-19 (NIV)
 
-In the beginning was the Word, and the Word was with God, and the Word was God. ² He was with God in the beginning. ³ Through him all things were made; without him nothing was made that has been made. ⁴ In him was life, and that life was the light of all mankind. ⁵ The light shines in the darkness, and the darkness has not overcome it.
+¹² Therefore, just as sin entered the world through one man, and death through sin, and in this way death came to all people, because all sinned—
 
-⁶ There was a man sent from God whose name was John. ⁷ He came as a witness to testify concerning that light, so that through him all might believe. ⁸ He himself was not the light; he came only as a witness to the light.
+¹³ To be sure, sin was in the world before the law was given, but sin is not charged against anyone’s account where there is no law. ¹⁴ Nevertheless, death reigned from the time of Adam to the time of Moses, even over those who did not sin by breaking a command, as did Adam, who is a pattern of the one to come.
 
-⁹ The true light that gives light to everyone was coming into the world. ¹⁰ He was in the world, and though the world was made through him, the world did not recognize him. ¹¹ He came to that which was his own, but his own did not receive him. ¹² Yet to all who did receive him, to those who believed in his name, he gave the right to become children of God— ¹³ children born not of natural descent, nor of human decision or a husband’s will, but born of God.
+¹⁵ But the gift is not like the trespass. For if the many died by the trespass of the one man, how much more did God’s grace and the gift that came by the grace of the one man, Jesus Christ, overflow to the many! ¹⁶ Nor can the gift of God be compared with the result of one man’s sin: The judgment followed one sin and brought condemnation, but the gift followed many trespasses and brought justification. ¹⁷ For if, by the trespass of the one man, death reigned through that one man, how much more will those who receive God’s abundant provision of grace and of the gift of righteousness reign in life through the one man, Jesus Christ!
 
+¹⁸ Consequently, just as one trespass resulted in condemnation for all people, so also one righteous act resulted in justification and life for all people. ¹⁹ For just as through the disobedience of the one man the many were made sinners, so also through the obedience of the one man the many will be made righteous. 
 
 ## Sermon Outline
-- Shining and speaking
-- Speaklife 321
-- Start with Jesus
-- The God you’ve never met
-- People will not see the light
-- Love overflow
-- What’s next? 
+### Two: The story of the first and last Adam
+- That One Decision Brought Disaster
+- “Sin, Death and Condemnation”
+- Why God’s Grace is Shockingly Amazing
+- Justification: Unearned, Scandalously Good
+- Jesus: Our Redeemer and Restorer
 
 ## Q&A
 Got questions or comments? Send them [here](https://tinyurl.com/SGHACQuestionsAnswers)
