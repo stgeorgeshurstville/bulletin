@@ -11,7 +11,7 @@ Heavenly Father, the giver of all good things, fill our hearts with thankfulness
 
 | Pointers | Description |
 | --- | --- |
-| From the Passage |  |
+| From the Passage |  *Jason will pray this prayer*|
 | Mission & Vision | Mission<br>*Please write your own prayer* | 
 | Global & Nation | World<br>*Please write your own prayer* |
 | Mission Partners  | Persecuted Christians<br>*Please write your own prayer* <br><br>Phil & Lil in West Asia<br>*Please write your own prayer*|
