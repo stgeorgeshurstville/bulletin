@@ -6,14 +6,21 @@ order: 7
 
 ### Discussion Questions
  
-1. How do you feel about not sin and death forced upon you? By Adam’s choice?
+How do you wish people would identify you? Or how have you tried to be identified in the past?
 
-2. How do you resolve death?
+Read Ephesians 2:1-10
 
-3. How do you find closure with your own sins? Does it work?
+From verses 1-3, how does the world, the flesh and the devil work together as a triple threat to entice us to sin? What does this result in for us? 
 
-4. What is your only hope in life and death?
+Why do we tend to be influenced by this triple threat in shaping our identity?
 
+From verses 4-7, What is the gift that God gives? How does receiving it reshape our understanding of who we are?  
+
+From this passage, why is this new identity worth waiting for, even when life feels hard? 
+
+From the passage, why can’t the good we do be part of our identity? 
+
+As our gospel series comes to end, are you convinced that this is a better story that is worth sharing?  
 
 
 
