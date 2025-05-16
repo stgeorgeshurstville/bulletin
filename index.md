@@ -11,11 +11,12 @@ title: Welcome
 
 ## The Gospel: Unlocking the Good News by counting down from 3, 2 and 1
 
-### Two: The story of the first and last Adam 
+### One: Being united with Christ
 
 
-#### Declare this with a shout of joy, proclaim it, send it forth to the end of the earth: say, 'The Lord has set his people free.' 
-##### Isaiah 48:20
+#### Lord, you have said, 'Seek my face.' My heart says to you, 'Your face, Lord, do I seek.' Do not hide your face from me.
+
+##### Psalm 27:8-9
 
 
 ---
