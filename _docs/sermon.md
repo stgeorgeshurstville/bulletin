@@ -35,7 +35,7 @@ Dear God, thank you for letting us know you. Please help us learn from your word
     - Being Influenced 
     - The triple threat (Ephesians 2:1-3)
 
-2.Who is Jesus? The formation of our Christian identities
+2. Who is Jesus? The formation of our Christian identities
     - God’s nature (Ephesians 2:4) 
     - The gift from God that is Jesus (Ephesians 2:5-6)
     - Struggling with our identity as we wait. 
