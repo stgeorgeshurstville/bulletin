@@ -23,6 +23,7 @@ Dear God, thank you for letting us know you. Please help us learn from your word
 ### Ephesians 2:1-10 (NIV)
 
 **Made Alive in Christ**
+
 ¹ As for you, you were dead in your transgressions and sins, ² in which you used to live when you followed the ways of this world and of the ruler of the kingdom of the air, the spirit who is now at work in those who are disobedient. ³ All of us also lived among them at one time, gratifying the cravings of our flesh and following its desires and thoughts. Like the rest, we were by nature deserving of wrath. ⁴ But because of his great love for us, God, who is rich in mercy, ⁵ made us alive with Christ even when we were dead in transgressions—it is by grace you have been saved. ⁶ And God raised us up with Christ and seated us with him in the heavenly realms in Christ Jesus, ⁷ in order that in the coming ages he might show the incomparable riches of his grace, expressed in his kindness to us in Christ Jesus. ⁸ For it is by grace you have been saved, through faith—and this is not from yourselves, it is the gift of God— ⁹ not by works, so that no one can boast. ¹⁰ For we are God’s handiwork, created in Christ Jesus to do good works, which God prepared in advance for us to do. 
 
 ## Sermon Outline
