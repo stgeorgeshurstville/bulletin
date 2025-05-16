@@ -20,23 +20,27 @@ order: 2
 ### Prayer
 Dear God, thank you for letting us know you. Please help us learn from your word. Help us to serve and praise you. **Amen!**
 
-### Romans 5:12-19 (NIV)
+### Ephesians 2:1-10 (NIV)
 
-¹² Therefore, just as sin entered the world through one man, and death through sin, and in this way death came to all people, because all sinned—
-
-¹³ To be sure, sin was in the world before the law was given, but sin is not charged against anyone’s account where there is no law. ¹⁴ Nevertheless, death reigned from the time of Adam to the time of Moses, even over those who did not sin by breaking a command, as did Adam, who is a pattern of the one to come.
-
-¹⁵ But the gift is not like the trespass. For if the many died by the trespass of the one man, how much more did God’s grace and the gift that came by the grace of the one man, Jesus Christ, overflow to the many! ¹⁶ Nor can the gift of God be compared with the result of one man’s sin: The judgment followed one sin and brought condemnation, but the gift followed many trespasses and brought justification. ¹⁷ For if, by the trespass of the one man, death reigned through that one man, how much more will those who receive God’s abundant provision of grace and of the gift of righteousness reign in life through the one man, Jesus Christ!
-
-¹⁸ Consequently, just as one trespass resulted in condemnation for all people, so also one righteous act resulted in justification and life for all people. ¹⁹ For just as through the disobedience of the one man the many were made sinners, so also through the obedience of the one man the many will be made righteous. 
+**Made Alive in Christ**
+¹ As for you, you were dead in your transgressions and sins, ² in which you used to live when you followed the ways of this world and of the ruler of the kingdom of the air, the spirit who is now at work in those who are disobedient. ³ All of us also lived among them at one time, gratifying the cravings of our flesh and following its desires and thoughts. Like the rest, we were by nature deserving of wrath. ⁴ But because of his great love for us, God, who is rich in mercy, ⁵ made us alive with Christ even when we were dead in transgressions—it is by grace you have been saved. ⁶ And God raised us up with Christ and seated us with him in the heavenly realms in Christ Jesus, ⁷ in order that in the coming ages he might show the incomparable riches of his grace, expressed in his kindness to us in Christ Jesus. ⁸ For it is by grace you have been saved, through faith—and this is not from yourselves, it is the gift of God— ⁹ not by works, so that no one can boast. ¹⁰ For we are God’s handiwork, created in Christ Jesus to do good works, which God prepared in advance for us to do. 
 
 ## Sermon Outline
-### Two: The story of the first and last Adam
-- That One Decision Brought Disaster
-- “Sin, Death and Condemnation”
-- Why God’s Grace is Shockingly Amazing
-- Justification: Unearned, Scandalously Good
-- Jesus: Our Redeemer and Restorer
+### One: Being united with Christ
+
+1. Who Am I? The formation of people’s modern identities.
+    - Going back 500 years 
+    - Rene Descartes 
+    - Possessive Individuality 
+    - Being Influenced 
+    - The triple threat (Ephesians 2:1-3)
+
+2.Who is Jesus? The formation of our Christian identities
+    - God’s nature (Ephesians 2:4) 
+    - The gift from God that is Jesus (Ephesians 2:5-6)
+    - Struggling with our identity as we wait. 
+    - Good works becoming our identity (Ephesians 2:8-10
+
 
 ## Q&A
 Got questions or comments? Send them [here](https://tinyurl.com/SGHACQuestionsAnswers)
