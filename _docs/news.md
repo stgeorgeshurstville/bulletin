@@ -10,26 +10,12 @@ order: 5
 
 
 ## General
-- **Church Office Returns to the Rectory**: After a year-long trial period, we've determined that the Rectory's Vestry is not the ideal location for our church office. Effective immediately, the office has returned to its original location at the Rectory. We extend our heartfelt thanks to:
-  - Pastor Bijaya and family for their generous hospitality
-  - Jen Tung and her team of volunteers for their hard work during the transition
+- **Lost Property Box:** - We now have a Lost Property Box near the church inner lawn. If you’ve misplaced something recently, please check the box. Items will be kept for two weeks. After that, unclaimed belongings will be donated to Anglicare. Thank you for helping us keep our church clean and organised.
 
-  For security and confidentiality reasons, please note the office is now accessible only to staff members. We appreciate your understanding as we make this adjustment to better serve our church family.
+- **Mathy Family Visit:** - Our mission partners, the Mathy family, will be visiting us during the week of 30/5. Let’s pray for their time with us, for rest, encouragement, and fruitful conversations as they share about God’s work in PNG.
 
-- **Ministry Support Centre Renovation Complete:** Exciting updates at our Ministry Support Centre! The space has been transformed with:
-    - Removal of dividing walls
-    - Installation of new folding doors
-    - Enhanced flexibility for various ministries
+- **Pastor Jairus Ji's Family:** We rejoice with our Mandarin Minister, Pastor Jairus Ji and his family on the safe arrival of their baby girl, born Friday morning! Please continue to keep the family in prayer as they adjust to this new season of life. Praise God for this wonderful gift!
 
-  This project was made possible through your faithful giving. If you'd like to help cover the remaining costs, donations can be made to:
-
-  **Projects Account**
-
-  BSB: 032-055
-
-  Account #: 253052
-  
-  We thank God for providing the resources and skilled workers to complete this improvement to our shared ministry space.
 
 - **Vision 2025:** Our vision for 2025 is the ‘shine for Jesus, everywhere, anytime.’ We would love for you to take a few minutes to complete the Shine survey to help give us a picture of where we are as a church [here](https://docs.google.com/forms/d/e/1FAIpQLSezXaAZ_-lCp9NhPs6MlBz5c127LD8oH5YMn1BdLzrOT2Q8Ug/viewform?usp=dialog).
 
