@@ -4,7 +4,7 @@ order: 4
 ---
 
 ## Collect
-Heavenly Father, the giver of all good things, fill our hearts with thankfulness, and grant that by your holy inspiration we may think those things that are good, and by your merciful guidance may perform them; through our Lord Jesus Christ. Amen.
+O God, the king of glory, you have exalted your only Son Jesus Christ with great triumph to your kingdom in heaven: leave us not desolate, but send your Holy Spirit to strengthen us, and exalt us to where our Saviour Christ has gone before, who lives and reigns with you and the Holy Spirit, one God, for evermore. Amen
 
 
 ## Week 4 (Fourth Sunday of the month)
