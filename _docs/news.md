@@ -25,7 +25,7 @@ order: 5
 
 ![SermonSeries1](https://github.com/stgeorgeshurstville/bulletin/blob/main/images/Notes_250516_091857_c05.jpg)
 ![SermonSeries2](https://raw.githubusercontent.com/stgeorgeshurstville/bulletin/refs/heads/main/images/Notes_250516_091845_b05.jpg)
-"For even the Son of Man did not come to be served, but to serve, and to give his life as a ransom for many." - Mark 10:45
+*"For even the Son of Man did not come to be served, but to serve, and to give his life as a ransom for many."* - Mark 10:45
 
 For our next sermon series as a church we will be exploring "The Heart of Service," For 6-week we'll be delving into the profound meaning of serving God and one another. Just as our Lord Jesus exemplified in His own life and ministry, our drive to serve stems directly from His selfless service to us.
 We will unpack the multifaceted ways we can live out this calling within our church and beyond (as detailed in the graphics). Join us as we discover how to cultivate a heart of service, reflecting the very heart of Christ, and experience the transformative power of living a life dedicated to serving God through serving others.
