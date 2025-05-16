@@ -6,7 +6,7 @@ order: 5
 ## Upcoming Dates
 
 | Date | Event | Time |
-| ----- | ----- | ----- |
+| None | ----- | ----- |
 
 
 ## General
