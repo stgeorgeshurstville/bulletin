@@ -19,13 +19,17 @@ order: 5
 
 - **Vision 2025:** Our vision for 2025 is the ‘shine for Jesus, everywhere, anytime.’ We would love for you to take a few minutes to complete the Shine survey to help give us a picture of where we are as a church [here](https://docs.google.com/forms/d/e/1FAIpQLSezXaAZ_-lCp9NhPs6MlBz5c127LD8oH5YMn1BdLzrOT2Q8Ug/viewform?usp=dialog).
 
+![Shine Survey QR code](https://github.com/stgeorgeshurstville/bulletin/blob/main/images/Notes_250516_091907_fec.jpg)
+
 **Term 2 - Sermon Series**
 
-![Screenshot 2025-05-02 212140](https://github.com/user-attachments/assets/4017bcde-d4ba-4ae4-b65b-ac74005f8425)
+![SermonSeries1](https://github.com/stgeorgeshurstville/bulletin/blob/main/images/Notes_250516_091857_c05.jpg)
+![SermonSeries2](https://raw.githubusercontent.com/stgeorgeshurstville/bulletin/refs/heads/main/images/Notes_250516_091845_b05.jpg)
+"For even the Son of Man did not come to be served, but to serve, and to give his life as a ransom for many." - Mark 10:45
 
-- The Very Person of God - 4th of May (John 1:1-14)
-- The Story of the First and Last Adam - 11th of May (Romans 5:12-19)
-- Being United with Christ - 18th of May (Ephesians 2:1-10)
+For our next sermon series as a church we will be exploring "The Heart of Service," For 6-week we'll be delving into the profound meaning of serving God and one another. Just as our Lord Jesus exemplified in His own life and ministry, our drive to serve stems directly from His selfless service to us.
+We will unpack the multifaceted ways we can live out this calling within our church and beyond (as detailed in the graphics). Join us as we discover how to cultivate a heart of service, reflecting the very heart of Christ, and experience the transformative power of living a life dedicated to serving God through serving others.
+
 
 
 **Growing in Our Welcoming:**
