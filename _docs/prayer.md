@@ -11,12 +11,17 @@ O God, the king of glory, you have exalted your only Son Jesus Christ with great
 
 | Pointers | Description |
 | --- | --- |
-| From the Passage |  *Jason will pray this prayer*|
-| Mission & Vision | Mission<br>*Please write your own prayer* | 
-| Global & Nation | World<br>*Please write your own prayer* |
-| Mission Partners  | Persecuted Christians<br>*Please write your own prayer* <br><br>Phil & Lil in West Asia<br>*Please write your own prayer*|
-| Church Ministries | CanCare:<br>Heavenly Father, we praise You for Your mercy and kindness. You understand the trials and suffering we face and are compassionate toward our weaknesses. We thank You for using CanCare to support those who are battling or have overcome cancer, along with their families and friends. Through Christ’s love, they serve and walk alongside them on this challenging journey. Lord, we ask that You continue to lead the CanCare team. Grant them wisdom and a spirit of unity as they care for this community. In just a moment, Your gracious hand has brought CanCare through 18 years of faithful ministry. As the team prepares for the 18th Anniversary Thanksgiving Dinner, we pray that You would grant them wisdom and strength. Please bless all the preparations, and may this event be a powerful testimony that brings glory to Your name.<br><br>Nursing home / Pastoral Care Teams<br>Dear Heavenly Father, You are the God of grace and hope. You understand every challenge and burden that each elderly person carries in their heart. We ask for Your mighty hand to touch their lives and bring comfort to their souls. Help them to turn their hearts fully to You, trust in You completely, and find true peace and blessings in Your presence. For those living in nursing homes or requiring special care at home, may they deeply experience the love of Christ surrounding them. Lord, use every member of the care and visitation team as a channel of Your love. May those they visit feel the joy and encouragement of genuine fellowship and the fullness of love shared among them.|
-| Groups In Church| Singles, widows and orphans<br>*Please write your own prayer*|
+| From the Passage |  *Ben will pray this prayer*|
+| Mission & Vision | For Growing Up<br>Father, help us grow deeper in our relationship with You. Give us a hunger for Your Word, a heart of prayer, and a life of obedience. May our faith mature as we walk closely with Jesus each day. Amen | 
+| Global & Nation | Nation<br>Lord of all nations, we thank You for Australia. Bless our leaders with wisdom, guide our people in justice and peace, and help us to be a nation that welcomes the vulnerable and seeks the common good. Amen |
+| Mission Partners  | Berkeley Life Centre<br>Please pray for Wayne as he comes to the end of his role as BLC Senior Pastor, that he will be able to pass on his knowledge and wisdom before retiring in July. Praise God that our new Asst. Pastor Beejai is settling in well and making a few positive changes and for wisdom as he continues to learn new things in his role.
+Praise God for the new term of scripture in schools and lunchtime group at Illawarra Sports High School.
+Give thanks for generous donations from partner churches to their food pantry, particularly important as we head into winter time. 
+Please pray for some pending applications to the government to secure funding for purchase of mission items, as well as for more churches to consider financially supporting them. 
+Pray for God to provide a new Op Shop manager who connects well with the community, the church and is able to be a witness of Jesus to those around them. Please also pray for funding to pay them.
+|
+| Church Ministries | EAL/D:<br>Heavenly Father, thank You for the opportunity to serve our community through English classes. We pray for meaningful friendships to form, and for Your love to be clearly seen through our words and actions. May this be a place of welcome, learning, and grace. Amen.<br><br>Redevelopment<br>Sovereign Lord, as we wait on grant opportunities, guide our redevelopment process with wisdom and unity. Provide the resources we need in Your perfect timing. May all we build reflect Your mission and serve generations to come. Amen. |
+| Groups In Church| People with disabilities<br>Lord, You created every person with value and purpose. We pray for those living with disabilities—may they experience dignity, belonging, and Your love. Help our church be inclusive, welcoming, and full of grace. Amen.|
 | Special Items & Events |  |
 
 
