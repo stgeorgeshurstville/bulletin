@@ -20,11 +20,11 @@ order: 5
 
 - **Vision 2025:** Our vision for 2025 is the ‘shine for Jesus, everywhere, anytime.’ We would love for you to take a few minutes to complete the Shine survey to help give us a picture of where we are as a church [here](https://docs.google.com/forms/d/e/1FAIpQLSezXaAZ_-lCp9NhPs6MlBz5c127LD8oH5YMn1BdLzrOT2Q8Ug/viewform?usp=dialog).
 
-![Shine Survey QR code](https://github.com/stgeorgeshurstville/bulletin/blob/main/images/Notes_250516_091907_fec.jpg)
+![Shine Survey QR code](https://raw.githubusercontent.com/stgeorgeshurstville/bulletin/refs/heads/main/images/Notes_250516_091907_fec.jpg)
 
 **Term 2 - Sermon Series**
 
-![SermonSeries1](https://github.com/stgeorgeshurstville/bulletin/blob/main/images/Notes_250516_091857_c05.jpg)
+![SermonSeries1](https://raw.githubusercontent.com/stgeorgeshurstville/bulletin/refs/heads/main/images/Notes_250516_091857_c05.jpg)
 ![SermonSeries2](https://raw.githubusercontent.com/stgeorgeshurstville/bulletin/refs/heads/main/images/Notes_250516_091845_b05.jpg)
 *"For even the Son of Man did not come to be served, but to serve, and to give his life as a ransom for many."* - Mark 10:45
 
