@@ -9,15 +9,14 @@ title: Welcome
 [comment]: ##### "where the sentence came from, e.g. Psalm 1:1"  
 [comment]: ----------------------------------------------------  
 
-## The Gospel: Unlocking the Good News by counting down from 3, 2 and 1
+## The Heart of Service
 
-### One: Being united with Christ
+### The Heart of Service is our faith lived out
 
 
-#### Lord, you have said, 'Seek my face.' My heart says to you, 'Your face, Lord, do I seek.' Do not hide your face from me.
+#### God's love has been poured out into our hearts through the Holy Spirit who has been given to us. 
 
-##### Psalm 27:8-9
-
+##### Romans 5.5
 
 ---
 - We are gathering in person! For people who can’t gather in person, you can watch online [here](https://stgeorgeshurstville.org.au/sunday-english-online)
