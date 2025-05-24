@@ -11,12 +11,8 @@ Almighty God, who taught the hearts of your faithful people by sending to them t
 
 | Pointers | Description |
 | --- | --- |
-| From the Passage | Heavenly Father,
- We bow before You, the God from whom every family in heaven and on earth derives its name.
- We thank You for Your mercy—so rich, so undeserved—that You have poured out on us through Jesus Christ.
- You have not treated us as we deserve.
- You have not measured us by our usefulness or success, but by the infinite worth of Your Son who gave Himself for us.
- And in Him, You have declared us loved, forgiven, and chosen.
+| From the Passage | Heavenly Father, We bow before You, the God from whom every family in heaven and on earth derives its name. We thank You for Your mercy—so rich, so undeserved—that You have poured out on us through Jesus Christ.
+ You have not treated us as we deserve. You have not measured us by our usefulness or success, but by the infinite worth of Your Son who gave Himself for us. And in Him, You have declared us loved, forgiven, and chosen.
 
 Strengthen us now, we pray, with power through Your Spirit in our inner being,
  so that Christ may dwell in our hearts through faith.
