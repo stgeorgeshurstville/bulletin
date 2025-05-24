@@ -5,22 +5,37 @@ order: 7
 
 
 ### Discussion Questions
- 
-- How do you wish people would identify you? Or how have you tried to be identified in the past?
 
-Read Ephesians 2:1-10
+**Big Idea**
+Christians serve (it’s like fish swims, or breathing). It’s who we are. Ministry is part of the Christlian life. Christlife life is a life of worship. Worship is a faith and love response to the mercy of God. 
 
-- From verses 1-3, how does the world, the flesh and the devil work together as a triple threat to entice us to sin? What does this result in for us? 
+1. In your experience, how do people normally see the ‘problem of ministry’? 
 
-- Why do we tend to be influenced by this triple threat in shaping our identity?
+How are people normally motivated to serve or do ministry? 
 
-- From verses 4-7, What is the gift that God gives? How does receiving it reshape our understanding of who we are?  
+**Please read Romans 12:1-3**
+2. To what does Paul compare the Christian life v.1? 
 
-- From this passage, why is this new identity worth waiting for, even when life feels hard? 
+What do you notice about this comparison? 
 
-- From the passage, why can’t the good we do be part of our identity? 
+3. What is the motivation for the Christian life v.1?
 
-- As our gospel series comes to end, are you convinced that this is a better story that is worth sharing?  
+We often think Christian ministry is ‘pay back’. We owe God for what he’s done. What might be unhelpful (even wrong) about this? If Christian ministry were not ‘pay back’ then what is it? 
+
+4. What is the one thing that Christian are to when offering themselves as a living sacrifice v.1? 
+
+What is the pattern (of thinking)  of the world? 
+
+What is the pattern of thinking of the Gospel? 
+
+5. How do we think about ourselves according to the pattern of the world and according to the Gospel? 
+
+Is this saying that we don’t matter? We are to think nothing of ourselves? What could this be saying instead? 
+
+6. How is your thinking about your self, God, Jesus, others reflected in your approach to christian ministry? 
+
+How can the Gospel transform your thinking and therefore your ministry? 
+
 
 
 
