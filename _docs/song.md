@@ -4,15 +4,15 @@ order: 1
 ---
 
 ## 9:30am
-1. 10000 Reasons
-2. Amazing Grace (My Chains Are Gone)
-3. Only By Grace
-4. Servants of the Gospel
+1. No Other Name
+2. Amazing Love
+3. The Heart of Worship
+4. Consider Chrsit
    
 ## 4:00pm
-1. This is Amazing Grace
-2. Before the Throne of God above
-3. Yet not I but through Christ in me
-4. His Mercy is More
+1. Here We Stand
+2. In Christ Alone
+3. By Faith
+4. God is for us
 
 Check out the church spotify playlist [here](https://open.spotify.com/playlist/3gh0ZKXkJBDbNEnZqJJDXj?si=0908aa3f87544643)
