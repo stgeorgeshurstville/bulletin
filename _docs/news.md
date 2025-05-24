@@ -11,11 +11,30 @@ order: 5
 
 
 ## General
+- **Congregational Meeting for 9:30 English** - Join us for an important congregational meeting on Saturday, June 8th, at 11:00 AM at 124 Forest Road. 
+
 - **Lost Property Box:** - We now have a Lost Property Box near the church inner lawn. If you’ve misplaced something recently, please check the box. Items will be kept for two weeks. After that, unclaimed belongings will be donated to Anglicare. Thank you for helping us keep our church clean and organised.
 
 - **Mathy Family Visit:** - Our mission partners, the Mathy family, will be visiting us during the week of 30/5. Let’s pray for their time with us, for rest, encouragement, and fruitful conversations as they share about God’s work in PNG.
 
 - **Pastor Jairus Ji's Family:** We rejoice with our Mandarin Minister, Pastor Jairus Ji and his family on the safe arrival of their baby girl, born Friday morning! Please continue to keep the family in prayer as they adjust to this new season of life. Praise God for this wonderful gift!
+
+- **New Church Gardening Ministry — Serve God Through Creation Care**
+God’s creation sings His praise (Psalm 96:12) — and we’re invited to join in!
+Our new Gardening Ministry is an opportunity to:
+  - Worship God through caring for His creation
+  - Share His love by making our church grounds beautiful and welcoming
+  - Build community by serving together
+
+We’ll be working on projects such as:
+  - Planting new flowers and garden beds
+  - Improving pathways
+  - Seasonal beautification initiatives
+
+This ministry is focused on creative, joyful service — no routine mowing or weeding.
+First Workday: Saturday, 14 June 2025 at 9:00am
+ Contact: Brian Tung | brian.tung@stgeorgeshurstville.org.au
+"Let everything that has breath praise the Lord!" – Psalm 150:6
 
 
 - **Vision 2025:** Our vision for 2025 is the ‘shine for Jesus, everywhere, anytime.’ We would love for you to take a few minutes to complete the Shine survey to help give us a picture of where we are as a church [here](https://docs.google.com/forms/d/e/1FAIpQLSezXaAZ_-lCp9NhPs6MlBz5c127LD8oH5YMn1BdLzrOT2Q8Ug/viewform?usp=dialog).
