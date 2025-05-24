@@ -14,6 +14,7 @@ Christians serve (it’s like fish swims, or breathing). It’s who we are. Mini
   How are people normally motivated to serve or do ministry? 
 
 **Please read Romans 12:1-3**
+
 2. To what does Paul compare the Christian life v.1? 
 
   What do you notice about this comparison? 
