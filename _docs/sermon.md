@@ -25,7 +25,7 @@ Dear God, thank you for letting us know you. Please help us learn from your word
 **Made Alive in Christ**
 ¹ Therefore, I urge you, brothers and sisters, in view of God’s mercy, to offer your bodies as a living sacrifice, holy and pleasing to God—this is your true and proper worship. ² Do not conform to the pattern of this world, but be transformed by the renewing of your mind. Then you will be able to test and approve what God’s will is—his good, pleasing and perfect will. 
 
-**Humble Service in the Body of Christ **
+**Humble Service in the Body of Christ**
 ³ For by the grace given me I say to every one of you: Do not think of yourself more highly than you ought, but rather think of yourself with sober judgment, in accordance with the faith God has distributed to each of you.
 
 ## Sermon Outline
