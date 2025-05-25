@@ -23,7 +23,6 @@ Dear God, thank you for letting us know you. Please help us learn from your word
 ### Romans 12:1-3(NIV 11)
 
 **Made Alive in Christ**
-
 ¹ Therefore, I urge you, brothers and sisters, in view of God’s mercy, to offer your bodies as a living sacrifice, holy and pleasing to God—this is your true and proper worship. ² Do not conform to the pattern of this world, but be transformed by the renewing of your mind. Then you will be able to test and approve what God’s will is—his good, pleasing and perfect will. 
 
 **Humble Service in the Body of Christ **
