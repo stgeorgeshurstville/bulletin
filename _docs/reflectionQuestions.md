@@ -11,7 +11,7 @@ order: 7
 
 2. What’s more important in Christian ministry-  task or people; character or competency? 
 
-Please read 1 Timothy 4
+Please read 1 Timothy 4 
 3. Timothy is a ‘minister’.  What is the context of his ministry? What is his responsibility? What is the goal of his ministry? 
 
 How are we different to Timothy? How are we the same? 
