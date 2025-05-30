@@ -11,7 +11,7 @@ title: Welcome
 
 ## The Heart of Service
 
-### The Heart of Service is our faith lived out
+### The Heart of Service is Holy Worship
 
 
 #### God's love has been poured out into our hearts through the Holy Spirit who has been given to us. 
