@@ -6,7 +6,6 @@ order: 7
 
 ### Discussion Questions
 
-**Big Idea**
 1. Share how your week was as a living Sacrifice? How has you consciously tried to let the Gospel shape your mind? 
 
 2. What’s more important in Christian ministry-  task or people; character or competency? 
