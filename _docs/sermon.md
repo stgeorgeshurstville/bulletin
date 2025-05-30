@@ -20,24 +20,21 @@ order: 2
 ### Prayer
 Dear God, thank you for letting us know you. Please help us learn from your word. Help us to serve and praise you. **Amen!**
 
-### Romans 12:1-3(NIV 11)
+### 1 Timothy 4:11-16 (NIV11)
 
-**Made Alive in Christ**
-¹ Therefore, I urge you, brothers and sisters, in view of God’s mercy, to offer your bodies as a living sacrifice, holy and pleasing to God—this is your true and proper worship. ² Do not conform to the pattern of this world, but be transformed by the renewing of your mind. Then you will be able to test and approve what God’s will is—his good, pleasing and perfect will. 
+¹¹ Command and teach these things. ¹² Don’t let anyone look down on you because you are young, but set an example for the believers in speech, in conduct, in love, in faith and in purity. ¹³ Until I come, devote yourself to the public reading of Scripture, to preaching and to teaching. ¹⁴ Do not neglect your gift, which was given you through prophecy when the body of elders laid their hands on you.
+¹⁵ Be diligent in these matters; give yourself wholly to them, so that everyone may see your progress. ¹⁶ Watch your life and doctrine closely. Persevere in them, because if you do, you will save both yourself and your hearers.
 
-**Humble Service in the Body of Christ**
-³ For by the grace given me I say to every one of you: Do not think of yourself more highly than you ought, but rather think of yourself with sober judgment, in accordance with the faith God has distributed to each of you.
 
 ## Sermon Outline
-### The Heart of Service is our faith lived out
+### The Heart of Service is Holy Worship
 
-- The Problem of Ministry 
-- Ministry is the whole of life 
-- 5 things about the Surrendered life 
-- Think different 
-- Worship and Worth 
-- The Problem of Ministry 
-
+- Introduction - the patterns of ministry 
+- Ministry is……
+- How to fight
+- Ministry is personal 
+- Conclusions  
+****
 
 
 ## Q&A
