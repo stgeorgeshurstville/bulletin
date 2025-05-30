@@ -14,9 +14,9 @@ title: Welcome
 ### The Heart of Service is Holy Worship
 
 
-#### God's love has been poured out into our hearts through the Holy Spirit who has been given to us. 
+#### Blessed be God the Father and His only begotten Son and the Holy Spirit; for He has shown that He loves us. 
 
-##### Romans 5.5
+##### Ephesians 2.17-18
 
 ---
 - We are gathering in person! For people who can’t gather in person, you can watch online [here](https://stgeorgeshurstville.org.au/sunday-english-online)
