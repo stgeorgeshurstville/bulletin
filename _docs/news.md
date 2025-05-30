@@ -11,13 +11,15 @@ order: 5
 
 
 ## General
-- **Congregational Meeting for 9:30 English** - Join us for an important congregational meeting on Saturday, June 8th, at 11:00 AM at 124 Forest Road. 
+- **Congregational Meeting for 9:30 English** - Join us for an important congregational meeting on Saturday, June 8th, at 11:00 AM at 124 Forest Road.
+
+We're excited to discuss the mission and logistics of our upcoming church move! From the start of July, we'll be holding our services at Hurstville Public School. This meeting is a wonderful opportunity to hear all the details, ask questions, and contribute as we embark on this new chapter together. Everyone is welcome! We'll also have a G-rated movie for children so that both parents are able to attend. 
 
 - **Lost Property Box:** - We now have a Lost Property Box near the church inner lawn. If you’ve misplaced something recently, please check the box. Items will be kept for two weeks. After that, unclaimed belongings will be donated to Anglicare. Thank you for helping us keep our church clean and organised.
 
 - **Mathy Family Visit:** - Our mission partners, the Mathy family, will be visiting us during the week of 30/5. Let’s pray for their time with us, for rest, encouragement, and fruitful conversations as they share about God’s work in PNG.
 
-- **Pastor Jairus Ji's Family:** We rejoice with our Mandarin Minister, Pastor Jairus Ji and his family on the safe arrival of their baby girl, born Friday morning! Please continue to keep the family in prayer as they adjust to this new season of life. Praise God for this wonderful gift!
+- **Pastor Jairus Ji's Family:** We rejoice with our Mandarin Minister, Pastor Jairus Ji and his family on the safe arrival of their baby girl, born last Friday morning! Please continue to keep the family in prayer as they adjust to this new season of life. Praise God for this wonderful gift!
 
 - **New Church Gardening Ministry — Serve God Through Creation Care**
 God’s creation sings His praise (Psalm 96:12) — and we’re invited to join in!
@@ -48,6 +50,7 @@ First Workday: Saturday, 14 June 2025 at 9:00am
 *"For even the Son of Man did not come to be served, but to serve, and to give his life as a ransom for many."* - Mark 10:45
 
 For our next sermon series as a church we will be exploring "The Heart of Service," For 6-week we'll be delving into the profound meaning of serving God and one another. Just as our Lord Jesus exemplified in His own life and ministry, our drive to serve stems directly from His selfless service to us.
+
 We will unpack the multifaceted ways we can live out this calling within our church and beyond (as detailed in the graphics). Join us as we discover how to cultivate a heart of service, reflecting the very heart of Christ, and experience the transformative power of living a life dedicated to serving God through serving others.
 
 
