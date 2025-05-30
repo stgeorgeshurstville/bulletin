@@ -7,35 +7,26 @@ order: 7
 ### Discussion Questions
 
 **Big Idea**
-Christians serve (it’s like fish swims, or breathing). It’s who we are. Ministry is part of the Christlian life. Christlife life is a life of worship. Worship is a faith and love response to the mercy of God. 
+1. Share how your week was as a living Sacrifice? How has you consciously tried to let the Gospel shape your mind? 
 
-1. In your experience, how do people normally see the ‘problem of ministry’? 
+2. What’s more important in Christian ministry-  task or people; character or competency? 
 
-  How are people normally motivated to serve or do ministry? 
+Please read 1 Timothy 4
+3. Timothy is a ‘minister’.  What is the context of his ministry? What is his responsibility? What is the goal of his ministry? 
 
-**Please read Romans 12:1-3**
+How are we different to Timothy? How are we the same? 
 
-2. To what does Paul compare the Christian life v.1? 
+What is the goal of our ministries? 
 
-  What do you notice about this comparison? 
+4. What would make Timothy a ‘good’ minister? What are the things that he is to ‘do’ or ‘be’? 
 
-3. What is the motivation for the Christian life v.1?
+What is ‘doctrine’? 
 
-  We often think Christian ministry is ‘pay back’. We owe God for what he’s done. What might be unhelpful (even wrong)   about this? If Christian ministry were not ‘pay back’ then what is it? 
+What is Timothy to be an example of? Why? 
 
-4. What is the one thing that Christian are to when offering themselves as a living sacrifice v.1? 
+What is Timothy to watch closely? Why? 
 
-  What is the pattern (of thinking)  of the world? 
-
-  What is the pattern of thinking of the Gospel? 
-
-5. How do we think about ourselves according to the pattern of the world and according to the Gospel? 
-
-  Is this saying that we don’t matter? We are to think nothing of ourselves? What could this be saying instead? 
-
-6. How is your thinking about your self, God, Jesus, others reflected in your approach to christian ministry? 
-
-  How can the Gospel transform your thinking and therefore your ministry? 
+5. ‘Godliness and character is more important than giftedness.’ How does this challenge the way we think and act in ministry? And how does this change our ministry? 
 
 
 
