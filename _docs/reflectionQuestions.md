@@ -3,46 +3,17 @@ title: Discussion Questions
 order: 7
 ---
 
+### Big idea
+**Ministry is not about gifts or giftedness. Ministry is love in action. Love gives as well as receives.**
 
 ### Discussion Questions
 
-1. Share how your week was as a living Sacrifice? How has you consciously tried to let the Gospel shape your mind? 
+1. What gifts do you think God has given you? if you're comfortable, ask the people around you. How are you using these gifts?
+Please read 1 Cor 12  
+2. This chapter isn't really about gifts. but about spirituality. How might the Corinthians think about spirituality and gifts? 
+   * How do we think about spirituality and gifts?
+   * What are gifts? Are they different from natural talents or roles? If so, how?
+   * What is the relationship between gifts and ministry and service? 
+3. According to Paul, how should we think about spirituality and gifts instead?  why? What is the relationship between gifts and love? 
 
-2. What’s more important in Christian ministry-  task or people; character or competency? 
-
-Please read 1 Timothy 4 
-
-3. Timothy is a ‘minister’.  What is the context of his ministry? What is his responsibility? What is the goal of his   ministry? 
-
-  How are we different to Timothy? How are we the same? 
-
-  What is the goal of our ministries? 
-
-4. What would make Timothy a ‘good’ minister? What are the things that he is to ‘do’ or ‘be’? 
-
-  What is ‘doctrine’? 
-
-  What is Timothy to be an example of? Why? 
-
-  What is Timothy to watch closely? Why? 
-
-5. ‘Godliness and character is more important than giftedness.’ How does this challenge the way we think and act in       ministry? And how does this change our ministry? 
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
+How might the ideas of performance and economic utility and productivity, consumerism and individualism shaped our thinking about gifts and ministry? How does the gospel challenge and correct this? 
