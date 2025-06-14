@@ -4,14 +4,25 @@ order: 4
 ---
 
 ## Collect
-Almighty God, who taught the hearts of your faithful people by sending to them the light of your Holy Spirit: grant to us by the same Spirit to have a right judgment in all things and always to rejoice in his holy comfort; through the merits of Christ Jesus our Saviour, who lives and reigns with you and the Holy Spirit, one God, now and forever Amen.
+Lord God, the unfailing helper and guide of those whom you bring up in your steadfast fear and love, keep us, we pray, under the protection of your good providence, and give us a continual reverence and love for your holy name; through Jesus Christ our Lord. Amen.
 
 
-## Week 4 (Fourth Sunday of the month)
+## Week G
 
 | Pointers | Description |
 | --- | --- |
-| From the Passage | You are rich in mercy. You have loved us with a measureless love in Jesus. Thank you that we have come to know this love through your Word—the message of the gospel. Thank you for its sufficiency and power: able to give life, shape minds, and nourish our souls. Thank you that the Word which gave us life can give life to others. And thank you that you allow us the privilege of bringing this Word to others. We know that your church is in constant danger—from within and without. Threatened by the patterns of worldly thinking, by error, falsehood, hypocrisy and by the schemes and deception of our Enemy. Yet you do not leave us unprotected. Thank you that you are at work by your Spirit, through your Word, to guard and keep your flock. Thank you for giving your church the gift of pastors, teachers, evangelists, parents, and spiritual aunties and uncles. Keep us from treating ministry as a duty, performance, or just a rostered task. Help us to see it instead as part of our faith-filled response to your mercy—worship that consumes our whole lives. May we be continually shaped by your Word. Let all that we do—corporately and individually—be in conformity with sound doctrine. May your Word ring out from St George’s with clarity and conviction. Help us give ourselves fully to this Word through lives of godliness. May we pay close attention to both our life and our doctrine. We pray especially for those given the task of leadership: May their progress in Christ be evident. And may your people look to these examples and follow them—as our leaders follow Christ.In the name of Jesus, our Saviour, Shepherd, and Teacher—Amen.|
+| From the Passage | Gracious and loving God,
+
+Thank you that you are not a distant force or cold power, but a living God who speaks and gives and loves. Thank you for revealing yourself not only in wisdom and strength, but in weakness and suffering, in Jesus— your Son who served us by giving his life for us. We praise you for your Spirit, by whom we are able to say, “Jesus is Lord,” and without whom we could not come to you.
+
+For those of us who trust in Christ, we thank you for drawing us to yourself—not because of our effort or worth, but purely by your grace.
+Yet we confess:  Too often, we have made your gifts all about us. We compare and compete. We hoard what we have and withhold help. In our pride, we’ve refused to ask for help or admit our need of others. We’ve mistaken gifts for godliness, and ministry for self-worth.  Father, forgive us.
+
+Thank you for the diversity of gifts you give by your Spirit.  Thank you that we are not all the same, and that through our differences you create a community that can only exist by your grace. Help us to use what we’ve been given in love—for the good of others. Teach us not only to serve, but also to receive—to let others love us with the gifts you’ve given them.  Keep us pointing not to ourselves, but to your grace, to your Son, and to your steadfast love.
+
+And for those here who are still searching, unsure or new to all this—may they see something of you today:  Not just in words, but in lives shaped by grace. May they come to know you—not as a distant God of logic or force, but the God who draws near in love.
+
+In Jesus’ name we pray, Amen.|
 | Mission & Vision | **For Growing Deep**<br>Father, help us grow deeper in our relationship with You. Give us a hunger for Your Word, a heart of prayer, and a life of obedience. May our faith mature as we walk closely with Jesus each day. Amen | 
 | Global & Nation | **Government**<br>Lord of all governments, we thank You for the governance of Australia. Bless our leaders with wisdom, guide our people in justice and peace, and help us to be a nation that serves you accordingly. Amen |
 | Mission Partners  | **Mathys and PNG**<br>General info: There are >800 languages spoken in Papua New Guinea, but only 13 have complete bibles. Calvin and Ruth work alongside Papua New Guineans in roles that support the ongoing ministry of bible translation. Calvin is an aircraft maintenance engineer, in order to provide transport and logistics support for bible translators. Ruth provides training for the bible translators, so that locals can take the lead in this work. [Summary of March 2025 newsletter, however await their live updates on the day!] Currently on home assignment in Melbourne. Give thanks for being able to enjoy a family holiday. Pray for them as they present and speak at churches. Pray for God to continue providing financial partnerships as they determine a new field budget and aim to return to PNG in July. Pray that they can trust God to be content and be good stewards of his generous provision. Pray for their children (Jakob as he settles into new student accommodation, and for Andreas/Petra as they continue schooling online) |
