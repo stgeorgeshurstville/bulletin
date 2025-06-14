@@ -11,12 +11,12 @@ title: Welcome
 
 ## The Heart of Service
 
-### The Heart of Service is Holy Worship
+### The Heart of Service is about building up the church
 
 
-#### Blessed be God the Father and His only begotten Son and the Holy Spirit; for He has shown that He loves us. 
+#### The Lord is the strength of his people, he is the saving refuge of his anointed. O save your people, and bless your heritage; be their shepherd and carry them forever. 
 
-##### Ephesians 2.17-18
+##### Psalm 28:8-9
 
 ---
 - We are gathering in person! For people who can’t gather in person, you can watch online [here](https://stgeorgeshurstville.org.au/sunday-english-online)
