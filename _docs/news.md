@@ -11,8 +11,13 @@ order: 5
 
 
 ## General
-- **Congregational Meeting for 9:30 English** - Join us for an important congregational meeting on Saturday, June 8th, at 11:00 AM at 124 Forest Road.
-
+- **Life quarterly** - Jfor the latest news of what’s happening at St George’s, please grab a copy or read online from https://stgeorgeshurstville.org.au/life. This edition includes:
+     * The stories of Jessica (4pm Mandarin) and Daniel (English 4pm) who have become Christians recently and will be baptised in June.
+     * A young person’s reflection of KYCK.
+     * Getting started on mission.
+     * Changes to the property.
+     * Mission to Hurstville Public School.  
+ 
 We're excited to discuss the mission and logistics of our upcoming church move! From the start of July, we'll be holding our services at Hurstville Public School. This meeting is a wonderful opportunity to hear all the details, ask questions, and contribute as we embark on this new chapter together. Everyone is welcome! We'll also have a G-rated movie for children so that both parents are able to attend. 
 
 - **Lost Property Box:** - We now have a Lost Property Box near the church inner lawn. If you’ve misplaced something recently, please check the box. Items will be kept for two weeks. After that, unclaimed belongings will be donated to Anglicare. Thank you for helping us keep our church clean and organised.
