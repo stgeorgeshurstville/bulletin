@@ -11,17 +11,11 @@ Lord God, the unfailing helper and guide of those whom you bring up in your stea
 
 | Pointers | Description |
 | --- | --- |
-| From the Passage | Gracious and loving God,
-
-Thank you that you are not a distant force or cold power, but a living God who speaks and gives and loves. Thank you for revealing yourself not only in wisdom and strength, but in weakness and suffering, in Jesus— your Son who served us by giving his life for us. We praise you for your Spirit, by whom we are able to say, “Jesus is Lord,” and without whom we could not come to you.
-
+| From the Passage | Gracious and loving God, Thank you that you are not a distant force or cold power, but a living God who speaks and gives and loves. Thank you for revealing yourself not only in wisdom and strength, but in weakness and suffering, in Jesus— your Son who served us by giving his life for us. We praise you for your Spirit, by whom we are able to say, “Jesus is Lord,” and without whom we could not come to you.
 For those of us who trust in Christ, we thank you for drawing us to yourself—not because of our effort or worth, but purely by your grace.
 Yet we confess:  Too often, we have made your gifts all about us. We compare and compete. We hoard what we have and withhold help. In our pride, we’ve refused to ask for help or admit our need of others. We’ve mistaken gifts for godliness, and ministry for self-worth.  Father, forgive us.
-
 Thank you for the diversity of gifts you give by your Spirit.  Thank you that we are not all the same, and that through our differences you create a community that can only exist by your grace. Help us to use what we’ve been given in love—for the good of others. Teach us not only to serve, but also to receive—to let others love us with the gifts you’ve given them.  Keep us pointing not to ourselves, but to your grace, to your Son, and to your steadfast love.
-
 And for those here who are still searching, unsure or new to all this—may they see something of you today:  Not just in words, but in lives shaped by grace. May they come to know you—not as a distant God of logic or force, but the God who draws near in love.
-
 In Jesus’ name we pray, Amen.|
 | Mission & Vision | **For Growing Deep**<br>Father, help us grow deeper in our relationship with You. Give us a hunger for Your Word, a heart of prayer, and a life of obedience. May our faith mature as we walk closely with Jesus each day. Amen | 
 | Global & Nation | **Government**<br>Lord of all governments, we thank You for the governance of Australia. Bless our leaders with wisdom, guide our people in justice and peace, and help us to be a nation that serves you accordingly. Amen |
