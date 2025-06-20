@@ -11,12 +11,13 @@ title: Welcome
 
 ## The Heart of Service
 
-### The Heart of Service is about building up the church
+### The Heart of Service is God’s glory in my weakness
 
 
-#### The Lord is the strength of his people, he is the saving refuge of his anointed. O save your people, and bless your heritage; be their shepherd and carry them forever. 
 
-##### Psalm 28:8-9
+#### If you, O Lord, should mark iniquity, Lord, who could stand? But there is forgivneness with you, God of Israel
+
+##### Psalm 130:3-4
 
 ---
 - We are gathering in person! For people who can’t gather in person, you can watch online [here](https://stgeorgeshurstville.org.au/sunday-english-online)
