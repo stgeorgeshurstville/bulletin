@@ -29,6 +29,7 @@ Grace and peace
 
 
 **Park & Ride**
+
 Dear Church Family,
 To better serve our families, elderly, and those with mobility needs, we’re introducing a ‘Drop and Ride’ system from the first Sunday of July. Here’s how it will work:
 
@@ -47,6 +48,7 @@ For questions, please contact Brian Tung.
 
 
 **Life quarterly**
+
  For the latest news of what’s happening at St George’s, please grab a copy or read online from https://stgeorgeshurstville.org.au/life. This edition includes:
 The stories of Jessica (4pm Mandarin) and Daniel (English 4pm) who have become Christians recently and will be baptised in June. 
 - A young person’s reflection of KYCK. 
@@ -56,10 +58,12 @@ The stories of Jessica (4pm Mandarin) and Daniel (English 4pm) who have become C
 
 
 **Lost Property Box**
+
 We now have a Lost Property Box near the church inner lawn. If you’ve misplaced something recently, please check the box. Items will be kept for two weeks. After that, unclaimed belongings will be donated to Anglicare. Thank you for helping us keep our church clean and organised.
 
 
 **Packing Down: Our Final Service at Forest Road**
+
 Our time at 124 Forest Road is coming to an end, with our final service at this location scheduled for Sunday, June 29th. After the service, we'd love for everyone who is able to stay behind and help us pack down the space. We anticipate this will only take about one hour of your time. To show our appreciation, $8 lunch will be available for all who'd like to stay for fellowship afterwards from 12pm. Let's work together to make this transition smooth and efficient!
 
 **Vision 2025:** 
