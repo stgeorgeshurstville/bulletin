@@ -25,6 +25,8 @@ Thank you for your generosity in spirit and action. If you feel led to contribut
 
 Grace and peace
 
+![Cleaning Up](https://raw.githubusercontent.com/stgeorgeshurstville/bulletin/main/images/cleaningup.png)
+![Cleaning Up](https://raw.githubusercontent.com/stgeorgeshurstville/bulletin/main/images/cleaningup2.png)
 
 **Park & Ride:**
 Dear Church Family, to better serve our families, elderly, and those with mobility needs, we’re introducing a ‘Drop and Ride’ system from the first Sunday of July. Here’s how it will work:
@@ -32,12 +34,12 @@ Dear Church Family, to better serve our families, elderly, and those with mobili
 - Temporary Parking Zone:
 A clearly marked area (equivalent to 3 car spaces) will be reserved for short stops (max 5 minutes).
 This will be available both at church and Hurstville Public School (HPS).
-How to Use It:
+- How to Use It:
 Drivers: Enter the area, make a U-turn, and park facing South (Forest Rd) for easier exit.
-Who It’s For:
+- Who It’s For:
 Parents/Carers dropping off children for the NewGen program.
 Carers assisting elderly members or others with mobility challenges.
-A Call to Love:
+- A Call to Love:
 We urge everyone to respect this space and love others practically —so those who need it most can access it safely and efficiently.
 
 For questions, please contact Brian Tung.
