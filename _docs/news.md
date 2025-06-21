@@ -58,6 +58,7 @@ We now have a Lost Property Box near the church inner lawn. If you’ve misplace
 
 **Packing Down- Our Final Service at Forest Road:**
 Our time at 124 Forest Road is coming to an end, with our final service at this location scheduled for Sunday, June 29th. After the service, we'd love for everyone who is able to stay behind and help us pack down the space. We anticipate this will only take about one hour of your time. To show our appreciation, $8 lunch will be available for all who'd like to stay for fellowship afterwards from 12pm. Let's work together to make this transition smooth and efficient!
+![Church Parking](https://raw.githubusercontent.com/stgeorgeshurstville/bulletin/main/images/pngchurch.png)
 
 **Vision 2025:** 
 Our vision for 2025 is the ‘shine for Jesus, everywhere, anytime.’ We would love for you to take a few minutes to complete the Shine survey to help give us a picture of where we are as a church [here](https://docs.google.com/forms/d/e/1FAIpQLSezXaAZ_-lCp9NhPs6MlBz5c127LD8oH5YMn1BdLzrOT2Q8Ug/viewform?usp=dialog).
