@@ -12,7 +12,7 @@ order: 5
 
 ## General
 **Support for the Gospel in Katmandu**
-Dear Church Family,  
+# Dear Church Family,  
 Being a Christian in Nepal is challenging. Churches have no legal status, cannot own property, and often face opposition. Recently, the landlord of *Omega Church* (our Anglican brothers and sisters in Kathmandu) demanded they vacate their meeting place, refusing to host any Christian activities.  
 
 In response, Omega Church is raising funds to construct a temporary building so they can continue worshiping and sharing the Gospel. The estimated cost is *8 Lakhs (around AUD 10,000)*, and the congregation is sacrificially giving toward this need.  
