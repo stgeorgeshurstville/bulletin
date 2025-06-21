@@ -11,10 +11,8 @@ order: 5
 
 
 ## General
-**Support for the Gospel in Katmandu**
-
-Dear Church Family,  
-Being a Christian in Nepal is challenging. Churches have no legal status, cannot own property, and often face opposition. Recently, the landlord of *Omega Church* (our Anglican brothers and sisters in Kathmandu) demanded they vacate their meeting place, refusing to host any Christian activities.  
+**Support for the Gospel in Katmandu:** 
+Dear Church Family, being a Christian in Nepal is challenging. Churches have no legal status, cannot own property, and often face opposition. Recently, the landlord of *Omega Church* (our Anglican brothers and sisters in Kathmandu) demanded they vacate their meeting place, refusing to host any Christian activities.  
 
 In response, Omega Church is raising funds to construct a temporary building so they can continue worshiping and sharing the Gospel. The estimated cost is *8 Lakhs (around AUD 10,000)*, and the congregation is sacrificially giving toward this need.  
 
@@ -28,12 +26,10 @@ Thank you for your generosity in spirit and action. If you feel led to contribut
 Grace and peace
 
 
-**Park & Ride**
+**Park & Ride:**
+Dear Church Family, to better serve our families, elderly, and those with mobility needs, we’re introducing a ‘Drop and Ride’ system from the first Sunday of July. Here’s how it will work:
 
-Dear Church Family,
-To better serve our families, elderly, and those with mobility needs, we’re introducing a ‘Drop and Ride’ system from the first Sunday of July. Here’s how it will work:
-
-Temporary Parking Zone:
+- Temporary Parking Zone:
 A clearly marked area (equivalent to 3 car spaces) will be reserved for short stops (max 5 minutes).
 This will be available both at church and Hurstville Public School (HPS).
 How to Use It:
@@ -47,9 +43,8 @@ We urge everyone to respect this space and love others practically —so those w
 For questions, please contact Brian Tung.
 
 
-**Life quarterly**
-
- For the latest news of what’s happening at St George’s, please grab a copy or read online from https://stgeorgeshurstville.org.au/life. This edition includes:
+**Life quarterly:**
+For the latest news of what’s happening at St George’s, please grab a copy or read online from https://stgeorgeshurstville.org.au/life. This edition includes:
 The stories of Jessica (4pm Mandarin) and Daniel (English 4pm) who have become Christians recently and will be baptised in June. 
 - A young person’s reflection of KYCK. 
 - Getting started on mission. 
@@ -57,13 +52,11 @@ The stories of Jessica (4pm Mandarin) and Daniel (English 4pm) who have become C
 - Mission to Hurstville Public School.      
 
 
-**Lost Property Box**
-
+**Lost Property Box:**
 We now have a Lost Property Box near the church inner lawn. If you’ve misplaced something recently, please check the box. Items will be kept for two weeks. After that, unclaimed belongings will be donated to Anglicare. Thank you for helping us keep our church clean and organised.
 
 
-**Packing Down: Our Final Service at Forest Road**
-
+**Packing Down- Our Final Service at Forest Road:**
 Our time at 124 Forest Road is coming to an end, with our final service at this location scheduled for Sunday, June 29th. After the service, we'd love for everyone who is able to stay behind and help us pack down the space. We anticipate this will only take about one hour of your time. To show our appreciation, $8 lunch will be available for all who'd like to stay for fellowship afterwards from 12pm. Let's work together to make this transition smooth and efficient!
 
 **Vision 2025:** 
