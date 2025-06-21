@@ -29,7 +29,7 @@ I must go on boasting. Although there is nothing to be gained, I will go on to v
 - God doesn't play favourites
 - But he made us all different
 - The way of love 
-****
+  
 
 
 ## Q&A
