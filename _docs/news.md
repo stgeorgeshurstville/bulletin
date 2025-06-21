@@ -11,7 +11,7 @@ order: 5
 
 
 ## General
-- **Support for the Gospel in Katmandu**
+**Support for the Gospel in Katmandu**
 Dear Church Family,  
 Being a Christian in Nepal is challenging. Churches have no legal status, cannot own property, and often face opposition. Recently, the landlord of *Omega Church* (our Anglican brothers and sisters in Kathmandu) demanded they vacate their meeting place, refusing to host any Christian activities.  
 
