@@ -7,8 +7,8 @@ order: 5
 
 | Date | Event | Time |
 | ---- | ---- | ---- |
-| None | N/A | N/A |
-
+| June 29th | Final Service at Forest Road & Packing Up| 9:30am |
+| July 6th | Drop and Ride System | N/A |
 
 ## General
 **Support for the Gospel in Katmandu:** 
