@@ -46,12 +46,12 @@ For questions, please contact Brian Tung.
 
 
 **Life quarterly**
-for the latest news of what’s happening at St George’s, please grab a copy or read online from https://stgeorgeshurstville.org.au/life. This edition includes:
+ For the latest news of what’s happening at St George’s, please grab a copy or read online from https://stgeorgeshurstville.org.au/life. This edition includes:
 The stories of Jessica (4pm Mandarin) and Daniel (English 4pm) who have become Christians recently and will be baptised in June. 
--A young person’s reflection of KYCK. 
--Getting started on mission. 
--Changes to the property. 
--Mission to Hurstville Public School.      
+- A young person’s reflection of KYCK. 
+- Getting started on mission. 
+- Changes to the property. 
+- Mission to Hurstville Public School.      
 
 
 **Lost Property Box**
