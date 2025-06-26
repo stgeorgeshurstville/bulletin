@@ -20,15 +20,30 @@ order: 2
 ### Prayer
 Dear God, thank you for letting us know you. Please help us learn from your word. Help us to serve and praise you. **Amen!**
 
-### 2 Corinthians 12:1-10 (NIV 11)
-I must go on boasting. Although there is nothing to be gained, I will go on to visions and revelations from the Lord. ² I know a man in Christ who fourteen years ago was caught up to the third heaven. Whether it was in the body or out of the body I do not know—God knows. ³ And I know that this man—whether in the body or apart from the body I do not know, but God knows— ⁴ was caught up to paradise and heard inexpressible things, things that no one is permitted to tell. ⁵ I will boast about a man like that, but I will not boast about myself, except about my weaknesses. ⁶ Even if I should choose to boast, I would not be a fool, because I would be speaking the truth. But I refrain, so no one will think more of me than is warranted by what I do or say, ⁷ or because of these surpassingly great revelations. Therefore, in order to keep me from becoming conceited, I was given a thorn in my flesh, a messenger of Satan, to torment me. ⁸ Three times I pleaded with the Lord to take it away from me. ⁹ But he said to me, “My grace is sufficient for you, for my power is made perfect in weakness.” Therefore I will boast all the more gladly about my weaknesses, so that Christ’s power may rest on me. ¹⁰ That is why, for Christ’s sake, I delight in weaknesses, in insults, in hardships, in persecutions, in difficulties. For when I am weak, then I am strong.
+### Ephesians 4:1-16 (NIV11)
+As a prisoner for the Lord, then, I urge you to live a life worthy of the calling you have received. ² Be completely humble and gentle; be patient, bearing with one another in love. ³ Make every effort to keep the unity of the Spirit through the bond of peace. ⁴ There is one body and one Spirit, just as you were called to one hope when you were called; ⁵ one Lord, one faith, one baptism; ⁶ one God and Father of all, who is over all and through all and in all.
+
+⁷ But to each one of us grace has been given as Christ apportioned it. ⁸ This is why it says:
+
+“When he ascended on high,
+he took many captives
+and gave gifts to his people.” 
+
+⁹ (What does “he ascended” mean except that he also descended to the lower, earthly regions ? ¹⁰ He who descended is the very one who ascended higher than all the heavens, in order to fill the whole universe.) ¹¹ So Christ himself gave the apostles, the prophets, the evangelists, the pastors and teachers, ¹² to equip his people for works of service, so that the body of Christ may be built up ¹³ until we all reach unity in the faith and in the knowledge of the Son of God and become mature, attaining to the whole measure of the fullness of Christ.
+
+¹⁴ Then we will no longer be infants, tossed back and forth by the waves, and blown here and there by every wind of teaching and by the cunning and craftiness of people in their deceitful scheming. ¹⁵ Instead, speaking the truth in love, we will grow to become in every respect the mature body of him who is the head, that is, Christ. ¹⁶ From him the whole body, joined and held together by every supporting ligament, grows and builds itself up in love, as each part does its work.
+
 
 ## Sermon Outline
-### "The Heart of Service is God’s glory in my weakness"
-- What sort of God are you looking for?
-- God doesn't play favourites
-- But he made us all different
-- The way of love 
+### "The Heart of Service is Loving Unity"
+- Jesus does an Orpah 
+- Body image
+- What does being a grown up look like? 
+  - United in the right thing 
+  - Unity maintained and expressed 
+- Playing your part 
+- Conclusions 
+
   
 
 
