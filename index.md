@@ -11,13 +11,14 @@ title: Welcome
 
 ## The Heart of Service
 
-### The Heart of Service is God’s glory in my weakness
+### The Heart of Service is Loving Unity
 
 
 
-#### If you, O Lord, should mark iniquity, Lord, who could stand? But there is forgivneness with you, God of Israel
+#### God is in his holy habitation. God gives the desolate a home to dwell in; he gives power and strength to his people. 
 
-##### Psalm 130:3-4
+
+##### Psalm 68: 5-6,35
 
 ---
 - We are gathering in person! For people who can’t gather in person, you can watch online [here](https://stgeorgeshurstville.org.au/sunday-english-online)
