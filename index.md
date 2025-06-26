@@ -18,7 +18,7 @@ title: Welcome
 #### God is in his holy habitation. God gives the desolate a home to dwell in; he gives power and strength to his people. 
 
 
-##### Psalm 68: 5-6,35
+##### Psalm 68: 5-6, 35
 
 ---
 - We are gathering in person! For people who can’t gather in person, you can watch online [here](https://stgeorgeshurstville.org.au/sunday-english-online)
