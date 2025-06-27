@@ -11,23 +11,6 @@ order: 5
 | July 6th | Drop and Ride System | N/A |
 
 ## General
-**Support for the Gospel in Katmandu:** 
-Dear Church Family, being a Christian in Nepal is challenging. Churches have no legal status, cannot own property, and often face opposition. Recently, the landlord of *Omega Church* (our Anglican brothers and sisters in Kathmandu) demanded they vacate their meeting place, refusing to host any Christian activities.  
-
-In response, Omega Church is raising funds to construct a temporary building so they can continue worshiping and sharing the Gospel. The estimated cost is *8 Lakhs (around AUD 10,000)*, and the congregation is sacrificially giving toward this need.  
-
-As a symbol of our fellowship and commitment to global mission, our Parish Council has resolved to gift *AUD 2000* to support Omega Church’s building project. Beyond financial help, let’s *pray fervently* for them:  
-- For God’s provision and protection as they build.  
-- For boldness in their witness to neighbours despite persecution.  
-- For the progress of the Gospel in Nepal, where faith often comes at great cost.  
-
-Thank you for your generosity in spirit and action. If you feel led to contribute further or learn more, please contact the office.  
-
-Grace and peace
-
-![Cleaning Up](https://raw.githubusercontent.com/stgeorgeshurstville/bulletin/main/images/cleaningup.png)
-![Cleaning Up](https://raw.githubusercontent.com/stgeorgeshurstville/bulletin/main/images/cleaningup2.png)
-
 **Park & Ride:**
 Dear Church Family, to better serve our families, elderly, and those with mobility needs, we’re introducing a ‘Drop and Ride’ system from the first Sunday of July. Here’s how it will work:
 
