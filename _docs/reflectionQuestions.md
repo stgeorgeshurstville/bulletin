@@ -9,7 +9,8 @@ order: 7
 ### Discussion Questions
 Please read through the whole of 2 Corinthians 2 (at home?). 
 
-[Please read 1 Corinthians 1:1-11]
+Please read 1 Corinthians 1:1-11
+
 1. What is the background to the Corinthians church in Acts 18? What is the relationship between Paul and the church? 
 
 2. Why was Paul writing to them (again!)? 
