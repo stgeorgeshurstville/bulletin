@@ -20,31 +20,31 @@ order: 2
 ### Prayer
 Dear God, thank you for letting us know you. Please help us learn from your word. Help us to serve and praise you. **Amen!**
 
-### Ephesians 4:1-16 (NIV11)
-As a prisoner for the Lord, then, I urge you to live a life worthy of the calling you have received. ² Be completely humble and gentle; be patient, bearing with one another in love. ³ Make every effort to keep the unity of the Spirit through the bond of peace. ⁴ There is one body and one Spirit, just as you were called to one hope when you were called; ⁵ one Lord, one faith, one baptism; ⁶ one God and Father of all, who is over all and through all and in all.
+### 2 Corinthians 1:1-12 (NIrV)
+¹ I, Paul, am writing this letter. I am an apostle of Christ Jesus just as God planned. Timothy our brother joins me in writing. 
 
-⁷ But to each one of us grace has been given as Christ apportioned it. ⁸ This is why it says:
+We are sending this letter to you, the members of God’s church in Corinth. It is also for all God’s holy people everywhere in Achaia. 
 
-“When he ascended on high,
-he took many captives
-and gave gifts to his people.” 
+² May God our Father and the Lord Jesus Christ give you grace and peace. 
 
-⁹ (What does “he ascended” mean except that he also descended to the lower, earthly regions ? ¹⁰ He who descended is the very one who ascended higher than all the heavens, in order to fill the whole universe.) ¹¹ So Christ himself gave the apostles, the prophets, the evangelists, the pastors and teachers, ¹² to equip his people for works of service, so that the body of Christ may be built up ¹³ until we all reach unity in the faith and in the knowledge of the Son of God and become mature, attaining to the whole measure of the fullness of Christ.
+**Praise to the God Who Gives Comfort**
 
-¹⁴ Then we will no longer be infants, tossed back and forth by the waves, and blown here and there by every wind of teaching and by the cunning and craftiness of people in their deceitful scheming. ¹⁵ Instead, speaking the truth in love, we will grow to become in every respect the mature body of him who is the head, that is, Christ. ¹⁶ From him the whole body, joined and held together by every supporting ligament, grows and builds itself up in love, as each part does its work.
+³ Give praise to the God and Father of our Lord Jesus Christ! He is the Father who gives tender love. All comfort comes from him. ⁴ He comforts us in all our troubles. Now we can comfort others when they are in trouble. We ourselves receive comfort from God. ⁵ We share very much in the sufferings of Christ. So we also share very much in his comfort. ⁶ If we are having trouble, it is so that you will be comforted and renewed. If we are comforted, it is so that you will be comforted. Then you will be able to put up with the same suffering we have gone through. ⁷ Our hope for you remains firm. We know that you suffer just as we do. In the same way, God comforts you just as he comforts us.
+
+⁸ Brothers and sisters, we want you to know about the hard times we had in Asia Minor. We were having a lot of trouble. It was far more than we could stand. We even thought we were going to die. ⁹ In fact, we felt as if we were under the sentence of death. But that happened so that we would not depend on ourselves but on God. He raises the dead to life. ¹⁰ God has saved us from deadly dangers. And he will continue to do it. We have put our hope in him. He will continue to save us. ¹¹ You must help us by praying for us. Then many people will give thanks because of what will happen to us. They will thank God for his kindness to us in answer to the prayers of many.
+
+**Paul Changes His Plans**
+
+¹² Here is what we take pride in. Our sense of what is right and wrong tells us how we have acted. We have lived with honor and godly honesty. We have depended on God’s grace and not on the world’s wisdom. We lived that way most of all when we were dealing with you.
 
 
 ## Sermon Outline
 ### "The Heart of Service is Loving Unity"
-- Jesus does an Orpah 
-- Body image
-- What does being a grown up look like? 
-  - United in the right thing 
-  - Unity maintained and expressed 
-- Playing your part 
+- Power through weakness
+- Background
+- Affliction vv.8-11
+- Consolation vv.3-7
 - Conclusions 
-
-  
 
 
 ## Q&A
