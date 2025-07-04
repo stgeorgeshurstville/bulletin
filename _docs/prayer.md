@@ -12,7 +12,7 @@ Almighty God, we pray that the course of this world may be so peaceably ordered 
 | Pointers | Description |
 | --- | --- |
 | From the Passage | <br>Heavenly Father,<br> |
-<br>You are the Father of compassion and the God of all comfort.<br>
+| <br>You are the Father of compassion and the God of all comfort.<br> |
 <br>We thank You that You meet us not in our strength,<br> 
 <br>but in our weakness.<br>
 <br>Not when we have it all together,<br>
