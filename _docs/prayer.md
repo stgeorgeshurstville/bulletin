@@ -11,26 +11,7 @@ Almighty God, we pray that the course of this world may be so peaceably ordered 
 
 | Pointers | Description |
 | --- | --- |
-| From the Passage | <br>Heavenly Father,<br> |
-| <br>You are the Father of compassion and the God of all comfort.<br> |
-<br>We thank You that You meet us not in our strength,<br> 
-<br>but in our weakness.<br>
-<br>Not when we have it all together,<br>
-<br>but when we have come to the end of ourselves.<br>
-<br>In seasons of affliction,<br>
-<br>when we are pressed beyond what we can bear,<br>
-<br>teach us again to rely not on ourselves,<br>
-<br>but on You—the God who raises the dead.<br>
-<br>Thank You for the comfort You give<br>
- through Christ who suffered for us and with us. 
- Make us vessels of that same comfort to others, 
- so that in our pain, Your mercy might be known. 
-As we step into this new season as a church— 
- with change, with uncertainty, with hope— 
- anchor us not in buildings or plans, 
- but in the unshakable grace of Christ our Lord. 
-In His name we pray, 
- Amen. | 
+| From the Passage | <br>Heavenly Father, You are the Father of compassion and the God of all comfort. We thank You that You meet us not in our strength, but in our weakness. Not when we have it all together, but when we have come to the end of ourselves. In seasons of affliction, when we are pressed beyond what we can bear, teach us again to rely not on ourselves, but on You—the God who raises the dead. Thank You for the comfort You give through Christ who suffered for us and with us. Make us vessels of that same comfort to others, so that in our pain, Your mercy might be known. As we step into this new season as a church— with change, with uncertainty, with hope— anchor us not in buildings or plans, but in the unshakable grace of Christ our Lord. In His name we pray, Amen. |
 | Mission & Vision | **Mission** [write your own prayer] | 
 | Global & Nation | **World** [write your own prayer] |
 | Mission Partners  | **Persecuted Christians** [write your own prayer] |
