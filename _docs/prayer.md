@@ -11,10 +11,10 @@ Almighty God, we pray that the course of this world may be so peaceably ordered 
 
 | Pointers | Description |
 | --- | --- |
-| From the Passage | Heavenly Father, 
- You are the Father of compassion and the God of all comfort. 
- We thank You that You meet us not in our strength, 
- but in our weakness. 
+| From the Passage | Heavenly Father,
+You are the Father of compassion and the God of all comfort. 
+We thank You that You meet us not in our strength, 
+but in our weakness.
  Not when we have it all together, 
  but when we have come to the end of ourselves. 
 In seasons of affliction, 
