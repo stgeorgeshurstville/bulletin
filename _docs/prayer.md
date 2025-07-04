@@ -4,14 +4,33 @@ order: 4
 ---
 
 ## Collect
-Almighty God, the protector of all who put their trust in you, without whom nothing is strong, nothing is holy: increase and multiply upon us your mercy, so that with you as our ruler and guide, we may so pass through things temporal that we finally lose not the things eternal; grant this, heavenly Father, for our Lord Jesus Christ’s sake. Amen.
+Almighty God, we pray that the course of this world may be so peaceably ordered through your guidance that your church may joyfully serve you in all godly quietness; through Jesus Christ our Lord. Amen.
 
 
-## Week A
+## Week B
 
 | Pointers | Description |
 | --- | --- |
-| From the Passage |Gracious God, <br> We thank You for calling us into Your family through the gospel of our Lord Jesus Christ. Though we were once enslaved by sin, You have saved us, freed us, and repurposed us for Your service. You have made us one body, united by one Lord, in one Spirit. Help us to live worthy of this calling. Forgive us, Lord, that we have often based our relationships on things other than the Gospel. Forgive our pride, our impatience, our selfishness, and our lack of love. Where there has been gossip or factions, restore peace. Where there is hurt or misunderstanding, bring healing. Where there’s avoidance, bring clarity and encourage. Make us eager to maintain and express the unity of the Spirit in the bond of peace. Shape us, Lord, to be a mature church—humble, gentle, patient, bearing with one another in love.Thank You for giving our church teachers and pastors. Please help them to be faithful in their calling. Help us each to play our part in the body— to take your Word seriously, to obey it with joy to speak it in love and to help one another grow more like Jesus. Lord, grow us into a church that looks like Jesus, thinks like Jesus, and loves like Jesus. Not for our glory, but for Yours. In Jesus’ name we pray, Amen.| 
+| From the Passage |Heavenly Father, 
+ You are the Father of compassion and the God of all comfort. 
+ We thank You that You meet us not in our strength, 
+ but in our weakness. 
+ Not when we have it all together, 
+ but when we have come to the end of ourselves. 
+In seasons of affliction, 
+ when we are pressed beyond what we can bear, 
+ teach us again to rely not on ourselves, 
+ but on You—the God who raises the dead. 
+Thank You for the comfort You give 
+ through Christ who suffered for us and with us. 
+ Make us vessels of that same comfort to others, 
+ so that in our pain, Your mercy might be known. 
+As we step into this new season as a church— 
+ with change, with uncertainty, with hope— 
+ anchor us not in buildings or plans, 
+ but in the unshakable grace of Christ our Lord. 
+In His name we pray, 
+ Amen. | 
 | Mission & Vision | **Mission** [write your own prayer] | 
 | Global & Nation | **World** [write your own prayer] |
 | Mission Partners  | **Compassion** <br> General info:<br> Compassion is a Christian international holistic child development organisation. In response to God’s call, Compassion gives hope to the hopeless, spreading the gospel of Jesus Christ in a culturally relevant, non-coercive way. Through our Child Sponsorship Program, more than 2 million children are currently being released from poverty in Jesus’ name.|
