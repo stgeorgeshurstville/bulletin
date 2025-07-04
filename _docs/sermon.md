@@ -39,7 +39,7 @@ We are sending this letter to you, the members of God’s church in Corinth. It 
 
 
 ## Sermon Outline
-### "The Heart of Service is Loving Unity"
+### His Sufficiency in my Suffering / Comfort
 - Power through weakness
 - Background
 - Affliction vv.8-11
