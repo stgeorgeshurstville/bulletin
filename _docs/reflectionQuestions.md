@@ -4,22 +4,25 @@ order: 7
 ---
 
 ### Big idea
-**The goal of ministry is to building up the church to maturity**
+**God is the Father of all compassion and the God of all comfort. He comforts us in our worst afflictions so that we can bring the same comfort to others who are suffering.**
 
 ### Discussion Questions
-Please read Ephesians 4:1-16 
-1. What does Paul say about what Jesus has done and is doing? 
+Please read through the whole of 2 Corinthians 2 (at home?). 
 
-2. Similar to 1 Corinthians 12, Paul compares the church to a body and each member is a part of the body. What do the parts do? 
+[Please read 1 Corinthians 1:1-11]
+1. What is the background to the Corinthians church in Acts 18? What is the relationship between Paul and the church? 
 
-3. What does it mean for the ‘body’ to be mature? 
+2. Why was Paul writing to them (again!)? 
 
-4. How does the church grow up? 
+3. What does Paul want the Corinthians to know? Why? 
 
-5. How mature is St George’s? What is your part in helping St George’s to mature? 
+4. What do we know about Paul’s affliction? 
 
-Please reflect on the last few weeks: 
+5. How is the affliction resolved/not resolved? 
 
-6. What have you learned about the heart of ministry? Anything new? Anything that has challenged you? Any reminders? 
+6. How does the Gospel bring  comfort and consolation to Paul (without being simplistic and glib)? Does it work when you need comforting? 
 
+7. How does Paul’s suffering bring comfort to others who are suffering? How might ours? 
+
+8. Write a prayer for those who might be  suffering based on this passage. 
 
