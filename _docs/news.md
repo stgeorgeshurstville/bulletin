@@ -27,7 +27,7 @@ We urge everyone to respect this space and love others practically —so those w
 
 For questions, please contact Brian Tung.
 
-**St George’s Nepali church**
+**St George’s Nepali church:**
 St George’s Nepali church met for the first time yesterday on Saturday 5 July 2025. Praying God for bringing birth to this ministry. Please continue to remember our brothers and sisters and pray for their work and the salvation of Nepali in Sydney.     
 
 **Life quarterly:**
