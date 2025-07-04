@@ -9,16 +9,16 @@ title: Welcome
 [comment]: ##### "where the sentence came from, e.g. Psalm 1:1"  
 [comment]: ----------------------------------------------------  
 
-## The Heart of Service
+## The Sufficiency of Christ
 
-### The Heart of Service is Loving Unity
-
-
-
-#### God is in his holy habitation. God gives the desolate a home to dwell in; he gives power and strength to his people. 
+### His Sufficiency in my Suffering/Comfort
 
 
-##### Psalm 68: 5-6, 35
+
+#### O people in Zion who dwell in Jersualem; you shall weep no more. The Lord will surely be gracious to you at the sound of your cry; he will cause his majestic voice to be heard.
+
+
+##### Isaiah 30: 19a,30b
 
 ---
 - We are gathering in person! For people who can’t gather in person, you can watch online [here](https://stgeorgeshurstville.org.au/sunday-english-online)
