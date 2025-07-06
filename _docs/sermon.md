@@ -20,7 +20,7 @@ order: 2
 ### Prayer
 Dear God, thank you for letting us know you. Please help us learn from your word. Help us to serve and praise you. **Amen!**
 
-### 2 Corinthians 1:1-12 (NIrV)
+### 2 Corinthians 1:1-11 (NIrV)
 ¹ I, Paul, am writing this letter. I am an apostle of Christ Jesus just as God planned. Timothy our brother joins me in writing. 
 
 We are sending this letter to you, the members of God’s church in Corinth. It is also for all God’s holy people everywhere in Achaia. 
