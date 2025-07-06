@@ -33,10 +33,6 @@ We are sending this letter to you, the members of God’s church in Corinth. It 
 
 ⁸ Brothers and sisters, we want you to know about the hard times we had in Asia Minor. We were having a lot of trouble. It was far more than we could stand. We even thought we were going to die. ⁹ In fact, we felt as if we were under the sentence of death. But that happened so that we would not depend on ourselves but on God. He raises the dead to life. ¹⁰ God has saved us from deadly dangers. And he will continue to do it. We have put our hope in him. He will continue to save us. ¹¹ You must help us by praying for us. Then many people will give thanks because of what will happen to us. They will thank God for his kindness to us in answer to the prayers of many.
 
-**Paul Changes His Plans**
-
-¹² Here is what we take pride in. Our sense of what is right and wrong tells us how we have acted. We have lived with honor and godly honesty. We have depended on God’s grace and not on the world’s wisdom. We lived that way most of all when we were dealing with you.
-
 
 ## Sermon Outline
 ### His Sufficiency in my Suffering / Comfort
