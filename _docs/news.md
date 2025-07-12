@@ -36,8 +36,9 @@ Three decades ago, our parish council made a pivotal decision to reach out to th
 This special day will be a wonderful opportunity to celebrate our rich past and dream together about the future as we consider how to continue reaching our local communities with the transformative message of the gospel.
 
 Event Details: 
-When: Sunday, August 3rd, starting at 10:00 AM 
-Where: Hurstville Public School 
+- When: Sunday, August 3rd, starting at 10:00 AM 
+- Where: Hurstville Public School
+
 Following our service, we'll share in a celebratory lunch at 12:00 PM at St. George's Hurstville Anglican Church. Please note that there will be a cost for lunch. 
     
 
