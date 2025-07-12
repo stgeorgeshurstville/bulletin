@@ -8,6 +8,7 @@ order: 5
 | Date | Event | Time |
 | ---- | ---- | ---- |
 | July 6th | Drop and Ride System | N/A |
+| August 3rd | Celebrating 30 Years of Cross-Cultural Ministry! | 10am/ Hurstville Public School |
 
 ## General
 **Park & Ride:**
@@ -27,19 +28,18 @@ We urge everyone to respect this space and love others practically —so those w
 
 For questions, please contact Brian Tung.
 
-**St George’s Nepali church:**
-St George’s Nepali church met for the first time yesterday on Saturday 5 July 2025. Praying God for bringing birth to this ministry. Please continue to remember our brothers and sisters and pray for their work and the salvation of Nepali in Sydney.     
+**Celebrating 30 Years of Cross-Cultural Ministry!**
+Join us on Sunday, August 3rd, as we celebrate a significant milestone: 30 years of cross-cultural ministry at our church! 
 
-**Life quarterly:**
-For the latest news of what’s happening at St George’s, please grab a copy or read online from https://stgeorgeshurstville.org.au/life. This edition includes:
-The stories of Jessica (4pm Mandarin) and Daniel (English 4pm) who have become Christians recently and will be baptised in June. 
-- A young person’s reflection of KYCK. 
-- Getting started on mission. 
-- Changes to the property. 
-- Mission to Hurstville Public School.      
+Three decades ago, our parish council made a pivotal decision to reach out to the many Chinese immigrants settling in our area. What began as a heartfelt desire to proclaim the gospel has blossomed into a vibrant, multicultural community. Today, God has blessed us with two Cantonese, two Mandarin, and a Nepali service, reflecting the beautiful diversity He has brought into our midst. 
 
-**Lost Property Box:**
-We now have a Lost Property Box near the church inner lawn. If you’ve misplaced something recently, please check the box. Items will be kept for two weeks. After that, unclaimed belongings will be donated to Anglicare. Thank you for helping us keep our church clean and organised.
+This special day will be a wonderful opportunity to celebrate our rich past and dream together about the future as we consider how to continue reaching our local communities with the transformative message of the gospel.
+
+Event Details:
+When: Sunday, August 3rd, starting at 10:00 AM
+Where: Hurstville Public School
+Following our service, we'll share in a celebratory lunch at 12:00 PM at St. George's Hurstville Anglican Church. Please note that there will be a cost for lunch.
+    
 
 **Vision 2025:** 
 Our vision for 2025 is the ‘shine for Jesus, everywhere, anytime.’ We would love for you to take a few minutes to complete the Shine survey to help give us a picture of where we are as a church [here](https://docs.google.com/forms/d/e/1FAIpQLSezXaAZ_-lCp9NhPs6MlBz5c127LD8oH5YMn1BdLzrOT2Q8Ug/viewform?usp=dialog).
