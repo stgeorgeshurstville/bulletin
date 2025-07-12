@@ -28,8 +28,7 @@ We urge everyone to respect this space and love others practically —so those w
 
 For questions, please contact Brian Tung.
 
-**Celebrating 30 Years of Cross-Cultural Ministry!**
-
+**Celebrating 30 Years of Cross-Cultural Ministry!:**
 Join us on Sunday, August 3rd, as we celebrate a significant milestone: 30 years of cross-cultural ministry at our church! 
 
 Three decades ago, our parish council made a pivotal decision to reach out to the many Chinese immigrants settling in our area. What began as a heartfelt desire to proclaim the gospel has blossomed into a vibrant, multicultural community. Today, God has blessed us with two Cantonese, two Mandarin, and a Nepali service, reflecting the beautiful diversity He has brought into our midst. 
