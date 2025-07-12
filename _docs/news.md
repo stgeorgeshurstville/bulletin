@@ -11,7 +11,7 @@ order: 5
 | August 3rd | Celebrating 30 Years of Cross-Cultural Ministry! | 10am/ Hurstville Public School |
 
 ## General
-**Park & Ride:**
+**Park & Ride:**<br>
 Dear Church Family, to better serve our families, elderly, and those with mobility needs, we’re introducing a ‘Drop and Ride’ system from the first Sunday of July. Here’s how it will work:
 
 - Temporary Parking Zone:
@@ -28,7 +28,7 @@ We urge everyone to respect this space and love others practically —so those w
 
 For questions, please contact Brian Tung.
 
-**Celebrating 30 Years of Cross-Cultural Ministry!:**
+**Celebrating 30 Years of Cross-Cultural Ministry!:**<br>
 Join us on Sunday, August 3rd, as we celebrate a significant milestone: 30 years of cross-cultural ministry at our church! 
 
 Three decades ago, our parish council made a pivotal decision to reach out to the many Chinese immigrants settling in our area. What began as a heartfelt desire to proclaim the gospel has blossomed into a vibrant, multicultural community. Today, God has blessed us with two Cantonese, two Mandarin, and a Nepali service, reflecting the beautiful diversity He has brought into our midst. 
@@ -42,7 +42,7 @@ Event Details:
 Following our service, we'll share in a celebratory lunch at 12:00 PM at St. George's Hurstville Anglican Church. Please note that there will be a cost for lunch. 
     
 
-**Vision 2025:** 
+**Vision 2025:**<br>
 Our vision for 2025 is the ‘shine for Jesus, everywhere, anytime.’ We would love for you to take a few minutes to complete the Shine survey to help give us a picture of where we are as a church [here](https://docs.google.com/forms/d/e/1FAIpQLSezXaAZ_-lCp9NhPs6MlBz5c127LD8oH5YMn1BdLzrOT2Q8Ug/viewform?usp=dialog).
 
 ![Shine Survey QR code](https://raw.githubusercontent.com/stgeorgeshurstville/bulletin/refs/heads/main/images/Notes_250516_091907_fec.jpg)
