@@ -20,7 +20,7 @@ order: 2
 ### Prayer
 Dear God, thank you for letting us know you. Please help us learn from your word. Help us to serve and praise you. **Amen!**
 
-### 2 Corinthians 1:12-24 (NIrV)
+### 2 Corinthians 1: 12-24 (NIrV)
 
 **Paul Changes His Plans**
 
