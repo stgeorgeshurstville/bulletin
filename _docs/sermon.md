@@ -20,27 +20,25 @@ order: 2
 ### Prayer
 Dear God, thank you for letting us know you. Please help us learn from your word. Help us to serve and praise you. **Amen!**
 
-### 2 Corinthians 1:1-11 (NIrV)
-¹ I, Paul, am writing this letter. I am an apostle of Christ Jesus just as God planned. Timothy our brother joins me in writing. 
+### 2 Corinthians 1:12-24 (NIrV)
 
-We are sending this letter to you, the members of God’s church in Corinth. It is also for all God’s holy people everywhere in Achaia. 
+**Paul Changes His Plans**
 
-² May God our Father and the Lord Jesus Christ give you grace and peace. 
+¹² Here is what we take pride in. Our sense of what is right and wrong tells us how we have acted. We have lived with honor and godly honesty. We have depended on God’s grace and not on the world’s wisdom. We lived that way most of all when we were dealing with you. ¹³ We are writing only what you can read and understand. And here is what I hope. ¹⁴ Up to this point you have understood some of the things we have said. But now here is what I hope for when the Lord Jesus returns. I hope that your pride in us will be the same as our pride in you. When this happens, you will understand us completely. 
 
-**Praise to the God Who Gives Comfort**
+¹⁵ Because I was sure of this, I wanted to visit you first. Here is how I thought you would be helped twice. ¹⁶ I planned to visit you on my way to Macedonia. I would have come back to you from there. Then you would have sent me on my way to Judea. ¹⁷ When I planned all this, was I ready to change my mind for no good reason? No. I don’t make my plans the way the world makes theirs. In the same breath the world says both, “Yes! Yes!” and “No! No!” 
 
-³ Give praise to the God and Father of our Lord Jesus Christ! He is the Father who gives tender love. All comfort comes from him. ⁴ He comforts us in all our troubles. Now we can comfort others when they are in trouble. We ourselves receive comfort from God. ⁵ We share very much in the sufferings of Christ. So we also share very much in his comfort. ⁶ If we are having trouble, it is so that you will be comforted and renewed. If we are comforted, it is so that you will be comforted. Then you will be able to put up with the same suffering we have gone through. ⁷ Our hope for you remains firm. We know that you suffer just as we do. In the same way, God comforts you just as he comforts us.
+¹⁸ But just as sure as God is faithful, our message to you is not “Yes” and “No.” ¹⁹ Silas, Timothy and I preached to you about the Son of God, Jesus Christ. Our message did not say “Yes” and “No” at the same time. The message of Christ has always been “Yes.” ²⁰ God has made a great many promises. They are all “Yes” because of what Christ has done. So through Christ we say “Amen.” We want God to receive glory. ²¹ He makes both us and you remain strong in the faith because we belong to Christ. He anointed us. ²² He put his Spirit in our hearts and marked us as his own. We can now be sure that he will give us everything he promised us. 
 
-⁸ Brothers and sisters, we want you to know about the hard times we had in Asia Minor. We were having a lot of trouble. It was far more than we could stand. We even thought we were going to die. ⁹ In fact, we felt as if we were under the sentence of death. But that happened so that we would not depend on ourselves but on God. He raises the dead to life. ¹⁰ God has saved us from deadly dangers. And he will continue to do it. We have put our hope in him. He will continue to save us. ¹¹ You must help us by praying for us. Then many people will give thanks because of what will happen to us. They will thank God for his kindness to us in answer to the prayers of many.
+²³ I call God to be my witness. May he take my life if I’m lying. I wanted to spare you, so I didn’t return to Corinth. ²⁴ Your faith is not under our control. You remain strong in your own faith. But we work together with you for your joy. 
 
 
 ## Sermon Outline
-### His Sufficiency in my Suffering / Comfort
-- Power through weakness
-- Background
-- Affliction vv.8-11
-- Consolation vv.3-7
-- Conclusions 
+### His Sufficiency in my Cynicism
+Point 1: The Corinthians cynicism: a question of integrity (Verses 15-17) 
+Point 2: Paul's defense: rooted in his integrity (Verses 12-14) 
+Point 3: The foundation of his defense: God’s faithfulness through him (Verses 18-24) 
+
 
 
 ## Q&A
