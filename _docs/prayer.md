@@ -4,7 +4,7 @@ order: 4
 ---
 
 ## Collect
-Almighty God, we pray that the course of this world may be so peaceably ordered through your guidance that your church may joyfully serve you in all godly quietness; through Jesus Christ our Lord. Amen.
+God our Father, you have prepared for those who love you such good things as pass man’s understanding: pour into our hearts such love towards you, that we, loving you above all things, may obtain your promises which exceed all that we can desire; through Jesus Christ our Lord. Amen.
 
 
 ## Week C
