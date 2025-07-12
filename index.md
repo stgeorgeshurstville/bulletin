@@ -11,14 +11,14 @@ title: Welcome
 
 ## The Sufficiency of Christ
 
-### His Sufficiency in my Suffering/Comfort
+### His Sufficiency in my Cynicism
 
 
 
-#### O people in Zion who dwell in Jersualem; you shall weep no more. The Lord will surely be gracious to you at the sound of your cry; he will cause his majestic voice to be heard.
+#### O Lord God of hosts, hear our prayer; give ear, O God of Jacob. For a day in your court is better than a thousand elsewhere. 
 
 
-##### Isaiah 30: 19a,30b
+##### Psalm 84:8,10
 
 ---
 - We are gathering in person! For people who can’t gather in person, you can watch online [here](https://stgeorgeshurstville.org.au/sunday-english-online)
