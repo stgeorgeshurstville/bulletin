@@ -16,7 +16,7 @@ Lord of all power and might, the author and giver of all good things, graft in o
 | Global & Nation | **World:** Nation [write your own prayer] |
 | Mission Partners | **Hoi-Yan Shea in Japan:** <br> Summary of June 2025 newsletter [please write your prayer around these points].<br> Praise God for recovery from burn-out and renewed passion for mission in Japan. Please pray that God will bring people who are seeking and hungry for His Word.<br> Praise God for the Disciple making lab, a training session to grow disciples in Japan. Please pray for the Spirit’s guidance to apply what they have learnt to their context. |
 | Church Ministries | **EAL/D:** Pray for students,and teachers during the school holidays—that it would be a time of rest, renewal, and family bonding. Pray especially for safety in travels and meaningful moments with loved ones. <br><br> **Redevelopment:** Give thanks for the gospel work and the possibility of a redevelopment at St. George’s. Pray for wisdom and integrity for all our partners as involved as they serve church communities both through seeking of grants and planning for church redevelopments in future. |
-| Groups in Church | **People in need:** <br>Ask God to grow in us a heart that feels what He feels—a deep compassion for the poor, the lonely, the broken, and the lost. Pray that our actions would overflow from God’s love. |
+| Groups in Church | **Families:** <br>[Write your own prayer] |
 
 
 
