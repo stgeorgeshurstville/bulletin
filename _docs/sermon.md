@@ -29,12 +29,6 @@ Dear God, thank you for letting us know you. Please help us learn from your Word
 
 ⁵ Suppose someone has made us sad. In some ways, he hasn’t made me sad so much as he has made all of you sad. But I don’t want to put this too strongly. ⁶ He has been punished because most of you decided he should be. This punishment is enough. ⁷ Now you should forgive him and comfort him. Then he won’t be sad more than he can stand. ⁸ So I’m asking you to tell him again that you still love him. ⁹ I wrote to you for another special reason. I wanted to see if you could stand the test. I wanted to see if you could obey everything asked of you. ¹⁰ Anyone you forgive I also forgive. Was there anything to forgive? If so, I have forgiven it for your benefit, knowing that Christ is watching. ¹¹ We don’t want Satan to outsmart us. We know how he does his evil work.
 
-**Serving Under the New Covenant**
-
-¹² I went to Troas to preach the good news about Christ. There I found that the Lord had opened a door of opportunity for me. ¹³ But I still had no peace of mind. I couldn’t find my brother Titus there. So I said goodbye to the believers at Troas and went on to Macedonia.
-
-¹⁴ Give thanks to God! He always leads us as if we were prisoners in Christ’s victory parade. Through us, God spreads the knowledge of Christ everywhere like perfume. ¹⁵ God considers us to be the pleasing smell that Christ is spreading. He is spreading it among people who are being saved and people who are dying. ¹⁶ To those who are dying, we are the smell of death. To those who are being saved, we are the perfume of life. Who is able to do this work? ¹⁷ Unlike many people, we aren’t selling God’s word to make money. In fact, it is just the opposite. Because of Christ we speak honestly before God. We speak like people God has sent.
-
 
 ## Sermon Outline
 ### His Sufficiency in my Cynicism
