@@ -42,7 +42,7 @@ Event Details:
 Following our service, we'll share in a celebratory lunch at 12:00 PM at St. George's Hurstville Anglican Church. Please note that there will be a cost for lunch. 
     
 
-**Vision 2025:**<br>
+**Vision 2025:**
 Our vision for 2025 is the ‘shine for Jesus, everywhere, anytime.’ We would love for you to take a few minutes to complete the Shine survey to help give us a picture of where we are as a church [here](https://docs.google.com/forms/d/e/1FAIpQLSezXaAZ_-lCp9NhPs6MlBz5c127LD8oH5YMn1BdLzrOT2Q8Ug/viewform?usp=dialog).
 
 ![Shine Survey QR code](https://raw.githubusercontent.com/stgeorgeshurstville/bulletin/refs/heads/main/images/Notes_250516_091907_fec.jpg)
