@@ -4,10 +4,10 @@ order: 4
 ---
 
 ## Collect
-God our Father, you have prepared for those who love you such good things as pass man’s understanding: pour into our hearts such love towards you, that we, loving you above all things, may obtain your promises which exceed all that we can desire; through Jesus Christ our Lord. Amen.
+Lord of all power and might, the author and giver of all good things, graft in our hearts the love of your Name, increase in us true religion, nourish us with all goodness, and so by your mercy keep us; through Jesus Christ our Lord. Amen.
 
 
-## Week C
+## Week D
 
 | Pointers | Description |
 | --- | --- |
