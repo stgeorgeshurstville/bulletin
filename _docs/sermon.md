@@ -18,19 +18,20 @@ order: 2
 [comment]: ------------------------------------------------------------------------------------
 ## Bible Reading
 ### Prayer
-Dear God, thank you for letting us know you. Please help us learn from your word. Help us to serve and praise you. **Amen!**
+Dear God, thank you for letting us know you. Please help us learn from your Word. Help us to serve and praise you. **Amen!**
 
-### 2 Corinthians 1: 12-24 (NIrV)
+### 2 Corinthians 2: 1-11 (NIrV)
 
-**Paul Changes His Plans**
 
-¹² Here is what we take pride in. Our sense of what is right and wrong tells us how we have acted. We have lived with honor and godly honesty. We have depended on God’s grace and not on the world’s wisdom. We lived that way most of all when we were dealing with you. ¹³ We are writing only what you can read and understand. And here is what I hope. ¹⁴ Up to this point you have understood some of the things we have said. But now here is what I hope for when the Lord Jesus returns. I hope that your pride in us will be the same as our pride in you. When this happens, you will understand us completely. 
+¹ So I made up my mind that I would not make another painful visit to you. ² If I make you sad, who is going to make me glad? Only you, the people I made sad. ³ What I wrote to you I wrote for a special reason. When I came, I didn’t want to be troubled by those who should make me glad. I was sure that all of you would share my joy. ⁴ I was very troubled when I wrote to you. My heart was sad. My eyes were full of tears. I didn’t want to make you sad. I wanted to let you know that I love you very deeply.
 
-¹⁵ Because I was sure of this, I wanted to visit you first. Here is how I thought you would be helped twice. ¹⁶ I planned to visit you on my way to Macedonia. I would have come back to you from there. Then you would have sent me on my way to Judea. ¹⁷ When I planned all this, was I ready to change my mind for no good reason? No. I don’t make my plans the way the world makes theirs. In the same breath the world says both, “Yes! Yes!” and “No! No!” 
+**Forgive Those Who Make You Sad**
+⁵ Suppose someone has made us sad. In some ways, he hasn’t made me sad so much as he has made all of you sad. But I don’t want to put this too strongly. ⁶ He has been punished because most of you decided he should be. This punishment is enough. ⁷ Now you should forgive him and comfort him. Then he won’t be sad more than he can stand. ⁸ So I’m asking you to tell him again that you still love him. ⁹ I wrote to you for another special reason. I wanted to see if you could stand the test. I wanted to see if you could obey everything asked of you. ¹⁰ Anyone you forgive I also forgive. Was there anything to forgive? If so, I have forgiven it for your benefit, knowing that Christ is watching. ¹¹ We don’t want Satan to outsmart us. We know how he does his evil work.
 
-¹⁸ But just as sure as God is faithful, our message to you is not “Yes” and “No.” ¹⁹ Silas, Timothy and I preached to you about the Son of God, Jesus Christ. Our message did not say “Yes” and “No” at the same time. The message of Christ has always been “Yes.” ²⁰ God has made a great many promises. They are all “Yes” because of what Christ has done. So through Christ we say “Amen.” We want God to receive glory. ²¹ He makes both us and you remain strong in the faith because we belong to Christ. He anointed us. ²² He put his Spirit in our hearts and marked us as his own. We can now be sure that he will give us everything he promised us. 
+**Serving Under the New Covenant**
+¹² I went to Troas to preach the good news about Christ. There I found that the Lord had opened a door of opportunity for me. ¹³ But I still had no peace of mind. I couldn’t find my brother Titus there. So I said goodbye to the believers at Troas and went on to Macedonia.
 
-²³ I call God to be my witness. May he take my life if I’m lying. I wanted to spare you, so I didn’t return to Corinth. ²⁴ Your faith is not under our control. You remain strong in your own faith. But we work together with you for your joy. 
+¹⁴ Give thanks to God! He always leads us as if we were prisoners in Christ’s victory parade. Through us, God spreads the knowledge of Christ everywhere like perfume. ¹⁵ God considers us to be the pleasing smell that Christ is spreading. He is spreading it among people who are being saved and people who are dying. ¹⁶ To those who are dying, we are the smell of death. To those who are being saved, we are the perfume of life. Who is able to do this work? ¹⁷ Unlike many people, we aren’t selling God’s word to make money. In fact, it is just the opposite. Because of Christ we speak honestly before God. We speak like people God has sent.
 
 
 ## Sermon Outline
