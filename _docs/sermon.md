@@ -31,10 +31,10 @@ Dear God, thank you for letting us know you. Please help us learn from your Word
 
 
 ## Sermon Outline
-### His Sufficiency in my Cynicism
-- Point 1: 
-- Point 2: 
-- Point 3: 
+### 
+- Pain in Love and Joy: Confronting those who have wronged you.  
+- Pain in Forgiveness: Being open to restoring relationship.
+- Pain in maintaining interconnectedness: Remaining as one. 
 
 
 
