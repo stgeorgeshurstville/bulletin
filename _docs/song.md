@@ -4,15 +4,15 @@ order: 1
 ---
 
 ## 9:30am
-1. No Other Name
-2. Jesus Strong & Kind
-3. Great is Thy Faithfulness
-4. The Jesus Way
+1. His Mercy Is More
+2. Amazing Love
+3. The Jesus Way
+4. A New Commandment
    
 ## 4:00pm
-1. All Creatures of our God and King
+1. It Was Finished Upon That Cross
 2. Jesus Strong & Kind
-3. Rock of Ages
-4. Your Will Be Done
+3. His Mercy Is More
+4. Here We Stand
 
 Check out the church spotify playlist [here](https://open.spotify.com/playlist/3gh0ZKXkJBDbNEnZqJJDXj?si=0908aa3f87544643)
