@@ -32,9 +32,9 @@ Dear God, thank you for letting us know you. Please help us learn from your Word
 
 ## Sermon Outline
 ### His Sufficiency in my Cynicism
-- Point 1: The Corinthians cynicism: a question of integrity (Verses 15-17)
-- Point 2: Paul's defense: rooted in his integrity (Verses 12-14)
-- Point 3: The foundation of his defense: God’s faithfulness through him (Verses 18-24)
+- Point 1: 
+- Point 2: 
+- Point 3: 
 
 
 
