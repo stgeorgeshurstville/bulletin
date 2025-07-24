@@ -11,14 +11,14 @@ title: Welcome
 
 ## The Sufficiency of Christ
 
-### His Sufficiency in my Pain
+### His Sufficiency in my Aroma
 
 
 
-#### The Lord shows us the path of life; in his presence there is fullness of joy, in his right hand are pleasures for evermore. 
+#### "Jesus said: I tell you, whatever you ask in prayer, believe that you receive it, and you will."
 
 
-##### Psalm 16:11
+##### 
 
 ---
 - We are gathering in person! For people who can’t gather in person, you can watch online [here](https://stgeorgeshurstville.org.au/sunday-english-online)
