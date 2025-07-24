@@ -18,7 +18,7 @@ title: Welcome
 #### "Jesus said: I tell you, whatever you ask in prayer, believe that you receive it, and you will."
 
 
-##### 
+##### Mark 11:24
 
 ---
 - We are gathering in person! For people who can’t gather in person, you can watch online [here](https://stgeorgeshurstville.org.au/sunday-english-online)
