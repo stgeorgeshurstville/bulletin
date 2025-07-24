@@ -4,10 +4,9 @@ order: 4
 ---
 
 ## Collect
-Lord of all power and might, the author and giver of all good things, graft in our hearts the love of your Name, increase in us true religion, nourish us with all goodness, and so by your mercy keep us; through Jesus Christ our Lord. Amen.
+Almighty God, whose never-failing providence governs all things in heaven and earth: we humbly ask you to put away from us all hurtful things, and to give us whatever may be profitable for us; through Jesus Christ our Lord. Amen.
 
-
-## Week D
+## Week E
 
 | Pointers | Description |
 | --- | --- |
