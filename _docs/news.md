@@ -7,7 +7,6 @@ order: 5
 
 | Date | Event | Time |
 | ---- | ---- | ---- |
-| July 6th | Drop and Ride System | N/A |
 | August 3rd | Celebrating 30 Years of Cross-Cultural Ministry! | 10am/ Hurstville Public School |
 
 ## General
