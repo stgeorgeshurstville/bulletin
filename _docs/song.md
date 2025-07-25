@@ -4,15 +4,15 @@ order: 1
 ---
 
 ## 9:30am
-1. His Mercy Is More
-2. Amazing Love
-3. The Jesus Way
-4. A New Commandment
+1. I Am Not My Own
+2. Grace Awaiting Me
+3. Power Of The Cross
+4. Let Your Kingdom Come
    
 ## 4:00pm
-1. It Was Finished Upon That Cross
-2. Jesus Strong & Kind
-3. His Mercy Is More
-4. Here We Stand
+1. We Are One
+2. Only A Holy God
+3. In Christ Alone
+4. You Alone
 
 Check out the church spotify playlist [here](https://open.spotify.com/playlist/3gh0ZKXkJBDbNEnZqJJDXj?si=0908aa3f87544643)
