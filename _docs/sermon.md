@@ -20,7 +20,7 @@ order: 2
 ### Prayer
 Dear God, thank you for letting us know you. Please help us learn from your Word. Help us to serve and praise you. **Amen!**
 
-### 2 Corinthians 2: 1-11 (NIrV)
+### 2 Corinthians 2: 12-17 (NIrV)
 
 
 ¹ So I made up my mind that I would not make another painful visit to you. ² If I make you sad, who is going to make me glad? Only you, the people I made sad. ³ What I wrote to you I wrote for a special reason. When I came, I didn’t want to be troubled by those who should make me glad. I was sure that all of you would share my joy. ⁴ I was very troubled when I wrote to you. My heart was sad. My eyes were full of tears. I didn’t want to make you sad. I wanted to let you know that I love you very deeply.
