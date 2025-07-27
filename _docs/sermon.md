@@ -30,7 +30,7 @@ Dear God, thank you for letting us know you. Please help us learn from your Word
 
 
 ## Sermon Outline
-### 
+### Brian to provide outline on the day
 
 
 
