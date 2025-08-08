@@ -10,7 +10,7 @@ order: 1
 4. 
    
 ## 4:00pm
-1. ANcient of Days
+1. Ancient of Days
 2. Before the Throne of God Above
 3. All I have is Christ
 4. Let your Kingdom Come
