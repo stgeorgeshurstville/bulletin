@@ -11,14 +11,12 @@ title: Welcome
 
 ## The Sufficiency of Christ
 
-### His Sufficiency in my Aroma
+### His Sufficiency in my Calling / Competence
 
 
 
-#### "Jesus said: I tell you, whatever you ask in prayer, believe that you receive it, and you will."
-
-
-##### Mark 11:24
+#### Lord, be a rock of refuge for me, a strong fortress to save me; for your name's sake lead me and guide me. 
+##### Psalm 31:2-3
 
 ---
 - We are gathering in person! For people who can’t gather in person, you can watch online [here](https://stgeorgeshurstville.org.au/sunday-english-online)
