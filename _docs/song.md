@@ -4,15 +4,15 @@ order: 1
 ---
 
 ## 9:30am
-1. I Am Not My Own
-2. Grace Awaiting Me
-3. Power Of The Cross
-4. Let Your Kingdom Come
+1. 
+2. 
+3. 
+4. 
    
 ## 4:00pm
-1. We Are One
-2. Only A Holy God
-3. In Christ Alone
-4. You Alone
+1. ANcient of Days
+2. Before the Throne of God Above
+3. All I have is Christ
+4. Let your Kingdom Come
 
 Check out the church spotify playlist [here](https://open.spotify.com/playlist/3gh0ZKXkJBDbNEnZqJJDXj?si=0908aa3f87544643)
