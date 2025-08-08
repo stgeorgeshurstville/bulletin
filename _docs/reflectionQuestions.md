@@ -7,5 +7,7 @@ order: 7
 
 
 ### Discussion Questions
+N/A this week.
 
-Please self-reflect on your notes
+Please self-reflect on your notes.
+\
