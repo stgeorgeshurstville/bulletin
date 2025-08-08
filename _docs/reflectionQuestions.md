@@ -8,4 +8,4 @@ order: 7
 
 ### Discussion Questions
 
-Ben to provide reflection questions
+Please self-reflect on your notes
