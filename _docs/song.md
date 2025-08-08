@@ -4,10 +4,10 @@ order: 1
 ---
 
 ## 9:30am
-1. 
-2. 
-3. 
-4. 
+1. Holy Holy Holy
+2. Come Thou Fount
+3. His Glory is My Good
+4. Undivided
    
 ## 4:00pm
 1. Ancient of Days
