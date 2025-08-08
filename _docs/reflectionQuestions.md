@@ -10,4 +10,3 @@ order: 7
 N/A this week.
 
 Please self-reflect on your notes.
-\
