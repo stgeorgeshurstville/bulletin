@@ -11,7 +11,7 @@ title: Welcome
 
 ## The Sufficiency of Christ
 
-### His Sufficiency in my Calling / Competence
+### His Sufficiency in my Transformation
 
 
 
