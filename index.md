@@ -11,11 +11,12 @@ title: Welcome
 
 ## The Sufficiency of Christ
 
-### His Sufficiency in my Calling / Competence
+### His Sufficiency in my Truth / Proclamation
 
 
 
-#### "Jesus said: I tell you, whatever you ask in prayer, believe that you receive it, and you will."
+#### Be gracious to me, O Lord, for to you do I cry all day long. You, O Lord, are good and forgiving, abounding in steadfast love to all who call on you.
+#### Psalm 86.3,5
 
 ---
 - We are gathering in person! For people who can’t gather in person, you can watch online [here](https://stgeorgeshurstville.org.au/sunday-english-online)
