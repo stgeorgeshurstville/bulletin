@@ -4,15 +4,15 @@ order: 1
 ---
 
 ## 9:30am
-1. See Him Coming
-2. No Other Name
-3. All Heavens Declares
-4. How Can I Be Free From Sin
+1. All Creatures of Our God & King 
+2. Yet Not I But Through Christ In Me
+3. Great is Thy Faithfulness
+4. Rejoice the Lord is King
    
 ## 4:00pm
-1. How Deep the Father's Love for Us
-2. All Creatures of Our God and King
-3. Yet Not I but through Christ in Me
-4. Your Will be Done
+1. Water Without Price
+2. Creation Awaits
+3. Crown Him with many crowns
+4. All I have is Christ
 
 Check out the church spotify playlist [here](https://open.spotify.com/playlist/3gh0ZKXkJBDbNEnZqJJDXj?si=0908aa3f87544643)
