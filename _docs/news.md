@@ -10,6 +10,7 @@ order: 5
 | ~ | ~ | ~ |
 
 ## General
+<img width="560" height="551" alt="Screenshot 2025-08-22 204949" src="https://github.com/user-attachments/assets/9f145213-3149-48d3-80bb-9b72be3c639d" />
 
 **Vision 2025:**
 Our vision for 2025 is the ‘shine for Jesus, everywhere, anytime.’ We would love for you to take a few minutes to complete the Shine survey to help give us a picture of where we are as a church [here](https://docs.google.com/forms/d/e/1FAIpQLSezXaAZ_-lCp9NhPs6MlBz5c127LD8oH5YMn1BdLzrOT2Q8Ug/viewform?usp=dialog).
