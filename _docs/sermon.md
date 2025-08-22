@@ -18,25 +18,23 @@ order: 2
 [comment]: ------------------------------------------------------------------------------------
 ## Bible Reading
 ### Prayer
-Dear God, thank you for letting us know you. Please help us learn from your Word. Help us to serve and praise you. **Amen!**
+Dear God, thank you for letting us know you. Please help us learn from your word. Help us to serve and praise you. **Amen!**
 
-### 2 Corinthians 3:7-18 (NIV)
+### 2 Corinthians 4:1-6 (NIV)
 
-Now if the ministry that brought death, which was engraved in letters on stone, came with glory, so that the Israelites could not look steadily at the face of Moses because of its glory, transitory though it was, ⁸ will not the ministry of the Spirit be even more glorious? ⁹ If the ministry that brought condemnation was glorious, how much more glorious is the ministry that brings righteousness! ¹⁰ For what was glorious has no glory now in comparison with the surpassing glory. ¹¹ And if what was transitory came with glory, how much greater is the glory of that which lasts!
-
-¹² Therefore, since we have such a hope, we are very bold. ¹³ We are not like Moses, who would put a veil over his face to prevent the Israelites from seeing the end of what was passing away. ¹⁴ But their minds were made dull, for to this day the same veil remains when the old covenant is read. It has not been removed, because only in Christ is it taken away. ¹⁵ Even to this day when Moses is read, a veil covers their hearts. ¹⁶ But whenever anyone turns to the Lord, the veil is taken away. ¹⁷ Now the Lord is the Spirit, and where the Spirit of the Lord is, there is freedom. ¹⁸ And we all, who with unveiled faces contemplate the Lord’s glory, are being transformed into his image with ever-increasing glory, which comes from the Lord, who is the Spirit.
+Therefore, since through God’s mercy we have this ministry, we do not lose heart. ² Rather, we have renounced secret and shameful ways; we do not use deception, nor do we distort the word of God. On the contrary, by setting forth the truth plainly we commend ourselves to everyone’s conscience in the sight of God. ³ And even if our gospel is veiled, it is veiled to those who are perishing. ⁴ The god of this age has blinded the minds of unbelievers, so that they cannot see the light of the gospel that displays the glory of Christ, who is the image of God. ⁵ For what we preach is not ourselves, but Jesus Christ as Lord, and ourselves as your servants for Jesus’ sake. ⁶ For God, who said, “Let light shine out of darkness,” made his light shine in our hearts to give us the light of the knowledge of God’s glory displayed in the face of Christ.
 
 ## Sermon Outline
 
-Built for glory
+Losing Heart
 
-The glory of the Old Covenant
+Refuse to distortion of the truth
 
-How much more the New
+Rather set for the truth plainly
 
-Therefore
+Rejection
 
-True Glory
+The source of courage 
 
 
 ## Q&A
