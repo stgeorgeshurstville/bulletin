@@ -11,12 +11,11 @@ title: Welcome
 
 ## The Sufficiency of Christ
 
-### His Sufficiency in my Transformation
+### His Sufficiency in my Calling / Competence
 
 
 
-#### All that you have done to us, Lord, you have done in true judgment; for we have sinned in all things and have not obeyed your commandments; give glory to your Name, O Lord, and deal with us in your forbearance.
-##### Song of the Three Young Men 8,17,20,19 
+#### "Jesus said: I tell you, whatever you ask in prayer, believe that you receive it, and you will."
 
 ---
 - We are gathering in person! For people who can’t gather in person, you can watch online [here](https://stgeorgeshurstville.org.au/sunday-english-online)
