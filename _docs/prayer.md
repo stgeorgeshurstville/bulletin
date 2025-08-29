@@ -15,6 +15,8 @@ Merciful God, it is by your gift alone that your faithful people offer you true 
 | Global & Nation | **Local:** Write your own|
 | Mission Partners | **Moore College** & **Projects (Anglican Aid & Anglicare)**|
 | Church Ministries | **Discipleship Groups** |
-| Groups in Church | **Volunteers:** We praise you Father, for our sister and brothers, fellow members of the Body of our Lord. For making themselves our servants. There may be times when they might be tempted to lose heart. Please sustain them in those times. As they keep their eyes on our Lord Jesus, please sustain them in their service. May we be a source of joy and not a source of grief to them. May their service result in glory and praise to our Lord. Amen|
+| Church Ministries | **English Congregation:** Heavenly Father,
+We thank you for the blessing of our new meeting place for the 9:30 service at Hurstville Public School. Thank you for providing that congregation with that space to gather, worship, and grow together as a church family. <br> We are especially thankful for the unique opportunities that this location provides. We pray that as they meet at the same time as the language-based Chinese school, you would open doors for us to build genuine relationships and make meaningful connections within that community. We also pray that you would open up opportunities for us to invite them to join us for our "All Generations" services during the holidays. <br> Lord, we ask that you would fill us with your love for our neighbors. Give us wisdom and courage to not only serve them, but also to clearly and compassionately present the gospel to them, so that they too may come to know your son, Jesus Christ. May our presence in this school be a testament to your grace and love. <br> We praise you, Amen.
+
 
 - **Prayer points can be found [here](https://stgeorgeshurstville.org.au/prayer)**
