@@ -4,13 +4,18 @@ order: 4
 ---
 
 ## Collect
-"Almighty and everlasting God, you are always more ready to hear than we to pray, and constantly give more than either we desire or deserve: pour down on us the abundance of your mercy, forgiving us those things of which our conscience is afraid, and giving us those good things which we are not worthy to ask, except through the merits and mediation of Jesus Christ, your Son our Lord. Amen."
+Merciful God, it is by your gift alone that your faithful people offer you true and acceptable service; grant that we may so faithfully serve you in this life that we fail not finally to obtain your heavenly promises; through the merits of Jesus Christ our Lord. Amen.
 
-## Week H
+## Week A
 
 | Pointers | Description |
 | --- | --- |
-| From the Passage | Gracious God,<br><br>In Your mercy You have given us the light of the gospel of Jesus Christ.<br>In Your mercy You open blind eyes.<br>In Your mercy You have entrusted us, Your servants, with the glorious ministry of the gospel.<br>As we face disappointment, rejection, conflict, or weakness, we are tempted to lose heart.<br>We are tempted to distort Your word, to glorify ourselves, and to make life and ministry about us.<br>Forgive us.<br>By the power of the gospel, guard our hearts when such temptations come.<br>By Your mercy, open our eyes to Your power, and by Your Spirit turn our trust back to You.<br>Lord Jesus, help us to live and speak with integrity, setting forth the truth plainly, so that others may see You and not us.<br>Give us courage not to hide the gospel,and humility to serve as slaves for Your sake.<br>For those among us today who are still unsure about You, we pray that You would open blind eyes and soften hearts.<br>Shine the light of Christ into their lives, that they may see Your mercy and know Your saving love.<br>We pray all this through Jesus Christ our Lord, the light of the world.<br>Amen.|
+| From the Passage | Heavenly Father,
+We come before you today with fragile hearts, much like the clay jars you describe. We confess that it is so easy to lose heart when the pressures of life mount. We get pressed, perplexed, persecuted, and struck down, and the temptation to hide away and stop striving. We're tempted to be admired from a distance, but ultimately untouched and unused, with the treasure you've placed in us remaining hidden. <br>
+But Lord, we thank you that you have not left us alone in our frailty. You have placed an immeasurable treasure inside of us: the light of the knowledge of your glory, revealed in the face of Christ. You are the source of our power, the life that was victorious over death.
+We pray for the courage to persevere. Give us the strength to endure, to be broken by the world's challenges, not so that we are destroyed, but so that your light might be revealed. Help us to identify with the death of Jesus, so that we may also reveal His life in our mortal bodies.
+May we be willingly used and worn down, so that the gospel of your grace can surge out for the world to see. May our lives become a living testimony to your all-surpassing power. Use our brokenness to be a pleasing aroma of Christ to those around us, so that they too might be drawn to the light and find life in you.
+In your precious name we pray, Amen. |
 | Mission & Vision | **For growing out:** Write your own| 
 | Global & Nation | **Local:** Write your own|
 | Mission Partners | **Moore College** & **Projects (Anglican Aid & Anglicare)**|
