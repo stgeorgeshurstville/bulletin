@@ -20,21 +20,18 @@ order: 2
 ### Prayer
 Dear God, thank you for letting us know you. Please help us learn from your word. Help us to serve and praise you. **Amen!**
 
-### 2 Corinthians 4:1-6 (NIV)
+### 2 Corinthians 4:7-12 (NIV)
 
-Therefore, since through God’s mercy we have this ministry, we do not lose heart. ² Rather, we have renounced secret and shameful ways; we do not use deception, nor do we distort the word of God. On the contrary, by setting forth the truth plainly we commend ourselves to everyone’s conscience in the sight of God. ³ And even if our gospel is veiled, it is veiled to those who are perishing. ⁴ The god of this age has blinded the minds of unbelievers, so that they cannot see the light of the gospel that displays the glory of Christ, who is the image of God. ⁵ For what we preach is not ourselves, but Jesus Christ as Lord, and ourselves as your servants for Jesus’ sake. ⁶ For God, who said, “Let light shine out of darkness,” made his light shine in our hearts to give us the light of the knowledge of God’s glory displayed in the face of Christ.
+⁷ But we have this treasure in jars of clay to show that this all-surpassing power is from God and not from us. ⁸ We are hard pressed on every side, but not crushed; perplexed, but not in despair; ⁹ persecuted, but not abandoned; struck down, but not destroyed. ¹⁰ We always carry around in our body the death of Jesus, so that the life of Jesus may also be revealed in our body. ¹¹ For we who are alive are always being given over to death for Jesus’ sake, so that his life may also be revealed in our mortal body. ¹² So then, death is at work in us, but life is at work in you.
 
 ## Sermon Outline
 
-Losing Heart
+1) The Reality: Our Frailty, His Power (2 Corinthians 4:7-9).
 
-Refuse to distortion of the truth
+2) The Source: Carrying the death and revealing the life of Jesus. (2 Corinthians 4:10)
 
-Rather set for the truth plainly
+3) The Purpose: His life being revealed in our mortal bodies. (2 Corinthians 4:11-12)
 
-Rejection
-
-The source of courage 
 
 
 ## Q&A
