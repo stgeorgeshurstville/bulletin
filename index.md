@@ -11,12 +11,12 @@ title: Welcome
 
 ## The Sufficiency of Christ
 
-### His Sufficiency in my Truth / Proclamation
+### His Sufficiency in my Weakness / Power
 
 
 
-#### Be gracious to me, O Lord, for to you do I cry all day long. You, O Lord, are good and forgiving, abounding in steadfast love to all who call on you.
-#### Psalm 86.3,5
+#### The sinner cries to God; Do not forsake me, O Lord. O my God, be not far from me, make haste to help me, O Lord, my salvation. 
+#### Psalm 38.21-22
 
 ---
 - We are gathering in person! For people who can’t gather in person, you can watch online [here](https://stgeorgeshurstville.org.au/sunday-english-online)
