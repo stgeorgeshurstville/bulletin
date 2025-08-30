@@ -25,6 +25,7 @@ Dear God, thank you for letting us know you. Please help us learn from your word
 ⁷ But we have this treasure in jars of clay to show that this all-surpassing power is from God and not from us. ⁸ We are hard pressed on every side, but not crushed; perplexed, but not in despair; ⁹ persecuted, but not abandoned; struck down, but not destroyed. ¹⁰ We always carry around in our body the death of Jesus, so that the life of Jesus may also be revealed in our body. ¹¹ For we who are alive are always being given over to death for Jesus’ sake, so that his life may also be revealed in our mortal body. ¹² So then, death is at work in us, but life is at work in you.
 
 ## Sermon Outline
+### His Sufficiency in my Weakness / Power
 
 1) The Reality: Our Frailty, His Power (2 Corinthians 4:7-9).
 
