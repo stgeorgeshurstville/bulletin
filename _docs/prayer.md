@@ -17,7 +17,8 @@ Almighty and eternal God, grant that we may grow in faith, hope, and love; and t
 
 | Global & Nation | **Local:** ##### Please come up with your own prayer|
 
-| Mission Partners | **Persecuted Christians** ##### Please come up with your own prayer. <br><br> **Phil and Lil in West Asia** - Praise God that work on the Greek Interlinear New Testament has been continuing well. Ask that the team would find a good time for online meetings, and that the Lord would guide our decisions as we each work on different books and check each other’s work.|
+| Mission Partners | **Persecuted Christians** ##### Please come up with your own prayer. <br><br> **Phil and Lil in West Asia**
+- Praise God that work on the Greek Interlinear New Testament has been continuing well. Ask that the team would find a good time for online meetings, and that the Lord would guide our decisions as we each work on different books and check each other’s work.
 - Praise God that Lil has been able to adjust well to the time difference while continuing her area Prayer Strategy role. Our area has merged with other areas to form a much larger area, so there will be changes to her role and responsibilities. Ask that they would be finalised soon. 
 - Praise God that we have had a refreshing and productive time working remotely in Cairns. Ask that we would have safe travels to Sydney on 22 Sept and that everything would go smoothly as we relocate and settle there. |
 
