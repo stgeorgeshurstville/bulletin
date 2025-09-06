@@ -20,19 +20,21 @@ order: 2
 ### Prayer
 Dear God, thank you for letting us know you. Please help us learn from your word. Help us to serve and praise you. **Amen!**
 
-### 2 Corinthians 4:7-12 (NIV)
+### 2 Corinthians 4:13-18 (NIV)
 
-⁷ But we have this treasure in jars of clay to show that this all-surpassing power is from God and not from us. ⁸ We are hard pressed on every side, but not crushed; perplexed, but not in despair; ⁹ persecuted, but not abandoned; struck down, but not destroyed. ¹⁰ We always carry around in our body the death of Jesus, so that the life of Jesus may also be revealed in our body. ¹¹ For we who are alive are always being given over to death for Jesus’ sake, so that his life may also be revealed in our mortal body. ¹² So then, death is at work in us, but life is at work in you.
+¹³ It is written: “I believed; therefore I have spoken.” Since we have that same spirit of faith, we also believe and therefore speak, ¹⁴ because we know that the one who raised the Lord Jesus from the dead will also raise us with Jesus and present us with you to himself. ¹⁵ All this is for your benefit, so that the grace that is reaching more and more people may cause thanksgiving to overflow to the glory of God.
+
+¹⁶ Therefore we do not lose heart. Though outwardly we are wasting away, yet inwardly we are being renewed day by day. ¹⁷ For our light and momentary troubles are achieving for us an eternal glory that far outweighs them all. ¹⁸ So we fix our eyes not on what is seen, but on what is unseen, since what is seen is temporary, but what is unseen is eternal.
 
 ## Sermon Outline
-### His Sufficiency in my Weakness / Power
+### His Sufficiency in my Momentary Troubles
 
-1) The Reality: Our Frailty, His Power (2 Corinthians 4:7-9).
-
-2) The Source: Carrying the death and revealing the life of Jesus. (2 Corinthians 4:10)
-
-3) The Purpose: His life being revealed in our mortal bodies. (2 Corinthians 4:11-12)
-
+- Speaking and believing 
+- Speaking 
+- From Belief 
+- The Gospel glasses 
+- Able to see what can’t be seen 
+- Conclusions 
 
 
 ## Q&A
