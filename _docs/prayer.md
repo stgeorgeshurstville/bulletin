@@ -7,7 +7,7 @@ order: 4
 Almighty and eternal God, grant that we may grow in faith, hope, and love; and that we may obtain what you promised, make us love what you command; through Jesus Christ our Lord. Amen.
 
 ## Week B
-|  |  | 
+
 
 | From the Passage | Gracious God, <br><br> We thank You that You are the God who cares, who comforts, who saves. We thank You for the confidence You have given us through the resurrection of Jesus — that death is defeated, Your promises are sure, and glory is eternal. <br><br> Thank You that as we speak of Jesus, others can come to share in Your grace. <br><br> Yet we confess: any things in this world cause us to lose heart. We are easily distracted, often fearful, and too ready to stay silent and speak only of things of temporary value. <br><br> By the power of Your Spirit, through the gospel of Your Son, open our eyes to see reality as it truly is — to see troubles and treasures in light of Your eternal glory. <br><br> Father, may the weight of Your glory in the face of Your Son compel us to speak, and never stop speaking. Please give us opportunities this week to speak of Jesus. And when we speak, shine Your light into darkness, so that thanksgiving may overflow to Your glory. <br><br> In Jesus’ name we pray. Amen. | 
 
