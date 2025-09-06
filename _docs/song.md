@@ -18,7 +18,7 @@ order: 1
 4. Only a Holy God
 
 
-###9:30am
+### 9:30am Song Lyrics
 **1. What an Awesome God**
 
 Our God is an awesome God
