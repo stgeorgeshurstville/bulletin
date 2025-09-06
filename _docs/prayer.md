@@ -13,9 +13,9 @@ Almighty and eternal God, grant that we may grow in faith, hope, and love; and t
 
 | A Prayer for Father's Day | Gracious God, <br><br> On this Father's Day, we come before you with grateful hearts, giving thanks for the gift of fathers and the vital role they play in our lives and our families. We thank you for their strength, their love, and their commitment. <br><br> We also lift up those who are grieving the loss of their fathers. For those carrying the weight of absence and sadness, we ask for your peace and comfort. Be a source of healing for their hearts and a light in their mourning. <br><br> Lord, we ask that you equip fathers to be the men you have called them to be. Help them to be role models of integrity and humility, living lives that reflect your character. May they be gentle and sacrificial, always putting the needs of their families before their own. <br><br> Guide them to be sources of encouragement and affection, building up the members of their families with words and actions that affirm their worth. <br><br> Above all, we pray that fathers would be leaders in their homes, teaching the members in their family what it looks like to be a true follower of Jesus. May their lives be a testament to your grace and love. <br><br> Amen. | 
 
-| Mission & Vision | **For growing out:** #####Please come up with your own prayer| 
+| Mission & Vision | **For growing out:** #####Please come up with your own prayer | 
 
-| Global & Nation | **Local:** ##### Please come up with your own prayer|
+| Global & Nation | **Local:** ##### Please come up with your own prayer |
 
 | Mission Partners | **Persecuted Christians** ##### Please come up with your own prayer. <br><br> **Phil and Lil in West Asia**
 - Praise God that work on the Greek Interlinear New Testament has been continuing well. Ask that the team would find a good time for online meetings, and that the Lord would guide our decisions as we each work on different books and check each other’s work.
