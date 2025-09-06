@@ -6,7 +6,7 @@ order: 1
 ## 9:30am
 **1. What an Awesome God**
 
-Our God is an awesome God
+|Our God is an awesome God
 He reigns from heaven above
 With wisdom, power, and love
 Our God is an awesome God
@@ -89,9 +89,7 @@ My God, You're an awesome God
 
 Phil Wickham (2025), Richard W. Mullins,
 CCLI 62951 (main copyright licence)
-CCLI 174113 (streaming licence)
-
-
+CCLI 174113 (streaming licence)|
 
 **2. Awesome God**
 
