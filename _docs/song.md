@@ -4,7 +4,7 @@ order: 1
 ---
 
 ## 9:30am
-1. **What an Awesome God**
+**1. What an Awesome God**
 
 Our God is an awesome God
 He reigns from heaven above
@@ -93,7 +93,7 @@ CCLI 174113 (streaming licence)
 
 
 
-2. **Awesome God**
+**2. Awesome God**
 
 When He rolls up His sleeves
 He ain't just puttin' on the Ritz
@@ -150,7 +150,7 @@ Rich Mullins 1988;
 CCLI 62951 (main copyright licence)
 CCLI 174113 (streaming licence)
 
-3. **How Deep the Father's Love for us**
+**3. How Deep the Father's Love for us**
    
 How deep the Father's love for us,
 How vast beyond all measure!
@@ -193,7 +193,7 @@ Stuart Townend, Robin Mark; © Thankyou Music 2004
 CCLI 62951 (main copyright licence)
 CCLI 174113 (streaming licence)
 
-4. **By Faith**
+**4. By Faith**
 
 By faith we see the hand of God
 In the light of creation′s grand design
