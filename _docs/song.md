@@ -4,6 +4,21 @@ order: 1
 ---
 
 ## 9:30am
+1. What an Awesome God
+2. Awesome God
+3. How Deep the Father's Love for us
+4. By Faith
+
+**Scroll below for 9:30am song lyrics**
+
+## 4:00pm
+1. Christ our Hope in Life and Death
+2. When I Survey
+3. Jesus Paid it All
+4. Only a Holy God
+
+
+## 9:30am
 **1. What an Awesome God**
 
 Our God is an awesome God
@@ -244,10 +259,4 @@ Stuart Townend , Keith Getty & Kristyn Getty Copyright © 2009
 CCLI 62951 (main copyright licence)
 CCLI 174113 (streaming licence)
    
-## 4:00pm
-1. Christ our Hope in Life and Death
-2. When I Survey
-3. Jesus Paid it All
-4. Only a Holy God
-
 Check out the church spotify playlist [here](https://open.spotify.com/playlist/3gh0ZKXkJBDbNEnZqJJDXj?si=0908aa3f87544643)
