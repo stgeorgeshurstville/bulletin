@@ -10,23 +10,10 @@ order: 5
 | ~ | ~ | ~ |
 
 ## General
-<img width="560" height="551" alt="Screenshot 2025-08-22 204949" src="https://github.com/user-attachments/assets/9f145213-3149-48d3-80bb-9b72be3c639d" />
-
-## Berkeley Life Centre asking for Summer Clothing!
-Now that the seasons are changing, our mission partners at Berkeley Life Centre are restocking their Op Shop for the summer. They're looking for donations of summer clothing, bed linen, and baby and children's wear to help those in our community.
-If you have something you'd like to donate, please contact Ben Pantlin by emailing him at **ben.pantlin@stgeorgeshurstville.org.au**. Your generosity is greatly appreciated!
-
-## Online Prayer Meeting
-As we look at a world in desperate need of the Gospel, we can feel hopeless to change it. Which is why God calls us to gather together in prayer, believing he will work through us.
-Join us as we unite to pray for our community and for the world to hear the good news of Jesus Christ specifically as we think about how we can try and connect with the community at Hurstville Public School. 
-**Date: 17th of September**
-**Time: 8:00pm**
-**The Online meeting link will be posted in next week’s bulletin**
-
-## Robotics Day is Coming!
-On the 13th of October we’d love for you to save the date as we are planning a Robotics Day specifically for primary school children. This day coincides with a pupil free among public primary schools. 
-If you are able to help with the running of the day in whatever form we'd love to hear from you.
-If you are interested in volunteering, please contact [Leave Blank] for more information
+**Thanksgiving for 30 Years of Cross-Cultural Ministry!**
+Give thanks for last Sunday’s combined service, August 3rd, as we celebrate a significant milestone: 30 years of cross-cultural ministry at our church!
+Three decades ago, our parish council made a pivotal decision to reach out to the many Chinese immigrants settling in our area. What began as a heartfelt desire to proclaim the gospel has blossomed into a vibrant, multicultural community. Today, God has blessed us with two Cantonese, two Mandarin, and a Nepali service, reflecting the beautiful diversity He has brought into our midst.
+Thank you to all our volunteers and staff in making this special day happen. It was a wonderful time where we gathered and celebrated our rich past and dream together about the future as we consider how to continue reaching our local communities with the transformative message of the gospel.
 
 
 **Vision 2025:**
