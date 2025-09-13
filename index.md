@@ -11,11 +11,11 @@ title: Welcome
 
 ## The Sufficiency of Christ
 
-### His Sufficiency in my MMortality/Future
+### His Sufficiency in my Mortality/Future
 
 
 
-#### LJesus promised: I am with you always, to the close fo the age.  
+#### Jesus promised: I am with you always, to the close fo the age.  
 #### Matthew 28.20
 
 ---
