@@ -11,12 +11,12 @@ title: Welcome
 
 ## The Sufficiency of Christ
 
-### His Sufficiency in my Momentary Troubles
+### His Sufficiency in my MMortality/Future
 
 
 
-#### Let the hearts of those who seek the Lord rejoice. Seek the Lord and his strength, seek his presence continually.  
-#### Psalm 105.3-4
+#### LJesus promised: I am with you always, to the close fo the age.  
+#### Matthew 28.20
 
 ---
 - We are gathering in person! For people who can’t gather in person, you can watch online [here](https://stgeorgeshurstville.org.au/sunday-english-online)
