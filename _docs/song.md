@@ -4,259 +4,170 @@ order: 1
 ---
 
 ## 9:30am
-1. What an Awesome God
-2. Awesome God
-3. How Deep the Father's Love for us
-4. By Faith
+1. O Praise The Name
+2. By Faith
+3. On That Day
 
 **Scroll below for 9:30am song lyrics**
 
 ## 4:00pm
-1. Christ our Hope in Life and Death
-2. When I Survey
-3. Jesus Paid it All
-4. Only a Holy God
+1. Rejoice
+2. No Other Name
+3. On That Day
 
 
 ### 9:30am Song Lyrics
-**1. What an Awesome God**
+**1. O Praise The Name**
 
-Our God is an awesome God
-He reigns from heaven above
-With wisdom, power, and love
-Our God is an awesome God 
+I cast my mind to Calvary
+Where Jesus bled and died for me
+I see His wounds, His hands, His feet
+My Saviour on that cursed tree
+His body bound and drenched in tears
+They laid Him down in Joseph's tomb
+The entrance sealed by heavy stone
+Messiah still and all alone
 
-Our God is an awesome God
-He reigns from heaven above
-With wisdom, power, and love
-Our God is an awesome God 
+O praise the Name of the Lord our God
+O praise His Name forevermore
+For endless days we will sing Your praise
+Oh Lord, oh Lord our God
 
-God is great
-Give Him all the praise
-Hallelujah, Name above all Names
-Fire in His eyes
-Healing in His veins
-Everywhere, His glory on display 
+Then on the third at break of dawn
+The Son of heaven rose again
+O trampled death, where is your sting?
+The angels roar for Christ the King
 
-Take a look at those stars
-He can name them all
-Before His throne, every knee falls
-The demons have to run
-The angels have to praise
-Even the wind and waves obey  
+O praise the Name of the Lord our God
+O praise His Name forevermore
+For endless days we will sing Your praise
+Oh Lord, oh Lord our God
 
-Our God is an awesome God
-He reigns from heaven above
-With wisdom, power, and love
-Our God is an awesome God  
+He shall return in robes of white
+The blazing sun shall pierce the night
+And I will rise among the saints
+My gaze transfixed on Jesus' face
 
-Our God is an awesome God
-He reigns from heaven above
-With wisdom, power, and love
-Our God is an awesome God  
+O praise the Name of the Lord our God
+O praise His Name forevermore
+For endless days we will sing Your praise
+Oh Lord, oh Lord our God
 
-And even when I ran
-He didn't run away
-He came and put death back in its place
-Friday on a cross
-Broken for my shame
-Sunday morning rose up from that grave  
+O praise the Name of the Lord our God
+O praise His Name forevermore
+For endless days we will sing Your praise
+Oh Lord, oh Lord our God
+Oh Lord, oh Lord our God
 
-Take a look at those scars on His hands and feet
-He saved our souls for eternity
-Worthy is the Lamb
-Glory to the King
-Oh, let all the saints and the angels sing 
-
-Our God is an awesome God
-He reigns from heaven above
-With wisdom, power, and love
-Our God is an awesome God  
-
-Our God is an awesome God
-He reigns from heaven above
-With wisdom, power, and love
-Our God is an awesome God  
-
-Eyes on the Sky
-There will be a day
-He will come and wipe our tears away
-No more fear
-No more pain
-No more sorrow, sin, or shame  
-
-The King is coming back again
-A reign of love that will never end
-For everything You've done
-And everything You do
-And everything You are I'll sing to you 
-
-My God, You're an awesome God
-You're great in all You do
-I'm made to worship You
-My God, You're an awesome God 
-
-My God, You're an awesome God
-You're great in all You do
-I'm made to worship You
-My God, You're an awesome God  
-
-
-Phil Wickham (2025), Richard W. Mullins,
-CCLI 62951 (main copyright licence)
-CCLI 174113 (streaming licence) 
-
-**2. Awesome God**
-
-When He rolls up His sleeves
-He ain't just puttin' on the Ritz
-(Our God is an awesome God)
-
-There's thunder in His footsteps
-And lightning in His fists
-(Our God is an awesome God)
-
-Well the Lord wasn't jokin'
-When He kicked 'em out of Eden
-It wasn't for no reason that He shed His blood
-His return is very close so you better be believin'
-That our God is an awesome God
-
-Our God is an awesome God
-He reigns from heaven above
-With wisdom and power and love
-Our God is an awesome God
-
-Our God is an awesome God
-He reigns from heaven above
-With wisdom and power and love
-Our God is an awesome God
-
-When the sky was starless in the void of the night
-(Our God is an awesome God)
-
-He spoke into the darkness and created the light
-(Our God is an awesome God)
-
-Judgement and wrath He poured out on Sodom
-Mercy and grace He gave us at the cross
-I hope that we have not too quickly forgotten that
-Our God is an awesome God
-
-Our God is an awesome God
-He reigns from heaven above
-With wisdom and power and love
-Our God is an awesome God
-
-Our God is an awesome God
-He reigns from heaven above
-With wisdom and power and love
-Our God is an awesome God
-
-Our God is an awesome God
-
-Our God is an awesome God
-
-
-CCLI # 41099; 
-Rich Mullins 1988; 
+© 2015 © Hillsong Music Publishing Australia
 CCLI 62951 (main copyright licence)
 CCLI 174113 (streaming licence)
 
-**3. How Deep the Father's Love for us**
-   
-How deep the Father's love for us,
-How vast beyond all measure!
-That He should give His only Son,
-To make a wretch His treasure.
 
-How great the pain of searing loss!
-The Father turns His face away;
-As wounds which marred the Chosen One
-Bring many sons to glory.
+**2. By Faith**
 
-Behold the man upon a cross:
-My sin upon His shoulders;
-Ashamed I hear my mocking voice
-Call out among the scoffers.
+By faith, we see the hand of God
+In the light of creation’s grand design;
+In the lives of those who prove His faithfulness,
+Who walk by faith and not by sight.
 
-It was my sin that held Him there
-Until it was accomplished;
-His dying breath has brought me life:
-I know that it is finished.
-
-I will not boast in anything:
-No gifts, no power, no wisdom;
-But I will boast in Jesus Christ:
-His death and resurrection.
-
-Why should I gain from His reward?
-I cannot give an answer;
-But this I know with all my heart:
-His wounds have paid my ransom
-
-Why should I gain from His reward?
-I cannot give an answer;
-But this I know with all my heart:
-His wounds have paid my ransom
-
-His wounds have paid my ransom.
-
-Stuart Townend, Robin Mark; © Thankyou Music 2004
-CCLI 62951 (main copyright licence)
-CCLI 174113 (streaming licence)
-
-**4. By Faith**
-
-By faith we see the hand of God
-In the light of creation′s grand design
-In the lives of those who prove His faithfulness
-Who walk by faith and not by sight
-
-By faith our fathers roamed the earth
+By faith, our fathers roamed the earth
 With the power of His promise in their hearts
-Of a holy city built by God's own hand
-A place where peace and justice reign
+Of a holy city built by God’s own hand –
+A place where peace and justice reign.
 
-We will stand as children of the promise
-We will fix our eyes on Him our soul′s reward
-'Til the race is finished and the work is done
-We'll walk by faith and not by sight
+We will stand as children of the promise,
+We will fix our eyes on Him, our soul’s reward.
+Till the race is finished and the work is done,
+We’ll walk by faith and not by sight.
 
-By faith the prophets saw a day
+By faith, the prophets saw a day
 When the longed-for Messiah would appear
-With the pow′r to break the chains of sin and death
-And rise triumphant from the grave
+With the power to break the chains of sin and death,
+And rise triumphant from the grave.
 
-By faith the church was called to go
-In the pow′r of the Spirit to the lost
-To deliver captives and to preach good news
-In every corner of the earth
+By faith, the church was called to go
+In the power of the Spirit to the lost
+To deliver captives and to preach good news,
+In every corner of the earth.
 
-We will stand as children of the promise
-We will fix our eyes on Him our soul's reward
-′Til the race is finished and the work is done
-We'll walk by faith and not by sight
+We will stand as children of the promise,
+We will fix our eyes on Him, our soul’s reward.
+Till the race is finished and the work is done,
+We’ll walk by faith and not by sight.
 
-By faith this mountain shall be moved
-And the power of the gospel shall prevail
+By faith, this mountain shall be moved
+And the power of the gospel shall prevail,
 For we know in Christ all things are possible
-For all who call upon His name
+For all who call upon His name.
 
-We will stand as children of the promise
-We will fix our eyes on Him our soul′s reward
-'Til the race is finished and the work is done
-We′ll walk by faith and not by sight
+We will stand as children of the promise,
+We will fix our eyes on Him, our soul’s reward.
+Till the race is finished and the work is done,
+We’ll walk by faith and not by sight.
 
-We will stand as children of the promise
-We will fix our eyes on Him our soul′s reward
-'Til the race is finished and the work is done
-We′ll walk by faith and not by sight
-We′ll walk by faith and not by sight
-
-CCLI Song # 5469291
-Stuart Townend , Keith Getty & Kristyn Getty Copyright © 2009 
+We will stand as children of the promise,
+We will fix our eyes on Him, our soul’s reward.
+Till the race is finished and the work is done,
+We’ll walk by faith and not by sight.
+©2009 Getty Music Publishing, Thankyou Music. CCLI #5469291
 CCLI 62951 (main copyright licence)
 CCLI 174113 (streaming licence)
+
+
+**3. On That Day**
+   
+I believe in Christ, risen from the dead
+He now reigns victorious, His kingdom knows no end
+Through His resurrection death has lost its hold
+I know on that final day I’ll rise as Jesus rose
+
+
+On that day we will see you shining brighter than the sun
+On that day we will know you as we lift our voice as one
+Till that day we will praise you for your never ending grace
+And we will keep on singing on that glorious day
+
+
+What a blessed hope, though now tired and worn
+We will spend eternity around our Saviour’s throne
+Though we grieve our losses we grieve not in vain
+For we know our crown of glory waits beyond the grave
+
+
+On that day we will see you shining brighter than the sun
+On that day we will know you as we lift our voice as one
+Till that day we will praise you for your never ending grace
+And we will keep on singing on that glorious day
+
+Hallelujah what a day it will be
+For at home with you my joy is complete
+As I run into your arms open wide I will see
+My father who is waiting for me
+
+
+Hallelujah what a day it will be
+For at home with you my joy is complete
+As I run into your arms open wide I will see
+My father who is waiting for me
+My father who is waiting for me
+
+
+On that day we will see you shining brighter than the sun
+On that day we will know you as we lift our voice as one
+Till that day we will praise you for your never ending grace
+And we will keep on singing on that glorious day
+
+
+On that day we will see you shining brighter than the sun
+On that day we will know you as we lift our voice as one
+Till that day we will praise you for your never ending grace
+And we will keep on singing on that glorious day
+And we will keep on singing on that glorious day
+
+© 2022 CityAlight Music (admin. Integrity Music). CCLI: 7199818
+CCLI 62951 (main copyright licence)
+CCLI 174113 (streaming licence)
+
    
 Check out the church spotify playlist [here](https://open.spotify.com/playlist/3gh0ZKXkJBDbNEnZqJJDXj?si=0908aa3f87544643)
