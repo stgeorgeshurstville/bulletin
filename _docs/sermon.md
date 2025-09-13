@@ -20,21 +20,22 @@ order: 2
 ### Prayer
 Dear God, thank you for letting us know you. Please help us learn from your word. Help us to serve and praise you. **Amen!**
 
-### 2 Corinthians 4:13-18 (NIV)
+### 2 Corinthians 5:1-10 (NIV)
 
-¹³ It is written: “I believed; therefore I have spoken.” Since we have that same spirit of faith, we also believe and therefore speak, ¹⁴ because we know that the one who raised the Lord Jesus from the dead will also raise us with Jesus and present us with you to himself. ¹⁵ All this is for your benefit, so that the grace that is reaching more and more people may cause thanksgiving to overflow to the glory of God.
+**Awaiting the New Body**
 
-¹⁶ Therefore we do not lose heart. Though outwardly we are wasting away, yet inwardly we are being renewed day by day. ¹⁷ For our light and momentary troubles are achieving for us an eternal glory that far outweighs them all. ¹⁸ So we fix our eyes not on what is seen, but on what is unseen, since what is seen is temporary, but what is unseen is eternal.
+For we know that if the earthly tent we live in is destroyed, we have a building from God, an eternal house in heaven, not built by human hands. ² Meanwhile we groan, longing to be clothed instead with our heavenly dwelling, ³ because when we are clothed, we will not be found naked. ⁴ For while we are in this tent, we groan and are burdened, because we do not wish to be unclothed but to be clothed instead with our heavenly dwelling, so that what is mortal may be swallowed up by life. ⁵ Now the one who has fashioned us for this very purpose is God, who has given us the Spirit as a deposit, guaranteeing what is to come.
+
+⁶ Therefore we are always confident and know that as long as we are at home in the body we are away from the Lord. ⁷ For we live by faith, not by sight. ⁸ We are confident, I say, and would prefer to be away from the body and at home with the Lord. ⁹ So we make it our goal to please him, whether we are at home in the body or away from it. ¹⁰ For we must all appear before the judgment seat of Christ, so that each of us may receive what is due us for the things done while in the body, whether good or bad.
 
 ## Sermon Outline
-### His Sufficiency in my Momentary Troubles
 
-- Speaking and believing 
-- Speaking 
-- From Belief 
-- The Gospel glasses 
-- Able to see what can’t be seen 
-- Conclusions 
+* This tent sucks
+* Therefore in this tent we groan
+* Take heart, God gave us the Spirit as a deposit
+* So we are of good courage
+* Therefore we make it our aim to please Him
+
 
 
 ## Q&A
