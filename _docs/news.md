@@ -7,7 +7,7 @@ order: 5
 
 | Date | Event | Time |
 | ---- | ---- | ---- |
-| 13 October | Kids Holiday Hub - Robitics Day | 9:00am |
+| 13 October | Kids Holiday Hub - Robotics Day | 9:00am |
 | 15 November | Illuminate - A night of Prayer and Praise | 7:00pm |
 
 ## General
