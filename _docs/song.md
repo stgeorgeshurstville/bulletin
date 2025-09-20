@@ -12,7 +12,7 @@ order: 1
 **Scroll below for 9:30am song lyrics**
 
 ## 4:00pm
-1. RThe Love of the Father
+1. The Love of the Father
 2. Once for All
 3. This life I live
 4. Here we Stand
