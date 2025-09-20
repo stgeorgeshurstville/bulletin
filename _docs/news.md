@@ -26,7 +26,7 @@ On October 13th, during the pupil-free day, our church is hosting a holiday prog
 **Location:** St George's Hurstville Anglican Church - 2 The Avenue, Hurstville
 **Registration:** To register, click on this link: [here](https://www.eventbrite.com/e/kids-holiday-hub-tickets-1704850566939?aff=oddtdtcreator)
 
-[images/Robotics day.jpg](https://github.com/stgeorgeshurstville/bulletin/blob/1c751638511b728d4d8ee0f1e231d96e34e2347d/images/Robotics%20day.jpg)
+![Robotics day](https://github.com/stgeorgeshurstville/bulletin/blob/1c751638511b728d4d8ee0f1e231d96e34e2347d/images/Robotics%20day.jpg)
 
 **Berkeley Life Centre asking for Summer Clothing!** 
 Now that the seasons are changing, our mission partners at Berkeley Life Centre are restocking their Op Shop for the summer. They're looking for donations of summer clothing, bed linen, and baby and children's wear to help those in our community.
