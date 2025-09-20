@@ -20,21 +20,23 @@ order: 2
 ### Prayer
 Dear God, thank you for letting us know you. Please help us learn from your word. Help us to serve and praise you. **Amen!**
 
-### 2 Corinthians 5:1-10 (NIV)
+### 2 Corinthians 5:11-21 (NIV)
 
-**Awaiting the New Body**
+**The Ministry of Reconciliation**
 
-For we know that if the earthly tent we live in is destroyed, we have a building from God, an eternal house in heaven, not built by human hands. ² Meanwhile we groan, longing to be clothed instead with our heavenly dwelling, ³ because when we are clothed, we will not be found naked. ⁴ For while we are in this tent, we groan and are burdened, because we do not wish to be unclothed but to be clothed instead with our heavenly dwelling, so that what is mortal may be swallowed up by life. ⁵ Now the one who has fashioned us for this very purpose is God, who has given us the Spirit as a deposit, guaranteeing what is to come.
+¹¹ Since, then, we know what it is to fear the Lord, we try to persuade others. What we are is plain to God, and I hope it is also plain to your conscience. ¹² We are not trying to commend ourselves to you again, but are giving you an opportunity to take pride in us, so that you can answer those who take pride in what is seen rather than in what is in the heart. ¹³ If we are “out of our mind,” as some say, it is for God; if we are in our right mind, it is for you. ¹⁴ For Christ’s love compels us, because we are convinced that one died for all, and therefore all died. ¹⁵ And he died for all, that those who live should no longer live for themselves but for him who died for them and was raised again.
 
-⁶ Therefore we are always confident and know that as long as we are at home in the body we are away from the Lord. ⁷ For we live by faith, not by sight. ⁸ We are confident, I say, and would prefer to be away from the body and at home with the Lord. ⁹ So we make it our goal to please him, whether we are at home in the body or away from it. ¹⁰ For we must all appear before the judgment seat of Christ, so that each of us may receive what is due us for the things done while in the body, whether good or bad.
+¹⁶ So from now on we regard no one from a worldly point of view. Though we once regarded Christ in this way, we do so no longer. ¹⁷ Therefore, if anyone is in Christ, the new creation has come: The old has gone, the new is here! ¹⁸ All this is from God, who reconciled us to himself through Christ and gave us the ministry of reconciliation: ¹⁹ that God was reconciling the world to himself in Christ, not counting people’s sins against them. And he has committed to us the message of reconciliation. ²⁰ We are therefore Christ’s ambassadors, as though God were making his appeal through us. We implore you on Christ’s behalf: Be reconciled to God. ²¹ God made him who had no sin to be sin for us, so that in him we might become the righteousness of God.
 
 ## Sermon Outline
 
-* This tent sucks
-* Therefore in this tent we groan
-* Take heart, God gave us the Spirit as a deposit
-* So we are of good courage
-* Therefore we make it our aim to please Him
+* A one-dimensional Gospel
+* The Gospel tells us: The judgment of God
+* The Gospel tells us: The love of Christ
+* The Gospel tells us: The power of the Gospel to change
+* The Gospel tells us: The reconciliation is possible in Jesus
+* Conclusions 
+
 
 
 
