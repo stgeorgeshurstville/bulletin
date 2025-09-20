@@ -78,9 +78,9 @@ This is the day that the Lord has made
 Come and rejoice, we will rejoice and be glad in it
 Come and rejoice, we will rejoice and be glad in it
 
-© 2022 CityAlight Music; Words and Music by TIARNE TRANTER, JONNY ROBINSON & RICH THOMPSON 
+*© 2022 CityAlight Music; Words and Music by TIARNE TRANTER, JONNY ROBINSON & RICH THOMPSON 
 CCLI 62951 (main copyright licence)
-CCLI 174113 (streaming licence)
+CCLI 174113 (streaming licence)*
 
 
 
@@ -125,9 +125,9 @@ And claim the crown, through Christ my own.
 Amazing love! how can it be
 That Thou, my God, shouldst die for me?
 
-Lyrics: Charles Wesley, Music:Thomas Campbell; 1738
+*Lyrics: Charles Wesley, Music:Thomas Campbell; 1738
 CCLI 62951 (main copyright licence)
-CCLI 174113 (streaming licence)
+CCLI 174113 (streaming licence)*
 
 
 
@@ -169,9 +169,9 @@ Jesus, thank You
 Once Your enemy, now seated at Your table
 Jesus, thank You
 
-Music and words by Pat Sczebel. © 2003 Sovereign Grace Worship
+*Music and words by Pat Sczebel. © 2003 Sovereign Grace Worship
 CCLI: #4475341
-CCLI 62951 (main copyright licence)
+CCLI 62951 (main copyright licence)*
 
 
 
@@ -236,8 +236,8 @@ He is the answer
 Oh I choose the Jesus way
 I choose the Jesus way
 
-Phil Wickham 2023
+*Phil Wickham 2023
 CCLI 62951 (main copyright licence)
-CCLI 174113 (streaming licence)
+CCLI 174113 (streaming licence)*
 
 
