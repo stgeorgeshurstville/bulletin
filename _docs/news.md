@@ -12,6 +12,7 @@ order: 5
 
 ## General
 **Kids Holiday Hub**
+
 *A Day to Explore the World of Robotics*
 
 Registration is now open!
@@ -21,33 +22,43 @@ We're excited to announce that registration for our upcoming event is officially
 On October 13th, during the pupil-free day, our church is hosting a holiday program for children in years K-6. The day will include an interactive robotics session run by Sydney Robotics Academy. There will also be time to consider the God who created a world full of incredible innovations.
 
 **Event Details**
+
 **Cost:** $35 (includes morning tea and lunch)
+
 **Time:** 9:00am - 3:00pm
+
 **Location:** St George's Hurstville Anglican Church - 2 The Avenue, Hurstville
+
 **Registration:** To register, click on this link: [here](https://www.eventbrite.com/e/kids-holiday-hub-tickets-1704850566939?aff=oddtdtcreator)
 
 ![Robotics day](https://github.com/stgeorgeshurstville/bulletin/blob/1c751638511b728d4d8ee0f1e231d96e34e2347d/images/Robotics%20day.jpg)
 
-**Berkeley Life Centre asking for Summer Clothing!** 
-Now that the seasons are changing, our mission partners at Berkeley Life Centre are restocking their Op Shop for the summer. They're looking for donations of summer clothing, bed linen, and baby and children's wear to help those in our community.
 
-If you have something you'd like to donate some clothing there is a dedicated space on a set of shelves behind the stage in the hall. It’s labelled with a sign so you won’t be able to miss it. 
+**Illuminate - A night of Prayer and Priase**
 
-**Online Prayer Meeting**
-As we look at a world in desperate need of the Gospel, we can feel hopeless to change it. Which is why God calls us to gather together in prayer, believing he will work through us.
+The 4pm English music team will be hosting a praise & prayer night in November.
 
-Join us as we unite to pray for our community and for the world to hear the good news of Jesus Christ specifically as we think about how we can try and connect with the community at Hurstville Public School. 
+Join us for Illuminate, where we will explore what the Bible says about light and the promise of Jesus as our true Light. Come and be refreshed, encouraged, and reminded of the hope that shines in Him.
 
-Date: 17th of September
-Time: 8:00 -8:30pm 
-To join the video meeting, click this link: [here](https://meet.google.com/fmw-qsrd-sxu) 
+All are welcome, and invite a friend!
 
+**Event Details**
 
+**Date:** Saturday 15 November
 
-**Vision 2025:**
-Our vision for 2025 is the ‘shine for Jesus, everywhere, anytime.’ We would love for you to take a few minutes to complete the Shine survey to help give us a picture of where we are as a church [here](https://docs.google.com/forms/d/e/1FAIpQLSezXaAZ_-lCp9NhPs6MlBz5c127LD8oH5YMn1BdLzrOT2Q8Ug/viewform?usp=dialog).
+**Time:** 7:00pm
 
-![Shine Survey QR code](https://raw.githubusercontent.com/stgeorgeshurstville/bulletin/refs/heads/main/images/Notes_250516_091907_fec.jpg)
+**Location**: St George's Anglican Church Hurstville, Church Hall
+
+![Illuminate](https://github.com/stgeorgeshurstville/bulletin/blob/dc8c1bc1762663fa2114c193276f41465e2a1d4a/images/Illuminate.png)
+
+**Berkeley Life Centre: Summer Clothing Donations** 
+
+As the seasons change, our mission partners at Berkeley Life Centre are restocking their Op Shop for the warmer months. They're looking for donations of summer clothing, bed linen, and baby and children's wear to help those in our community.
+
+If you have items you'd like to donate, you can place them on the floor in front of the dedicated shelves behind the stage.
+
+A huge thank you to everyone who has already donated! Please note that we have limited space for storage at the church, so we will not be able to accept any more clothes after **Saturday, September 28.**
 
 
 **Growing in Our Welcoming:**
