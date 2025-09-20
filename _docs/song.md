@@ -83,6 +83,7 @@ CCLI 62951 (main copyright licence)
 CCLI 174113 (streaming licence)
 
 
+
 **And Can It Be**
 
 And can it be that I should gain
@@ -128,6 +129,8 @@ Lyrics: Charles Wesley, Music:Thomas Campbell; 1738
 CCLI 62951 (main copyright licence)
 CCLI 174113 (streaming licence)
 
+
+
 **Jesus Thank You**
 
 The mystery of the cross I cannot comprehend
@@ -169,6 +172,8 @@ Jesus, thank You
 Music and words by Pat Sczebel. © 2003 Sovereign Grace Worship
 CCLI: #4475341
 CCLI 62951 (main copyright licence)
+
+
 
 **The Jesus Way**
 
