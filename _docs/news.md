@@ -7,11 +7,24 @@ order: 5
 
 | Date | Event | Time |
 | ---- | ---- | ---- |
-| 17 September | Online prayer meeting | 8:00pm |
-| 13 October | Robotics Day | ~ |
+| 13 October | Kids Holiday Hub - Robitics Day | 9:00am |
+| 15 November | Illuminate - A night of Prayer and Praise | 7:00pm |
 
 ## General
-**Music night annoucement - TBA!**
+**Kids Holiday Hub**
+*A Day to Explore the World of Robotics*
+
+Registration is now open!
+We're excited to announce that registration for our upcoming event is officially open! Since spots are limited, we'd love for you and your family to be among the first to sign up. We also encourage you to see this as a prayerful mission opportunity. After you have registered your own child, please encourage their friends to join in the fun. This will be a great way for them to learn about Jesus and get to know our community.
+
+**Here's a bit about what the day will consist of:**
+On October 13th, during the pupil-free day, our church is hosting a holiday program for children in years K-6. The day will include an interactive robotics session run by Sydney Robotics Academy. There will also be time to consider the God who created a world full of incredible innovations.
+
+**Event Details**
+**Cost:** $35 (includes morning tea and lunch)
+**Time:** 9:00am - 3:00pm
+**Location:** St George's Hurstville Anglican Church - 2 The Avenue, Hurstville
+**Registration:** To register, click on this link: [here](https://www.eventbrite.com/e/kids-holiday-hub-tickets-1704850566939?aff=oddtdtcreator)
 
 **Berkeley Life Centre asking for Summer Clothing!** 
 Now that the seasons are changing, our mission partners at Berkeley Life Centre are restocking their Op Shop for the summer. They're looking for donations of summer clothing, bed linen, and baby and children's wear to help those in our community.
