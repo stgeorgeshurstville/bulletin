@@ -11,12 +11,12 @@ title: Welcome
 
 ## The Sufficiency of Christ
 
-### His Sufficiency in my Mortality/Future
+### His Sufficiency in my Reconciliation
 
 
 
-#### Jesus promised: I am with you always, to the close fo the age.  
-#### Matthew 28.20
+#### Thus says the Lord: There is no other god besides me, a righteous God and Saviour, turn to me and be saved, all the ends of the earth.  
+#### Isaiah 45:21,22 
 
 ---
 - We are gathering in person! For people who can’t gather in person, you can watch online [here](https://stgeorgeshurstville.org.au/sunday-english-online)
