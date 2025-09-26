@@ -7,10 +7,16 @@ order: 5
 
 | Date | Event | Time |
 | ---- | ---- | ---- |
+| 11 October | Working Bee at Church | 9:00am |
 | 13 October | Kids Holiday Hub - Robotics Day | 9:00am |
+| 26 October | Life Course | 5:30pm |
 | 15 November | Illuminate - A night of Prayer and Praise | 7:00pm |
 
 ## General
+**Working Bee**
+
+In anticipation of our Kids Holiday Hub, which kicks off on October 13th, we're holding a church working bee on Saturday, October 11th, starting at 9:00 am. We're looking to get the site clean and tidy for all the fun! Your help would be greatly appreciated. Even if you can only spare a couple of hours, every little bit makes a big difference.
+
 **Kids Holiday Hub**
 
 *A Day to Explore the World of Robotics*
@@ -32,6 +38,12 @@ On October 13th, during the pupil-free day, our church is hosting a holiday prog
 **Registration:** To register, click on this link: [here](https://www.eventbrite.com/e/kids-holiday-hub-tickets-1704850566939?aff=oddtdtcreator)
 
 ![Robotics day](https://github.com/stgeorgeshurstville/bulletin/blob/1c751638511b728d4d8ee0f1e231d96e34e2347d/images/Robotics%20day.jpg)
+
+**Life Course**
+
+Whether you are a genuine seeker or a skeptic, come to our Life Course where we will consider the life-changing message of the Gospel as it relates to the person of Jesus.
+We are excited to announce our upcoming Life Course, a four-week journey designed to provide a welcoming space for honest conversations. The course begins on Monday, October 26th, at 5:30 pm.
+We can't wait to see you there!
 
 
 **Illuminate - A night of Prayer and Priase**
