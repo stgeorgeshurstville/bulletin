@@ -9,14 +9,14 @@ title: Welcome
 [comment]: ##### "where the sentence came from, e.g. Psalm 1:1"  
 [comment]: ----------------------------------------------------  
 
-## The Sufficiency of Christ
+## Isaiah - A Light Would Dawn
 
-### His Sufficiency in my Reconciliation
+### The Vision of Isaiah 
 
 
 
-#### Thus says the Lord: There is no other god besides me, a righteous God and Saviour, turn to me and be saved, all the ends of the earth.  
-#### Isaiah 45:21,22 
+#### Hear, O Lord, when I cry aloud, be gracious to me and answer me. Cast me not off, forsake me not, God of my salvation. 
+#### Psalm 27:7-9
 
 ---
 - We are gathering in person! For people who can’t gather in person, you can watch online [here](https://stgeorgeshurstville.org.au/sunday-english-online)
