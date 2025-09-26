@@ -20,22 +20,150 @@ order: 2
 ### Prayer
 Dear God, thank you for letting us know you. Please help us learn from your word. Help us to serve and praise you. **Amen!**
 
-### 2 Corinthians 5:11-21 (NIV)
+### Isaiah 1 (NIV)
 
-**The Ministry of Reconciliation**
+The vision concerning Judah and Jerusalem that Isaiah son of Amoz saw during the reigns of Uzziah, Jotham, Ahaz and Hezekiah, kings of Judah.
 
-¹¹ Since, then, we know what it is to fear the Lord, we try to persuade others. What we are is plain to God, and I hope it is also plain to your conscience. ¹² We are not trying to commend ourselves to you again, but are giving you an opportunity to take pride in us, so that you can answer those who take pride in what is seen rather than in what is in the heart. ¹³ If we are “out of our mind,” as some say, it is for God; if we are in our right mind, it is for you. ¹⁴ For Christ’s love compels us, because we are convinced that one died for all, and therefore all died. ¹⁵ And he died for all, that those who live should no longer live for themselves but for him who died for them and was raised again.
+**A Rebellious Nation**
 
-¹⁶ So from now on we regard no one from a worldly point of view. Though we once regarded Christ in this way, we do so no longer. ¹⁷ Therefore, if anyone is in Christ, the new creation has come: The old has gone, the new is here! ¹⁸ All this is from God, who reconciled us to himself through Christ and gave us the ministry of reconciliation: ¹⁹ that God was reconciling the world to himself in Christ, not counting people’s sins against them. And he has committed to us the message of reconciliation. ²⁰ We are therefore Christ’s ambassadors, as though God were making his appeal through us. We implore you on Christ’s behalf: Be reconciled to God. ²¹ God made him who had no sin to be sin for us, so that in him we might become the righteousness of God.
+² Hear me, you heavens! Listen, earth!
+For the Lord has spoken:
+“I reared children and brought them up,
+but they have rebelled against me.
+³ The ox knows its master,
+the donkey its owner’s manger,
+but Israel does not know,
+my people do not understand.”
+
+⁴ Woe to the sinful nation,
+a people whose guilt is great,
+a brood of evildoers,
+children given to corruption!
+They have forsaken the Lord;
+they have spurned the Holy One of Israel
+and turned their backs on him.
+
+⁵ Why should you be beaten anymore?
+Why do you persist in rebellion?
+Your whole head is injured,
+your whole heart afflicted.
+⁶ From the sole of your foot to the top of your head
+there is no soundness—
+only wounds and welts
+and open sores,
+not cleansed or bandaged
+or soothed with olive oil.
+
+⁷ Your country is desolate,
+your cities burned with fire;
+your fields are being stripped by foreigners
+right before you,
+laid waste as when overthrown by strangers.
+⁸ Daughter Zion is left
+like a shelter in a vineyard,
+like a hut in a cucumber field,
+like a city under siege.
+⁹ Unless the Lord Almighty
+had left us some survivors,
+we would have become like Sodom,
+we would have been like Gomorrah.
+
+¹⁰ Hear the word of the Lord,
+you rulers of Sodom;
+listen to the instruction of our God,
+you people of Gomorrah!
+¹¹ “The multitude of your sacrifices—
+what are they to me?” says the Lord.
+“I have more than enough of burnt offerings,
+of rams and the fat of fattened animals;
+I have no pleasure
+in the blood of bulls and lambs and goats.
+¹² When you come to appear before me,
+who has asked this of you,
+this trampling of my courts?
+¹³ Stop bringing meaningless offerings!
+Your incense is detestable to me.
+New Moons, Sabbaths and convocations—
+I cannot bear your worthless assemblies.
+¹⁴ Your New Moon feasts and your appointed festivals
+I hate with all my being.
+They have become a burden to me;
+I am weary of bearing them.
+¹⁵ When you spread out your hands in prayer,
+I hide my eyes from you;
+even when you offer many prayers,
+I am not listening.
+
+Your hands are full of blood!
+
+¹⁶ Wash and make yourselves clean.
+Take your evil deeds out of my sight;
+stop doing wrong.
+¹⁷ Learn to do right; seek justice.
+Defend the oppressed. 
+Take up the cause of the fatherless;
+plead the case of the widow.
+
+¹⁸ “Come now, let us settle the matter,”
+says the Lord.
+“Though your sins are like scarlet,
+they shall be as white as snow;
+though they are red as crimson,
+they shall be like wool.
+¹⁹ If you are willing and obedient,
+you will eat the good things of the land;
+²⁰ but if you resist and rebel,
+you will be devoured by the sword.”
+For the mouth of the Lord has spoken.
+
+²¹ See how the faithful city
+has become a prostitute!
+She once was full of justice;
+righteousness used to dwell in her—
+but now murderers!
+²² Your silver has become dross,
+your choice wine is diluted with water.
+²³ Your rulers are rebels,
+partners with thieves;
+they all love bribes
+and chase after gifts.
+They do not defend the cause of the fatherless;
+the widow’s case does not come before them.
+
+²⁴ Therefore the Lord, the Lord Almighty,
+the Mighty One of Israel, declares:
+“Ah! I will vent my wrath on my foes
+and avenge myself on my enemies.
+²⁵ I will turn my hand against you; 
+I will thoroughly purge away your dross
+and remove all your impurities.
+²⁶ I will restore your leaders as in days of old,
+your rulers as at the beginning.
+Afterward you will be called
+the City of Righteousness,
+the Faithful City.”
+
+²⁷ Zion will be delivered with justice,
+her penitent ones with righteousness.
+²⁸ But rebels and sinners will both be broken,
+and those who forsake the Lord will perish.
+
+²⁹ “You will be ashamed because of the sacred oaks
+in which you have delighted;
+you will be disgraced because of the gardens
+that you have chosen.
+³⁰ You will be like an oak with fading leaves,
+like a garden without water.
+³¹ The mighty man will become tinder
+and his work a spark;
+both will burn together,
+with no one to quench the fire.”
 
 ## Sermon Outline
 
-* A one-dimensional Gospel
-* The Gospel tells us: The judgment of God
-* The Gospel tells us: The love of Christ
-* The Gospel tells us: The power of the Gospel to change
-* The Gospel tells us: The reconciliation is possible in Jesus
-* Conclusions 
+- Part 1: The Horror of Our Spiritual State
+- Part 2: The Hypocrisy of Our Worship
+- Part 3: The Hope of God's Promise
 
 
 
