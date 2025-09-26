@@ -4,239 +4,227 @@ order: 1
 ---
 
 ## 9:30am
-1. This is the Day
-2. And Can It Be
-3. Jesus Thank You
-4. The Jesus Way
+1. Ancient of Days
+2. Jesus Paid It All
+3. In Christ Alone
+4. Yet Not I 
 
 **Scroll below for 9:30am song lyrics**
 
 ## 4:00pm
-1. The Love of the Father
-2. Once for All
-3. This life I live
-4. Here we Stand
+1. Hear Our Prayer
+2. His Mercy Is More
+3. Rock of ages
+4. Jesus Paid It All
 
 
 ### 9:30am Song Lyrics
-**This is the Day**
+**Ancient of Days**
 
-This is the day that the Lord has made
-We will rejoice as we lift His name
-This is the day that the Lord has made
-Come and rejoice, we will rejoice and be glad in it
+Verse 1
 
-Whether the sun will shine
-Whether the skies will rain
-I know that You are good
-And this is the day You made
-Whether in life or death
-Whether in joy or pain
-I know this truth remains
-That this is the day You made
+Though the nations rage
+Kingdoms rise and fall
+There is still one King
+Reigning over all
+So I will not fear for this truth remains:
+That my God is the Ancient of Days
 
-This is the day that the Lord has made
-We will rejoice as we lift His name
-This is the day that the Lord has made
-Come and rejoice, we will rejoice and be glad in it
+Chorus
 
-Now I can walk in faith
-You will protect my way
-Your every work is good
-And this is the day You made
-I am a child of Yours
-You are the One who saves
-I am redeemed by love
-And this is the day You made
+None above Him, none before Him
+All of time in His hands
+For His throne it shall remain and ever stand
+All the power, all the glory
+I will trust in His name
+For my God is the Ancient of Days
 
-This is the day that the Lord has made
-We will rejoice as we lift His name
-This is the day that the Lord has made
-Come and rejoice, we will rejoice and be glad in it
+Verse 2
 
-This is the day
-Come and sing Your praise
-For the Lord now reigns
-On the throne of grace
-Soon is the day
-He will bring us home
-And we have this hope
-For we are His own
+Though the dread of night
+Overwhelms my soul
+He is here with me
+I am not alone
+O His love is sure and He knows my name
+For my God is the Ancient of Days
 
-This is the day
-Come and sing Your praise
-For the Lord now reigns
-On the throne of grace
-Soon is the day
-He will bring us home
-And we have this hope
-For we are His own
+Chorus
 
-This is the day that the Lord has made
-We will rejoice as we lift His name
-This is the day that the Lord has made
-Come and rejoice, we will rejoice and be glad in it
-Come and rejoice, we will rejoice and be glad in it
+None above Him, none before Him
+All of time in His hands
+For His throne it shall remain and ever stand
+All the power, all the glory
+I will trust in His name
+For my God is the Ancient of Days
 
-*© 2022 CityAlight Music; Words and Music by TIARNE TRANTER, JONNY ROBINSON & RICH THOMPSON 
+Verse 3
+
+Though I may not see
+What the future brings
+I will watch and wait
+For the Saviour King
+Then my joy complete standing face to face
+In the presence of the Ancient of Days
+
+Chorus
+
+None above Him, none before Him
+All of time in His hands
+For His throne it shall remain and ever stand
+All the power, all the glory
+I will trust in His name
+For my God is the Ancient of Days
+
+For my God is the Ancient of Days
+
+
+
+*CCLI: 7121851; Jonny Robinson, Rich Thompson,Michael Farren, Jesse Reeves; CityAlight Music CCLI 62951 (main copyright licence)CCLI 174113 (streaming licence)*
+
+
+
+**Jesus Paid It All**
+
+I hear the Savior say
+"Thy strength indeed is small
+Child of weakness, watch and pray
+Find in Me thine all in all"
+
+Jesus paid it all
+All to Him I owe
+Sin had left a crimson stain
+He washed it white as snow
+
+Lord, now indeed I find
+Thy power and Thine alone
+Can change the leper's spots
+And melt the heart of stone
+
+Jesus paid it all
+All to Him I owe
+Sin had left a crimson stain
+He washed it white as snow
+
+And when before the throne
+I stand in Him complete
+"Jesus died, my soul to save"
+My lips shall still repeat
+
+Jesus paid it all
+All to Him I owe
+Sin had left a crimson stain
+He washed it white as snow
+
+Oh, praise the One who paid my debt
+And raised this life up from the dead
+
+Oh, praise the One who paid my debt
+And raised this life up from the dead
+
+Oh, praise the One who paid my debt
+And raised this life up from the dead
+
+Oh, praise the One who paid my debt
+And raised this life up from the dead
+
+Jesus paid it all
+All to Him I owe
+Sin had left a crimson stain
+He washed it white as snow
+
+*Elvina M. Hall (1865); Alex Nifong (2019) CCLI 62951 (main copyright licence) CCLI 174113 (streaming licence)*
+
+
+
+
+**In Christ Alonew**
+
+In Christ alone my hope is found,
+He is my light, my strength, my song;
+This Cornerstone, this solid Ground,
+Firm through the fiercest drought and storm.
+What heights of love, what depths of peace,
+When fears are stilled, when strivings cease!
+My Comforter, my All in All,
+Here in the love of Christ I stand.
+
+In Christ alone! – who took on flesh,
+Fullness of God in helpless babe.
+This gift of love and righteousness,
+Scorned by the ones He came to save:
+Till on that cross as Jesus died,
+The wrath of God was satisfied –
+For every sin on Him was laid;
+Here in the death of Christ I live.
+
+There in the ground His body lay,
+Light of the world by darkness slain:
+Then bursting forth in glorious day
+Up from the grave He rose again!
+And as He stands in victory
+Sin’s curse has lost its grip on me,
+For I am His and He is mine –
+Bought with the precious blood of Christ.
+
+No guilt in life, no fear in death,
+This is the power of Christ in me;
+From life’s first cry to final breath,
+Jesus commands my destiny.
+No power of hell, no scheme of man,
+Can ever pluck me from His hand:
+Till He returns or calls me home,
+Here in the power of Christ I’ll stand.
+
+
+*Stuart Townend & Keith Getty Copyright © 2001 Thankyou Music
 CCLI 62951 (main copyright licence)
 CCLI 174113 (streaming licence)*
 
 
 
-**And Can It Be**
+**Yet Not I**
 
-And can it be that I should gain
-An int’rest in the Savior’s blood?
-Died He for me, who caused His pain?
-For me, who Him to death pursued?
-Amazing love! how can it be
-That Thou, my God, shouldst die for me?
-Amazing love! how can it be
-That Thou, my God, shouldst die for me?
+What gift of grace is Jesus, my Redeemer
+There is no more for Heaven now to give
+He is my joy, my righteousness, and freedom
+My steadfast love, my deep and boundless peace
 
-He left His Father’s throne above,
-So free, so infinite His grace;
-Emptied Himself of all but love,
-And bled for Adam’s helpless race:
-’Tis mercy all, immense and free;
-For, O my God, it found out me.
-’Tis mercy all, immense and free;
-For, O my God, it found out me.
+To this I hold, my hope is only Jesus
+For my life is wholly bound to His
+Oh, how strange and divine, I can sing, "All is mine"
+Yet not I, but through Christ in me
 
-Long my imprisoned spirit lay
-Fast bound in sin and nature’s night;
-Thine eye diffused a quickening ray,
-I woke, the dungeon flamed with light;
-My chains fell off, my heart was free,
-I rose, went forth, and followed Thee.
-My chains fell off, my heart was free,
-I rose, went forth, and followed Thee.
+The night is dark, but I am not forsaken
+For by my side, the Savior, He will stay
+I labor on in weakness and rejoicing
+For in my need, His power is displayed
 
-No condemnation now I dread;
-Jesus, and all in Him, is mine!
-Alive in Him, my living Head,
-And clothed in righteousness Divine,
-Bold I approach the eternal throne,
-And claim the crown, through Christ my own.
-Bold I approach the eternal throne,
-And claim the crown, through Christ my own.
+To this I hold, my Shepherd will defend me
+Through the deepest valley, He will lead
+Oh, the night has been won, and I shall overcome
+Yet not I, but through Christ in me
 
-Amazing love! how can it be
-That Thou, my God, shouldst die for me?
+No fate I dread, I know I am forgiven
+The future's sure, the price, it has been paid
+For Jesus bled and suffered for my pardon
+And He was raised to overthrow the grave
 
-*Lyrics: Charles Wesley, Music:Thomas Campbell; 1738
-CCLI 62951 (main copyright licence)
-CCLI 174113 (streaming licence)*
+To this I hold, my sin has been defeated
+Jesus, now and ever is my plea
+Oh, the chains are released, I can sing, "I am free"
+Yet not I, but through Christ in me
 
+With every breath, I long to follow Jesus
+For He has said that He will bring me home
+And day by day, I know He will renew me
+Until I stand with joy before the throne
 
+To this I hold, my hope is only Jesus
+All the glory evermore to Him
+When the race is complete, still my lips shall repeat
+"Yet not I, but through Christ in me"
 
-**Jesus Thank You**
-
-The mystery of the cross I cannot comprehend
-The agonies of Calvary
-You the perfect Holy One, crushed Your Son
-Who drank the bitter cup reserved for me
-
-Your blood has washed away my sin
-Jesus, thank You
-The Father’s wrath completely satisfied
-Jesus, thank You
-Once Your enemy, now seated at Your table
-Jesus, thank You
-
-By Your perfect sacrifice I’ve been brought near
-Your enemy You’ve made Your friend
-Pouring out the riches of Your glorious grace
-Your mercy and Your kindness know no end
-
-Your blood has washed away my sin
-Jesus, thank You
-The Father’s wrath completely satisfied
-Jesus, thank You
-Once Your enemy, now seated at Your table
-Jesus, thank You
-
-Lover of my soul
-I want to live for You
-Lover of my soul
-I want to live for You
-
-Your blood has washed away my sin
-Jesus, thank You
-The Father’s wrath completely satisfied
-Jesus, thank You
-Once Your enemy, now seated at Your table
-Jesus, thank You
-
-*Music and words by Pat Sczebel. © 2003 Sovereign Grace Worship
-CCLI: #4475341
-CCLI 62951 (main copyright licence)*
-
-
-
-**The Jesus Way**
-
-If you curse me then I will bless you
-If you hurt me I will forgive
-And if you hate me then I will love you
-I choose the Jesus way
-
-
-If you're helpless I will defend you
-And if you're burdened I'll share the weight
-And if you're hopeless then let me show you
-There's hope in the Jesus way
-
-
-I follow Jesus
-I follow Jesus
-He wore my sin
-I'll gladly wear His name
-He is the treasure
-He is the answer
-Oh I choose the Jesus way
-
-
-If you strike me I will embrace you
-And if you chain me I'll sing His praise
-And if you kill me my home is heaven
-For I choose the Jesus way
-
-
-I follow Jesus
-I follow Jesus
-He wore my sin
-I'll gladly wear His name
-He is the treasure
-He is the answer
-Oh I choose the Jesus way
-I choose surrender
-I choose to love
-Oh God my Savior
-You'll always be enough
-I choose forgiveness
-I choose grace
-I choose to worship
-No matter what I face
-
-
-I choose the Jesus way
-I choose the Jesus way
-I choose the Jesus way
-I choose the Jesus way
-
-
-I follow Jesus
-I follow Jesus
-He wore my sin
-I'll gladly wear His name
-He is the treasure
-He is the answer
-Oh I choose the Jesus way
-I choose the Jesus way
-
-*Phil Wickham 2023
+*Songwriters: Michael Farren / Rich Thompson / Jonny Robinson; CityAlight Music 2018
 CCLI 62951 (main copyright licence)
 CCLI 174113 (streaming licence)*
 
