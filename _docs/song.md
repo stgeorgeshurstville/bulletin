@@ -19,7 +19,7 @@ order: 1
 
 
 ### 9:30am Song Lyrics
-**His Mercy is More**
+<br><br>**His Mercy is More**<br><br>
 
 Chorus
 
@@ -119,7 +119,7 @@ CCLI 62951 (main copyright licence)
 CCLI 174113 (streaming licence)*
 
 
-**Lord I Lift Your Name on High**
+<br><br>**Lord I Lift Your Name on High**<br><br>
 Lord, I lift Your name on high.
 Lord, I love to sing Your praises.
 I'm so glad You're in my life;
@@ -162,7 +162,7 @@ CCLI 174113 (streaming licence)*
 
 
 
-**Trust and Obey**
+<br><br>**Trust and Obey**<br><br>
 When we walk with the Lord
 in the light of his word,
 what a glory he sheds on our way!
@@ -210,7 +210,7 @@ CCLI 62951 (main copyright licence)
 CCLI 174113 (streaming licence)*
 
 
-**Mighty To Save**
+<br><br> **Mighty To Save** <br><br>
 [Verse 1]
 Well, everyone needs compassion
 A love that's never failing
