@@ -20,150 +20,60 @@ order: 2
 ### Prayer
 Dear God, thank you for letting us know you. Please help us learn from your word. Help us to serve and praise you. **Amen!**
 
-### Isaiah 1 (NIV)
+### Isaiah 2:1-11 (NIV)
+¹ This is what Isaiah son of Amoz saw concerning Judah and Jerusalem:
+² In the last days
+the mountain of the Lord’s temple will be established
+as the highest of the mountains;
+it will be exalted above the hills,
+and all nations will stream to it.
 
-The vision concerning Judah and Jerusalem that Isaiah son of Amoz saw during the reigns of Uzziah, Jotham, Ahaz and Hezekiah, kings of Judah.
+³ Many peoples will come and say,
+“Come, let us go up to the mountain of the Lord,
+to the temple of the God of Jacob.
+He will teach us his ways,
+so that we may walk in his paths.”
+The law will go out from Zion,
+the word of the Lord from Jerusalem.
+⁴ He will judge between the nations
+and will settle disputes for many peoples.
+They will beat their swords into plowshares
+and their spears into pruning hooks.
+Nation will not take up sword against nation,
+nor will they train for war anymore.
 
-**A Rebellious Nation**
+⁵ Come, descendants of Jacob,
+let us walk in the light of the Lord.
 
-² Hear me, you heavens! Listen, earth!
-For the Lord has spoken:
-“I reared children and brought them up,
-but they have rebelled against me.
-³ The ox knows its master,
-the donkey its owner’s manger,
-but Israel does not know,
-my people do not understand.”
+⁶ You, Lord, have abandoned your people,
+the descendants of Jacob.
+They are full of superstitions from the East;
+they practice divination like the Philistines
+and embrace pagan customs.
+⁷ Their land is full of silver and gold;
+there is no end to their treasures.
+Their land is full of horses;
+there is no end to their chariots.
+⁸ Their land is full of idols;
+they bow down to the work of their hands,
+to what their fingers have made.
+⁹ So people will be brought low
+and everyone humbled—
+do not forgive them.
 
-⁴ Woe to the sinful nation,
-a people whose guilt is great,
-a brood of evildoers,
-children given to corruption!
-They have forsaken the Lord;
-they have spurned the Holy One of Israel
-and turned their backs on him.
-
-⁵ Why should you be beaten anymore?
-Why do you persist in rebellion?
-Your whole head is injured,
-your whole heart afflicted.
-⁶ From the sole of your foot to the top of your head
-there is no soundness—
-only wounds and welts
-and open sores,
-not cleansed or bandaged
-or soothed with olive oil.
-
-⁷ Your country is desolate,
-your cities burned with fire;
-your fields are being stripped by foreigners
-right before you,
-laid waste as when overthrown by strangers.
-⁸ Daughter Zion is left
-like a shelter in a vineyard,
-like a hut in a cucumber field,
-like a city under siege.
-⁹ Unless the Lord Almighty
-had left us some survivors,
-we would have become like Sodom,
-we would have been like Gomorrah.
-
-¹⁰ Hear the word of the Lord,
-you rulers of Sodom;
-listen to the instruction of our God,
-you people of Gomorrah!
-¹¹ “The multitude of your sacrifices—
-what are they to me?” says the Lord.
-“I have more than enough of burnt offerings,
-of rams and the fat of fattened animals;
-I have no pleasure
-in the blood of bulls and lambs and goats.
-¹² When you come to appear before me,
-who has asked this of you,
-this trampling of my courts?
-¹³ Stop bringing meaningless offerings!
-Your incense is detestable to me.
-New Moons, Sabbaths and convocations—
-I cannot bear your worthless assemblies.
-¹⁴ Your New Moon feasts and your appointed festivals
-I hate with all my being.
-They have become a burden to me;
-I am weary of bearing them.
-¹⁵ When you spread out your hands in prayer,
-I hide my eyes from you;
-even when you offer many prayers,
-I am not listening.
-
-Your hands are full of blood!
-
-¹⁶ Wash and make yourselves clean.
-Take your evil deeds out of my sight;
-stop doing wrong.
-¹⁷ Learn to do right; seek justice.
-Defend the oppressed. 
-Take up the cause of the fatherless;
-plead the case of the widow.
-
-¹⁸ “Come now, let us settle the matter,”
-says the Lord.
-“Though your sins are like scarlet,
-they shall be as white as snow;
-though they are red as crimson,
-they shall be like wool.
-¹⁹ If you are willing and obedient,
-you will eat the good things of the land;
-²⁰ but if you resist and rebel,
-you will be devoured by the sword.”
-For the mouth of the Lord has spoken.
-
-²¹ See how the faithful city
-has become a prostitute!
-She once was full of justice;
-righteousness used to dwell in her—
-but now murderers!
-²² Your silver has become dross,
-your choice wine is diluted with water.
-²³ Your rulers are rebels,
-partners with thieves;
-they all love bribes
-and chase after gifts.
-They do not defend the cause of the fatherless;
-the widow’s case does not come before them.
-
-²⁴ Therefore the Lord, the Lord Almighty,
-the Mighty One of Israel, declares:
-“Ah! I will vent my wrath on my foes
-and avenge myself on my enemies.
-²⁵ I will turn my hand against you; 
-I will thoroughly purge away your dross
-and remove all your impurities.
-²⁶ I will restore your leaders as in days of old,
-your rulers as at the beginning.
-Afterward you will be called
-the City of Righteousness,
-the Faithful City.”
-
-²⁷ Zion will be delivered with justice,
-her penitent ones with righteousness.
-²⁸ But rebels and sinners will both be broken,
-and those who forsake the Lord will perish.
-
-²⁹ “You will be ashamed because of the sacred oaks
-in which you have delighted;
-you will be disgraced because of the gardens
-that you have chosen.
-³⁰ You will be like an oak with fading leaves,
-like a garden without water.
-³¹ The mighty man will become tinder
-and his work a spark;
-both will burn together,
-with no one to quench the fire.”
+¹⁰ Go into the rocks, hide in the ground
+from the fearful presence of the Lord
+and the splendor of his majesty!
+¹¹ The eyes of the arrogant will be humbled
+and human pride brought low;
+the Lord alone will be exalted in that day.
 
 ## Sermon Outline
-
-- Part 1: The Horror of Our Spiritual State
-- Part 2: The Hypocrisy of Our Worship
-- Part 3: The Hope of God's Promise
+Walk in the light of the Lord
+- Why walk in the light?
+- Who is in the dark?
+- What does it mean to live in the dark or in the light?
+- Two ways to live
 
 
 
