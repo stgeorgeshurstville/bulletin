@@ -4,39 +4,37 @@ order: 4
 ---
 
 ## Collect
-Lord, we pray that your grace may always uphold and encourage us, and make us continually to be given to all good works; through Jesus Christ our Lord. Amen.
+Lord, give your people grace to withstand the temptations of the world, the flesh, and the devil, and with pure hearts and minds to follow you the only God; through Jesus Christ our Lord. Amen.
 
-## Week E
-
-
-| **From the Passage** | Gracious Father, <br><br> We thank you for the gospel of our Lord Jesus Christ—your power to save, to reconcile, to make new. We praise you that in Jesus’ death and resurrection, you have given us a sure hope and a clear call to live no longer for ourselves, but for him who loved us and gave himself for us. Lord, we see the breadth and depth of gospel application, how it speaks to every part of life: our fears, motives, relationships, even our methods of ministry. Nothing that matters to us is untouched by the gospel. Forgive us when we live as if it were narrow or small. Train us to apply it to ourselves with honesty, and to others with love. Father, we pray for those who are still your enemies—those who do not yet know Christ, those who reject him, those who ignore him. Have mercy, Lord. Break through their hardness of heart. We beg you: give us opportunities to tell them of Jesus, to plead with them as Paul did, to hold out the message of reconciliation and the love of Christ. And Father, begin with us. Break our hearts of stone, and replace them with hearts of flesh. Move us. Control us. Compel us with the love of Christ, so that we love like Jesus—patient, persistent, sacrificial. Free us from fear of people, and teach us to fear you instead. Use us, Lord, as your ambassadors. Make your appeal through us, that many might be reconciled to you. We ask this in the name of Jesus, our risen Lord and Judge, our Saviour and Friend. Amen. 
-
-| **Mission and Vision** | *For Growing Deep*: Write your own prayer. | 
-
-| **Global and Nation** | *Government*:  Write your own prayer. |
-
-| **Mission Partners** | <br><br> *JC in SE Asia:*
-*General info: JC is ministering in a secure location. Our support allows him to be in the country and share the gospel.*
-
-**Thanksgiving for the Ministry of JC:**
-- Give thanks that the church has been able to return to face-to-face gatherings after being online for several months.
-- Praise God for their senior minister, L, who is bringing people to the Word, especially through his Biblical Theology classes.
-- Give thanks for the significant growth of a young believer that JC is discipling, especially his amazement at the wonder of God's Word.
-  
-**Prayer Requests:**
-- Please pray for JC and L to have wisdom and humility as they lead the church.
-- Pray that JC would have wisdom as he trains this young believer to one day be able to train others.
-- Pray for the upcoming election of eight new deacons, that the congregation would choose faithful and capable leaders.
-- Pray for the leadership team as they seek to prioritize raising and training the next generation of leaders.
-
-*These points are from Noodle C’s September Newsletter.*
+## Week F
 
 
-<br><br> | **Church Ministries** | <br><br> *Evangelism teams*:
-Gracious Lord, we thank You for entrusting us with the privilege of sharing the Gospel with those who are lost and searching. Please give us spiritual eyes to see the people You bring into our lives, and hearts that are ready to speak of Christ with clarity, love, and boldness. We lift up to You the Kids Holiday Hub on October 13. We thank You for this opportunity to connect with children and families from our community. May every interaction be filled with Your grace and purpose. We pray that many will be drawn to know more about Jesus through this event. Unite and strengthen our evangelism team. Fill us with Your Spirit, so that both our words and our lives reflect the love, truth, and hope of Jesus. Help us to trust in Your power to work through us and to be faithful in sowing seeds for Your kingdom.
+| **From the Passage** |  
 
-<br><br>| **Groups in Church** | <br><br> *Cantonese congregation*:
-Heavenly Father, we thank You for leading our Cantonese congregation. You have called us to follow Jesus as His disciples, reflect His glory, and shine His light in a dark world. Help us not to live by sight, but by faith—looking to what is eternal and unseen. May our lives be ignited by the love of Christ, shaped by His grace, and lived out in service for Your glory and the good of others. Make us faithful ambassadors of the Gospel. Help us to see the souls redeemed by Your blood, and to carry out the mission You’ve entrusted to us, not in our own strength, but through the power of the Spirit. Unite and strengthen our ministry teams. In every challenge, teach us to rely on You and reflect Christ in all we do. May our church be a witness of hope, love, and new life in Jesus.
+| **Mission and Vision** | <br><br> *Shine for Jesus, Everywhere, Anytime:*
+Heavenly Father, Equip us with the wisdom and courage to be Your light in every corner of our lives—in our homes, workplaces, schools, and in the Hurstville community. Strengthen our commitment to proclaim Christ's glory, not just in our services, but in our daily actions. Help us to consistently reflect the love, truth, and grace of Jesus, so that those who do not yet know Him may be drawn to His saving light. Empower our ministries—English, Chinese, Nepali, and all future works—to boldly embody this vision. May we be a church that never hides its lamp, but shines brightly for Your name's sake. Amen.
+
+| **Global and Nation** | <br><br> *Government*: Almighty God, we pray for our government in Australia. You have appointed leaders to uphold justice and bring peace. Grant wisdom and integrity to our Prime Minister, members of Parliament, and all in authority, that they may serve the people with fairness and compassion, especially the vulnerable and marginalized. As our nation faces economic, social, and international challenges, guide them to make decisions that align with Your truth and goodness. Raise up faithful men and women in government to be salt and light, bringing righteousness and hope to our nation. In Jesus’ name we pray, Amen.
+
+
+| **Mission Partners** | <br><br> *Mellisa Wang at Focus Adelaide:*
+FOCUS is a group for international students at Adelaide Uni. Mellisa seeks to support their student committee in running the group's weekly activities. She also meets one to one with female students to disciple them through reading the Bible and prayer. These are some prayer points and prayers from her latest Newsletter
+*1.  For Fiona (New Christian)*
+- Context: Fiona is a recent convert who put her faith in Jesus after the Mid Year Conference (MYC) and has had a huge hunger for God's word ever since. 
+- Prayer: "Please keep praying that God's power will guard Fiona through faith for a salvation ready to be revealed in the last time."
+
+*2. Students: Shifting Focus to God's Eternal Will*
+- Context: Many students, especially international ones, are anxious about their uncertain future (jobs, visa status) and devote their energy to temporary goals, building a "sandcastle" life that will not last. They need to be reoriented to trust God's plans and live for His kingdom instead of their own anxieties.
+- Prayer: "Father, you are the giver of life and all good gifts. Please help students to recognise this and enjoy the gift of life, friends, study, and everything. But please let them take your word of warning to heart and not live for this life. Help them to fear you and keep your commandments. Thank you for giving us your word and Spirit to guide us. Please help FOCUS students to seek, know, and live for your will. Please grow their trust in your plans, especially when their plans seem to be failing. Please help them to desire holiness, and let their greatest longing be Jesus and for others to know Jesus."
+
+*3. New Christian Students* 
+- Context: The ministry is seeing new interest, with both newly arrived Christian students considering moving interstate for visa reasons and several non-Christian students like Rhys and Lucy showing openness to Jesus by attending the Bible study group. The ministry also needs a faithful, teachable group of students to form next year's committee.
+- Prayer: "Father, please be guiding the newly arrived students to make decisions that will enable them to grow in faith, love, trust and godliness. Please provide a faithful and teachable group of students for next year's committee. Thank you for bringing Rhys and other unbelievers to Friday nights. Please work in their hearts so they'd be willing to learn more about Jesus through reading a Gospel. Please help Rhys to see the hope and love Jesus has to offer to him. Please give Lucy a curiosity to meet Jesus."
+
+<br><br> | **Church Ministries** | <br><br> *Youth:*
+Loving Lord, we place our young people into Your hands. As they take a break from school, please protect their minds, bodies, and spirits, keeping them safe from temptation and harm. May their times of rest, fun, and friendship also be filled with Your presence. Stir their hearts to draw closer to You in prayer, in reading the Bible, and through fellowship with the church. Grant them renewal and strength during this holiday so they may return ready to face the new term with faith and wisdom. Through Jesus Christ our Lord we pray, Amen.
+
+<br><br>| **Groups in Church** | <br><br> *Mandarin Congregation*:
 
 
 
