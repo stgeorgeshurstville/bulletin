@@ -19,23 +19,13 @@ In anticipation of our Kids Holiday Hub, which kicks off on October 13th, we're 
 
 **Kids Holiday Hub**
 
-*A Day to Explore the World of Robotics*
+We are thrilled to announce that our Kids Holiday Hub is nearly at capacity!
+As of our last check, there is just one spot remaining for the day!
+Please join us in taking a moment to give thanks:
+- Thank God for His generosity in providing all these wonderful children He has placed in our care for the day, many of whom have very little prior connection to our church.
+- Thank our willing leaders who are taking time out of their schedules and work hours to serve our church and His Gospel.
+- We ask that you also please pray that many seeds will be planted in the hearts of these children.
 
-Registration is now open!
-We're excited to announce that registration for our upcoming event is officially open! Since spots are limited, we'd love for you and your family to be among the first to sign up. We also encourage you to see this as a prayerful mission opportunity. After you have registered your own child, please encourage their friends to join in the fun. This will be a great way for them to learn about Jesus and get to know our community.
-
-**Here's a bit about what the day will consist of:**
-On October 13th, during the pupil-free day, our church is hosting a holiday program for children in years K-6. The day will include an interactive robotics session run by Sydney Robotics Academy. There will also be time to consider the God who created a world full of incredible innovations.
-
-**Event Details**
-
-**Cost:** $35 (includes morning tea and lunch)
-
-**Time:** 9:00am - 3:00pm
-
-**Location:** St George's Hurstville Anglican Church - 2 The Avenue, Hurstville
-
-**Registration:** To register, click on this link: [here](https://www.eventbrite.com/e/kids-holiday-hub-tickets-1704850566939?aff=oddtdtcreator)
 
 ![Robotics day](https://github.com/stgeorgeshurstville/bulletin/blob/1c751638511b728d4d8ee0f1e231d96e34e2347d/images/Robotics%20day.jpg)
 
@@ -64,13 +54,11 @@ All are welcome, and invite a friend!
 
 ![Illuminate](https://github.com/stgeorgeshurstville/bulletin/blob/dc8c1bc1762663fa2114c193276f41465e2a1d4a/images/Illuminate.png)
 
-**Berkeley Life Centre: Summer Clothing Donations** 
+**Berkeley Life Centre: Summer Clothing Donations - A Big Success!** 
 
-As the seasons change, our mission partners at Berkeley Life Centre are restocking their Op Shop for the warmer months. They're looking for donations of summer clothing, bed linen, and baby and children's wear to help those in our community.
+A huge thank you to everyone who generously donated summer clothing over the last couple of weeks for the Berkeley Life Centre (BLC)! BLC Senior Pastor Beejai came on Monday to pick up the clothes, and his 4WD vehicle was comfortably filled to nearly every available inch! Your kindness will make a real difference to individuals and families in the community supported by the Berkeley Life Centre.
+Thank you again for your wonderful generosity!
 
-If you have items you'd like to donate, you can place them on the floor in front of the dedicated shelves behind the stage.
-
-A huge thank you to everyone who has already donated! Please note that we have limited space for storage at the church, so we will not be able to accept any more clothes after **Saturday, September 28.**
 
 
 **Growing in Our Welcoming:**
