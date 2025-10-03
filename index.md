@@ -11,12 +11,12 @@ title: Welcome
 
 ## Isaiah - A Light Would Dawn
 
-### The Vision of Isaiah 
+### The Day of the Lord 
 
 
 
-#### Hear, O Lord, when I cry aloud, be gracious to me and answer me. Cast me not off, forsake me not, God of my salvation. 
-#### Psalm 27:7-9
+#### We have thought on your steadfast love, O God, in the midst of your temple. As your name, so your praise reaches to the end of the earth. Your right hand is filled with victory. 
+#### Psalm 48:9-10 
 
 ---
 - We are gathering in person! For people who can’t gather in person, you can watch online [here](https://stgeorgeshurstville.org.au/sunday-english-online)
