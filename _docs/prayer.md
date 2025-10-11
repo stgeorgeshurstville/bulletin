@@ -4,15 +4,18 @@ order: 4
 ---
 
 ## Collect
-Lord, give your people grace to withstand the temptations of the world, the flesh, and the devil, and with pure hearts and minds to follow you the only God; through Jesus Christ our Lord. Amen.
+Lord God, without you we are not able to please you; mercifully grant that your Holy Spirit may in all things direct and rule our hearts; through Jesus Christ our Lord. Amen.
 
-## Week F
+## Week G
 
 
 | **From the Passage** |  
 
-| **Mission and Vision** | <br><br> *Shine for Jesus, Everywhere, Anytime:*
-Heavenly Father, Equip us with the wisdom and courage to be Your light in every corner of our lives—in our homes, workplaces, schools, and in the Hurstville community. Strengthen our commitment to proclaim Christ's glory, not just in our services, but in our daily actions. Help us to consistently reflect the love, truth, and grace of Jesus, so that those who do not yet know Him may be drawn to His saving light. Empower our ministries—English, Chinese, Nepali, and all future works—to boldly embody this vision. May we be a church that never hides its lamp, but shines brightly for Your name's sake. Amen.
+**Mission and Vision** 
+<br><br> *Shine for Jesus, Everywhere, Anytime:*
+Thank You for calling us to be Your people and for giving our church a vision to shine for Jesus—everywhere, anytime. Strengthen us to live out this mission with love, humility, and courage. Help us reach our community and the nations with the light of Christ, building one another up in faith and serving with joy. May all we do bring glory to Your name and draw others to Your saving grace.
+In Jesus’ name we pray, Amen.
+
 
 | **Global and Nation** | <br><br> *Government*: Almighty God, we pray for our government in Australia. You have appointed leaders to uphold justice and bring peace. Grant wisdom and integrity to our Prime Minister, members of Parliament, and all in authority, that they may serve the people with fairness and compassion, especially the vulnerable and marginalized. As our nation faces economic, social, and international challenges, guide them to make decisions that align with Your truth and goodness. Raise up faithful men and women in government to be salt and light, bringing righteousness and hope to our nation. In Jesus’ name we pray, Amen.
 
