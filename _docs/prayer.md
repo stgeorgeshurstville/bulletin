@@ -10,7 +10,7 @@ Lord God, without you we are not able to please you; mercifully grant that your 
 
 
 **From the Passage**
-Write your own prayer
+<br><br> Write your own prayer
 
 **Mission and Vision** 
 <br><br> *Shine for Jesus, Everywhere, Anytime:*  
