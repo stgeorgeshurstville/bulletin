@@ -13,14 +13,9 @@ order: 5
 | 15 November | Illuminate - A night of Prayer and Praise | 7:00pm |
 
 ## General
-**Working Bee**
+**Kids Holiday Hub is FULL!**
 
-In anticipation of our Kids Holiday Hub, which kicks off on October 13th, we're holding a church working bee on Saturday, October 11th, starting at 9:00 am. We're looking to get the site clean and tidy for all the fun! Your help would be greatly appreciated. Even if you can only spare a couple of hours, every little bit makes a big difference.
-
-**Kids Holiday Hub**
-
-We are thrilled to announce that our Kids Holiday Hub is nearly at capacity!
-As of our last check, there is just one spot remaining for the day!
+We are thrilled to announce that our Kids Holiday Hub is at capacity!
 Please join us in taking a moment to give thanks:
 - Thank God for His generosity in providing all these wonderful children He has placed in our care for the day, many of whom have very little prior connection to our church.
 - Thank our willing leaders who are taking time out of their schedules and work hours to serve our church and His Gospel.
