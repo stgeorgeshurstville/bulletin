@@ -18,12 +18,12 @@ Thank You for calling us to be Your people and for giving our church a vision to
 In Jesus’ name we pray, Amen.
 
 
-**Global and Nation** 
+| **Global and Nation** |
 <br><br> *Local*:  
 We thank you Lord  for placing us in the heart of Hurstville—a community rich in culture and diversity. We pray for Your peace, justice, and love to dwell among our neighbours. Open doors for us to share the hope of Jesus with people from every nation and language. Strengthen local families, schools, and businesses; bring comfort to the lonely, the sick, and the struggling. May our church be a light in this city, reflecting Christ’s compassion and truth in all we do. Amen.
 
 
-**Mission Partners** 
+| **Mission Partners** |
 <br><br> *Mathys and PNG*  
 General info: There are >800 languages spoken in Papua New Guinea, but only 13 have complete bibles. Calvin and Ruth work alongside Papua New Guineans in roles that support the ongoing ministry of bible translation. Calvin is an aircraft maintenance engineer, in order to provide transport and logistics support for bible translators. Ruth provides training for the bible translators, so that locals can take the lead in this work. 
 
@@ -34,7 +34,15 @@ Prayer Points for the Mathys Family from their August Newsletter.
 - Pray for senior leaders of JAARS and SIL-PNG as they finalize the formal agreement.
 - Pray for Calvin in his role as Maintenance Controller.
 
+2. For Ruth's translation work:
+- Give thanks for Ruth's attendance at the Scripture typesetting course and for the skills she learned.
+- Pray for her as she works on the spelling consistency of the Somba-Siawari Old Testament translation.
+- Pray for the Teop language group as Ruth prepares a trial booklet of New Testament epistles for them.
 
+3. For the children's schooling and financial situation:
+- Pray for Andreas and Petra as they balance classroom and online schooling. Pray for Andreas's full schedule and for Petra's limited in-person classes due to teacher shortages.
+- Pray for Jakob's financial situation, specifically that Centrelink will resolve the issue with his living allowance so he can focus on his studies.
+- Pray for Jakob as he seeks part-time work to help with his finances.
 
 
 
