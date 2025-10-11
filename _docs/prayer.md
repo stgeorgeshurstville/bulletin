@@ -51,7 +51,7 @@ Gracious Father, we are grateful for all who serve faithfully behind the scenes 
 
 
 **Groups in Church**
-<br><br> *Nepali Church*:
+<br><br> *Nepali Church*:  
 We pray  for the growth and faith of our Nepali congregation. Thank You for bringing brothers and sisters from Nepal to worship and serve together with us. We pray for Pastor Bijaya, Kate, and all who lead and care for this ministry — give them wisdom, unity, and strength. May the Nepali church continue to shine Your light in their community, reaching friends and families with the good news of Jesus. Help them stand firm in faith, filled with joy and hope in Christ. Amen
 
 
