@@ -18,7 +18,7 @@ Thank You for calling us to be Your people and for giving our church a vision to
 In Jesus’ name we pray, Amen.
 
 
-| **Global and Nation** |
+|  **Global and Nation**  |
 <br><br> *Local*:  
 We thank you Lord  for placing us in the heart of Hurstville—a community rich in culture and diversity. We pray for Your peace, justice, and love to dwell among our neighbours. Open doors for us to share the hope of Jesus with people from every nation and language. Strengthen local families, schools, and businesses; bring comfort to the lonely, the sick, and the struggling. May our church be a light in this city, reflecting Christ’s compassion and truth in all we do. Amen.
 
