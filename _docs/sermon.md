@@ -20,60 +20,51 @@ order: 2
 ### Prayer
 Dear God, thank you for letting us know you. Please help us learn from your word. Help us to serve and praise you. **Amen!**
 
-### Isaiah 2:1-11 (NIV)
-¹ This is what Isaiah son of Amoz saw concerning Judah and Jerusalem:
-² In the last days
-the mountain of the Lord’s temple will be established
-as the highest of the mountains;
-it will be exalted above the hills,
-and all nations will stream to it.
+### Isaiah 5:1-7 (NIRV)
 
-³ Many peoples will come and say,
-“Come, let us go up to the mountain of the Lord,
-to the temple of the God of Jacob.
-He will teach us his ways,
-so that we may walk in his paths.”
-The law will go out from Zion,
-the word of the Lord from Jerusalem.
-⁴ He will judge between the nations
-and will settle disputes for many peoples.
-They will beat their swords into plowshares
-and their spears into pruning hooks.
-Nation will not take up sword against nation,
-nor will they train for war anymore.
+**The Song of the Vineyard**
 
-⁵ Come, descendants of Jacob,
-let us walk in the light of the Lord.
+¹ I will sing a song for the Lord.  
+He is the one I love.  
+It’s a song about his vineyard Israel.  
+The one I love had a vineyard.  
+It was on a hillside that had rich soil.  
+² He dug up the soil and removed its stones.  
+He planted the very best vines in it.   
+He built a lookout tower there.  
+He also cut out a winepress for it.  
+Then he kept looking for a crop of good grapes.  
+But the vineyard produced only bad fruit.  
 
-⁶ You, Lord, have abandoned your people,
-the descendants of Jacob.
-They are full of superstitions from the East;
-they practice divination like the Philistines
-and embrace pagan customs.
-⁷ Their land is full of silver and gold;
-there is no end to their treasures.
-Their land is full of horses;
-there is no end to their chariots.
-⁸ Their land is full of idols;
-they bow down to the work of their hands,
-to what their fingers have made.
-⁹ So people will be brought low
-and everyone humbled—
-do not forgive them.
+³ So the Lord said, “People of Jerusalem and Judah,  
+you be the judge between me and my vineyard.  
+⁴ What more could I have done for my vineyard?  
+I did everything I could.  
+I kept looking for a crop of good grapes.  
+So why did it produce only bad ones?  
+⁵ Now I will tell you  
+what I am going to do to my vineyard.  
+I will take away its fence.  
+And the vineyard will be destroyed.  
+I will break down its wall.  
+And people will walk all over my vineyard.  
+¹ I will turn my vineyard into a dry and empty desert.  
+It will not be pruned or taken care of.  
+Thorns and bushes will grow there.  
+I will command the clouds  
+not to rain on it.”  
 
-¹⁰ Go into the rocks, hide in the ground
-from the fearful presence of the Lord
-and the splendor of his majesty!
-¹¹ The eyes of the arrogant will be humbled
-and human pride brought low;
-the Lord alone will be exalted in that day.
+⁷ The vineyard of the Lord who rules over all  
+is the nation of Israel.  
+The people of Judah  
+are the vines he took delight in.  
+He kept looking for them to do what is fair.  
+But all he saw was blood being spilled.  
+He kept looking for them to do what is right.  
+But all he heard were cries of suffering.  
 
 ## Sermon Outline
-Walk in the light of the Lord
-- Why walk in the light?
-- Who is in the dark?
-- What does it mean to live in the dark or in the light?
-- Two ways to live
+**Israel failed to shine**
 
 
 
