@@ -9,18 +9,43 @@ Lord God, without you we are not able to please you; mercifully grant that your 
 ## Week G
 
 
-| **From the Passage** |  
+**From the Passage**
+Write your own prayer
 
 **Mission and Vision** 
-<br><br> *Shine for Jesus, Everywhere, Anytime:*
+<br><br> *Shine for Jesus, Everywhere, Anytime:*  
 Thank You for calling us to be Your people and for giving our church a vision to shine for Jesus—everywhere, anytime. Strengthen us to live out this mission with love, humility, and courage. Help us reach our community and the nations with the light of Christ, building one another up in faith and serving with joy. May all we do bring glory to Your name and draw others to Your saving grace.
 In Jesus’ name we pray, Amen.
 
 
-| **Global and Nation** | <br><br> *Government*: Almighty God, we pray for our government in Australia. You have appointed leaders to uphold justice and bring peace. Grant wisdom and integrity to our Prime Minister, members of Parliament, and all in authority, that they may serve the people with fairness and compassion, especially the vulnerable and marginalized. As our nation faces economic, social, and international challenges, guide them to make decisions that align with Your truth and goodness. Raise up faithful men and women in government to be salt and light, bringing righteousness and hope to our nation. In Jesus’ name we pray, Amen.
+**Global and Nation** 
+<br><br> *Local*:  
+We thank you Lord  for placing us in the heart of Hurstville—a community rich in culture and diversity. We pray for Your peace, justice, and love to dwell among our neighbours. Open doors for us to share the hope of Jesus with people from every nation and language. Strengthen local families, schools, and businesses; bring comfort to the lonely, the sick, and the struggling. May our church be a light in this city, reflecting Christ’s compassion and truth in all we do. Amen.
 
 
-| **Mission Partners** | <br><br> *Mellisa Wang at Focus Adelaide:*
+**Mission Partners** 
+<br><br> *Mathys and PNG*  
+General info: There are >800 languages spoken in Papua New Guinea, but only 13 have complete bibles. Calvin and Ruth work alongside Papua New Guineans in roles that support the ongoing ministry of bible translation. Calvin is an aircraft maintenance engineer, in order to provide transport and logistics support for bible translators. Ruth provides training for the bible translators, so that locals can take the lead in this work. 
+
+Prayer Points for the Mathys Family from their August Newsletter. 
+
+1. For the transition of SIL Aviation to JAARS:
+- Give thanks for the new engineers and pilots arriving to help the struggling aviation department.
+- Pray for senior leaders of JAARS and SIL-PNG as they finalize the formal agreement.
+- Pray for Calvin in his role as Maintenance Controller.
+
+
+
+
+
+
+
+
+
+
+
+
+
 FOCUS is a group for international students at Adelaide Uni. Mellisa seeks to support their student committee in running the group's weekly activities. She also meets one to one with female students to disciple them through reading the Bible and prayer. These are some prayer points and prayers from her latest Newsletter
 *1.  For Fiona (New Christian)*
 - **Context:** Fiona is a recent convert who put her faith in Jesus after the Mid Year Conference (MYC) and has had a huge hunger for God's word ever since. 
