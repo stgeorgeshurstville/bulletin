@@ -20,7 +20,6 @@ order: 1
 
 ### 9:30am Song Lyrics
 <br><br>**Only By Grace**<br><br>
-
 Only by grace can we enter  
 Only by grace can we stand  
 Not by our human endeavour  
@@ -31,30 +30,28 @@ Into Your presence You draw us
 And now by Your grace we come  
 And now by Your grace we come  
 
-Lord if You marked our transgressions 
-who would stand 
-Thanks to Your grace we are cleansed 
-by the blood of the Lamb 
-Lord if You marked our transgressions 
-who would stand 
-Thanks to Your grace we are cleansed 
-by the blood of the Lamb 
+Lord if You marked our transgressions  
+who would stand  
+Thanks to Your grace we are cleansed  
+by the blood of the Lamb  
+Lord if You marked our transgressions  
+who would stand  
+Thanks to Your grace we are cleansed  
+by the blood of the Lamb  
  
-Only by grace can we enter 
-Only by grace can we stand 
-Not by our human endeavour 
-But by the blood of the Lamb 
-Into Your presence You call us 
-You call us to come 
-Into Your presence You draw us 
-And now by Your grace we come 
-And now by Your grace we come 
+Only by grace can we enter  
+Only by grace can we stand  
+Not by our human endeavour  
+But by the blood of the Lamb  
+Into Your presence You call us  
+You call us to come  
+Into Your presence You draw us  
+And now by Your grace we come  
+And now by Your grace we come  
 
-© 1990 Gerrit Gustafson, Integrity's Hosanna! Music 
-CCLI 62951 (main copyright licence) 
-CCLI 174113 (streaming licence) 
-
-
+© 1990 Gerrit Gustafson, Integrity's Hosanna! Music  
+CCLI 62951 (main copyright licence)  
+CCLI 174113 (streaming licence)  
 
 
 
