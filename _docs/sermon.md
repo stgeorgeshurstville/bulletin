@@ -65,9 +65,9 @@ But all he heard were cries of suffering.
 
 ## Sermon Outline
 **Israel failed to shine**
-
-
-
+  
+  
+  
 
 ## Q&A
 Got questions or comments? Send them [here](https://tinyurl.com/SGHACQuestionsAnswers)
