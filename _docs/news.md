@@ -7,7 +7,6 @@ order: 5
 
 | Date | Event | Time |
 | ---- | ---- | ---- |
-| 11 October | Working Bee at Church | 9:00am |
 | 13 October | Kids Holiday Hub - Robotics Day | 9:00am |
 | 26 October | Life Course | 5:30pm |
 | 15 November | Illuminate - A night of Prayer and Praise | 7:00pm |
