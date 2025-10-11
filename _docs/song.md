@@ -4,119 +4,58 @@ order: 1
 ---
 
 ## 9:30am
-1. His Mercy is More
-2. Lord I Lift Your Name on High
-3. Trust and Obey
-4. Yet Not I 
+1. Only By Grace
+2. Cornerstone
+3. Have Mercy on Me
+4. Creation Awaits
 
 **Scroll below for 9:30am song lyrics**
 
 ## 4:00pm
-1. Apostle's Creed
-2. Ancient of Days
-3. On That Day
-4. On That Day
+1. Ancient of Days
+2. Jesus is the Mighty Mighty King
+3. Before the Throne of God Above
+4. Only a Holy God
 
 
 ### 9:30am Song Lyrics
-<br><br>**His Mercy is More**<br><br>
+<br><br>**Only By Grace**<br><br>
 
-Chorus
+Only by grace can we enter 
+Only by grace can we stand 
+Not by our human endeavour 
+But by the blood of the Lamb 
+Into Your presence You call us 
+You call us to come 
+Into Your presence You draw us 
+And now by Your grace we come 
+And now by Your grace we come 
 
-Praise the Lord
+Lord if You marked our transgressions 
+who would stand 
+Thanks to Your grace we are cleansed 
+by the blood of the Lamb 
+Lord if You marked our transgressions 
+who would stand 
+Thanks to Your grace we are cleansed 
+by the blood of the Lamb 
+ 
+Only by grace can we enter 
+Only by grace can we stand 
+Not by our human endeavour 
+But by the blood of the Lamb 
+Into Your presence You call us 
+You call us to come 
+Into Your presence You draw us 
+And now by Your grace we come 
+And now by Your grace we come 
 
-His mercy is more
-
-Stronger than darkness
-
-New every morn’
-
-Our sins they are many, His mercy is more
-
-Verse 1
-
-What love could remember, no wrongs we have done
-
-Omniscient, all-knowing, He counts not their sum
-
-Thrown into a sea without bottom or shore
-
-Our sins they are many, His mercy is more
-
-Chorus
-
-Praise the Lord
-
-His mercy is more
-
-Stronger than darkness
-
-New every morn’
-
-Our sins they are many, His mercy is more
-
-Verse 2
-
-What patience would wait as we constantly roam
-
-What Father so tender is calling us home
-
-He welcomes the weakest, the vilest, the poor
-
-Our sins they are many, His mercy is more
-
-Chorus
-
-Praise the Lord
-
-His mercy is more
-
-Stronger than darkness
-
-New every morn’
-
-Our sins they are many, His mercy is more
-
-Verse 3
-
-What riches of kindness He lavished on us
-
-His blood was the payment His life was the cost
-
-We stood ‘neath a debt we could never afford
-
-Our sins they are many, His mercy is more
-
- Chorus
-
-Praise the Lord
-
-His mercy is more
-
-Stronger than darkness
-
-New every morn’
-
-Our sins they are many, His mercy is more
-
-Chorus
-
-Praise the Lord
-
-His mercy is more
-
-Stronger than darkness
-
-New every morn’
-
-Our sins they are many, His mercy is more
-
-Our sins they are many, His mercy is more
+© 1990 Gerrit Gustafson, Integrity's Hosanna! Music 
+CCLI 62951 (main copyright licence) 
+CCLI 174113 (streaming licence) 
 
 
-*Words and Music: Matt Boswell and Matt Papa; © 2016 Getty Music Hymns and Songs
-CCLI 62951 (main copyright licence)
-CCLI 174113 (streaming licence)*
+
 
 
 <br><br>**Lord I Lift Your Name on High**<br><br>
