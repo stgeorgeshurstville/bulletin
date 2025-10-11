@@ -9,7 +9,7 @@ Lord God, without you we are not able to please you; mercifully grant that your 
 ## Week G
 
 
-**From the Passage**
+### **From the Passage**
 <br><br> Write your own prayer
 
 **Mission and Vision** 
