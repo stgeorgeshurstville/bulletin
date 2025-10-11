@@ -19,7 +19,7 @@ order: 1
 
 
 ### 9:30am Song Lyrics
-<br><br>**Only By Grace**<br><br>
+<br><br>**1. Only By Grace**<br><br>
 Only by grace can we enter  
 Only by grace can we stand  
 Not by our human endeavour  
@@ -54,146 +54,147 @@ CCLI 62951 (main copyright licence)
 CCLI 174113 (streaming licence)  
 
 
+<br><br>**2. Cornerstone**<br><br>
+My hope is built on nothing less  
+Than Jesus blood and righteousness  
+I dare not trust the sweetest frame  
+But wholly trust in Jesus name  
+My hope is built on nothing less  
+Than Jesus blood and righteousness  
+I dare not trust the sweetest frame  
+But wholly trust in Jesus name  
 
-<br><br>**Lord I Lift Your Name on High**<br><br>
-Lord, I lift Your name on high.
-Lord, I love to sing Your praises.
-I'm so glad You're in my life;
-I'm so glad You came to save us.
+Christ alone, Cornerstone  
+Weak made strong in the Saviour's love  
+Through the storm, He is Lord  
+Lord of all  
 
-You came from Heaven to earth
-To show the way.
-From the Earth to the cross,
-My debt to pay.
-From the cross to the grave,
-From the grave to the sky;
-Lord, I lift Your name on high.
+When darkness seems to hide His face  
+I rest on His unchanging grace  
+In every high and stormy gale  
+My anchor holds within the veil  
+My anchor holds within the veil  
 
-Lord, I lift Your name on high.
-Lord, I love to sing Your praises.
-I'm so glad You're in my life;
-I'm so glad You came to save us.
+Christ alone, Cornerstone  
+Weak made strong in the Saviour's love  
+Through the storm, He is Lord  
+Lord of all  
+He is Lord, Lord of all  
 
-You came from Heaven to earth
-To show the way.
-From the Earth to the cross,
-My debt to pay.
-From the cross to the grave,
-From the grave to the sky;
-Lord, I lift Your name on high.
+Christ alone, Cornerstone  
+Weak made strong in the Saviour's love  
+Through the storm, He is Lord  
+Lord of all  
 
-You came from Heaven to earth
-To show the way.
-From the Earth to the cross,
-My debt to pay.
-From the cross to the grave,
-From the grave to the sky;
-Lord, I lift Your name on high.
+Christ alone, Cornerstone  
+Weak made strong in the Saviour's love  
+Through the storm, He is Lord  
+Lord of all  
 
-Lord, I lift Your name on high.
+When He shall come with trumpet sound  
+Oh may I then in Him be found  
+Dressed in His righteousness alone  
+Faultless stand before the throne  
 
-*Copyright © 1989 Maranatha Praise
-CCLI 62951 (main copyright licence)
-CCLI 174113 (streaming licence)*
+Christ alone, Cornerstone  
+Weak made strong in the Saviour's love  
+Through the storm, He is Lord  
+Lord of all  
 
+Christ alone, Cornerstone  
+Weak made strong in the Saviour's love  
+Through the storm, He is Lord  
+Lord of all  
 
-
-<br><br>**Trust and Obey**<br><br>
-When we walk with the Lord
-in the light of his word,
-what a glory he sheds on our way!
-While we do his good will,
-he abides with us still,
-and with all who will trust and obey.
-
-Trust and obey, for there's no other way
-to be happy in Jesus, but to trust and obey.
-
-Not a burden we bear,
-not a sorrow we share,
-but our toil he doth richly repay;
-not a grief or a loss,
-not a frown or a cross,
-but is blest if we trust and obey.
-
-Trust and obey, for there's no other way
-to be happy in Jesus, but to trust and obey.
-
-But we never can prove
-the delights of his love
-until all on the altar we lay;
-for the favor he shows,
-for the joy he bestows,
-are for them who will trust and obey. 
-
-Trust and obey, for there's no other way
-to be happy in Jesus, but to trust and obey.
-
-Then in fellowship sweet
-we will sit at his feet,
-or we'll walk by his side in the way;
-what he says we will do,
-where he sends we will go;
-never fear, only trust and obey.
-
-Trust and obey, for there's no other way
-to be happy in Jesus, but to trust and obey.
+@ 2012 Hillsong worship | Reuben Morgan, Andrew Crawford.  
+CCLI 62951 (main copyright licence)  
+CCLI 174113 (streaming licence)  
 
 
+<br><br>**3. Have Mercy on Me**<br><br>
+I am a sinner; You’re blameless, Lord    
+My sins against You can’t be ignored  
+They will be punished, I know they must  
+Your law demands it, for You are just  
 
-*John H. Sammis (1887)
-CCLI 62951 (main copyright licence)
-CCLI 174113 (streaming licence)*
+If You would count  
+Everything that I’ve done wrong  
+Who could stand?  
+But there’s forgiveness with You, God  
 
+Have mercy on me, have mercy on me  
+A broken and a contrite heart  
+You won’t turn away  
+Have mercy on me, have mercy on me  
+Because of Your steadfast love  
 
-<br><br> **Mighty To Save** <br><br>
-[Verse 1]
-Well, everyone needs compassion
-A love that's never failing
-Let mercy fall on me
-Well, everyone needs forgiveness
-The kindness of a Saviour
-The hope of nations
+Father of mercy, You gave Your Son  
+To make atonement for wrongs I have done   
+What You required, Jesus fulfilled  
+I don’t deserve it— I never will  
 
-[Chorus]
-Saviour, He can move the mountains
-And my God is mighty to save, He is mighty to save
-Forever, Author of Salvation
-He rose and conquered the grave
-Jesus conquered the grave
+If You would count  
+Everything that I’ve done wrong    
+Who could stand?  
+But there’s forgiveness with You, God  
 
-[Verse 2]
-So take me as You find me
-All my fears and failures
-And fill my life again
-I give my life to follow
-Everything I believe in
-And now I surrender, I surrender
+Have mercy on me, have mercy on me  
+A broken and a contrite heart  
+You won’t turn away  
+Have mercy on me, have mercy on me  
+Because of Your steadfast love  
 
-[Chorus]
-Saviour, He can move the mountains
-My God is mighty to save, He is mighty to save
-Forever, Author of Salvation
-He rose and conquered the grave
-Jesus conquered the grave
-
-[Bridge]
-Shine your light and let the whole world see
-We're singing for the glory of the risen King, Jesus
-Shine your light and let the whole world see
-We're singing for the glory of the risen King
-
-[Chorus]
-Saviour, He can move the mountains
-My God is mighty to save, He is mighty to save
-Forever, Author of Salvation
-He rose and conquered the grave
-Jesus conquered the grave
+© 2011 Sovereign Grace Praise/BMI, Sovereign Grace Worship  
+CCLI 62951 (main copyright licence)  
+CCLI 174113 (streaming licence)  
 
 
-*Ben Fielding and Reuben Morgan; Hillsong 
-CCLI 62951 (main copyright licence)
-CCLI 174113 (streaming licence)*
+<br><br> **4. Creation Awaits** <br><br>
+I am alive, saved by Your sacrifice  
+Death overcome, glory dispels the night  
+You call the lifeless to wake from death to life  
+Out of darkness arise  
+I am set free, saved from the power of sin  
+Guilt, overcome, Your Spirit at work within  
+You break the chains of the law, I am released  
+From the burden of sin  
+
+Now we cry, "Father, " we are Your children  
+We are adopted as Your own  
+No condemnation, we are forgiven  
+Nothing can take us from Your love  
+
+I am redeemed, raised with my saviour Christ  
+Fear, overcome, I will be glorified  
+You will forever defend and stand beside  
+I am safe in Your love  
+ 
+Now we cry, "Father, " we are Your children  
+We are adopted as Your own  
+No condemnation, we are forgiven  
+Nothing can take us from Your love  
+
+Creation awaits the glorious day  
+When Jesus returns and trials will fade  
+Creation awaits the glorious day  
+When Jesus returns and trials will fade  
+ 
+Now we cry, "Father, " we are Your children  
+We are adopted as Your own  
+No condemnation, we are forgiven  
+Nothing can take us from Your love  
+
+Creation awaits the glorious day  
+When Jesus returns and trials will fade  
+Creation awaits the glorious day  
+When Jesus returns and trials will fade  
+
+CCLI Song # 7134602 | © 2019 Liv Chapman, Alanna Glover, Philip Percival & Michael Morrow | Emumusic.com  
+CCLI 62951 (main copyright licence)  
+CCLI 174113 (streaming licence)  
+
+
+
 
 
 
