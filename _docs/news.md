@@ -51,7 +51,7 @@ This term, our church has started a journey of studying the Book of Isaiah, lead
 
 To get the most out of our study of Isaiah, we encourage everyone to be reading it for themselves. As Christians, we know that hearing God's voice through His Word is essential to worshipping Him as Lord, but this vital task often gets squeezed out of our busy schedules.
 
-So, to make the most of this epic journey, we encourage you to read all 66 chapters of Isaiah over the next 9 weeks. To help you on this journey, we’ve created a 9-week reading plan[click here](https://www.canva.com/design/DAG16YkibTQ/h1WDqF08taLnE5OVQGcaVA/view?utm_content=DAG16YkibTQ&utm_campaign=designshare&utm_medium=link2&utm_source=uniquelinks&utlId=h659a985df1) so that you can see the majesty of what God has done for his people.
+So, to make the most of this epic journey, we encourage you to read all 66 chapters of Isaiah over the next 9 weeks. To help you on this journey, we’ve created a [9-week reading plan](https://www.canva.com/design/DAG16YkibTQ/h1WDqF08taLnE5OVQGcaVA/view?utm_content=DAG16YkibTQ&utm_campaign=designshare&utm_medium=link2&utm_source=uniquelinks&utlId=h659a985df1) so that you can see the majesty of what God has done for his people.
 
 **Missionary Guest Speaker: JC**
 
