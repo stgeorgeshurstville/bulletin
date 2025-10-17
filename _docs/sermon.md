@@ -20,7 +20,7 @@ order: 2
 ### Prayer
 Dear God, thank you for letting us know you. Please help us learn from your word. Help us to serve and praise you. **Amen!**
 
-### Isaiah 5:1-7 (NIRV)
+### Isaiah 6 (NIV)
 
 **Isaiah’s Commission**
 
