@@ -37,16 +37,14 @@ the Light of the world.
 Amen.  
 
 **Mission and Vision** 
-<br><br> *For growing out:*  
-Write your own prayer
+<br><br> *For growing out:* Write your own prayer
 
 **Global and Nation** 
-<br><br> *Local*:  
-Write your own prayer
+<br><br> *Local*: Write your own prayer
 
 
 **Mission Partners**
-<br><br> *High school scripture & chaplaincy*  
+<br><br> *_High school scripture & chaplaincy_*  
 General info: Semi works as a high school scripture teacher in the George’s River area. He attends three schools as part of his work as he teaches lessons and runs lunchtime groups.  The prayer points come from his August Newsletter. 
 
 1. Praise
