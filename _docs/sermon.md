@@ -22,49 +22,60 @@ Dear God, thank you for letting us know you. Please help us learn from your word
 
 ### Isaiah 5:1-7 (NIRV)
 
-**The Song of the Vineyard**
+**Isaiah’s Commission**
 
-¹ I will sing a song for the Lord.  
-He is the one I love.  
-It’s a song about his vineyard Israel.  
-The one I love had a vineyard.  
-It was on a hillside that had rich soil.  
-² He dug up the soil and removed its stones.  
-He planted the very best vines in it.   
-He built a lookout tower there.  
-He also cut out a winepress for it.  
-Then he kept looking for a crop of good grapes.  
-But the vineyard produced only bad fruit.  
+¹ In the year that King Uzziah died, I saw the Lord, high and exalted, seated on a throne; and the train of his robe filled the temple. ² Above him were seraphim, each with six wings: With two wings they covered their faces, with two they covered their feet, and with two they were flying. ³ And they were calling to one another:  
 
-³ So the Lord said, “People of Jerusalem and Judah,  
-you be the judge between me and my vineyard.  
-⁴ What more could I have done for my vineyard?  
-I did everything I could.  
-I kept looking for a crop of good grapes.  
-So why did it produce only bad ones?  
-⁵ Now I will tell you  
-what I am going to do to my vineyard.  
-I will take away its fence.  
-And the vineyard will be destroyed.  
-I will break down its wall.  
-And people will walk all over my vineyard.  
-¹ I will turn my vineyard into a dry and empty desert.  
-It will not be pruned or taken care of.  
-Thorns and bushes will grow there.  
-I will command the clouds  
-not to rain on it.”  
+“Holy, holy, holy is the Lord Almighty;  
+the whole earth is full of his glory.”  
 
-⁷ The vineyard of the Lord who rules over all  
-is the nation of Israel.  
-The people of Judah  
-are the vines he took delight in.  
-He kept looking for them to do what is fair.  
-But all he saw was blood being spilled.  
-He kept looking for them to do what is right.  
-But all he heard were cries of suffering.  
+⁴ At the sound of their voices the doorposts and thresholds shook and the temple was filled with smoke.  
+
+⁵ “Woe to me!” I cried. “I am ruined! For I am a man of unclean lips, and I live among a people of unclean lips, and my eyes have seen the King, the Lord Almighty.”  
+
+⁶ Then one of the seraphim flew to me with a live coal in his hand, which he had taken with tongs from the altar. ⁷ With it he touched my mouth and said, “See, this has touched your lips; your guilt is taken away and your sin atoned for.”  
+
+⁸ Then I heard the voice of the Lord saying, “Whom shall I send? And who will go for us?”  
+
+And I said, “Here am I. Send me!”  
+
+⁹ He said, “Go and tell this people:  
+
+“‘Be ever hearing, but never understanding;  
+be ever seeing, but never perceiving.’  
+¹⁰ Make the heart of this people calloused;  
+make their ears dull  
+and close their eyes.   
+Otherwise they might see with their eyes,  
+hear with their ears,  
+understand with their hearts,  
+and turn and be healed.”  
+¹¹ Then I said, “For how long, Lord?”  
+
+And he answered:  
+
+“Until the cities lie ruined  
+and without inhabitant,  
+until the houses are left deserted 
+and the fields ruined and ravaged,  
+¹² until the Lord has sent everyone far away  
+and the land is utterly forsaken.  
+¹³ And though a tenth remains in the land,  
+it will again be laid waste.  
+But as the terebinth and oak  
+leave stumps when they are cut down,  
+so the holy seed will be the stump in the land.”  
 
 ## Sermon Outline
-**Israel failed to shine**
+**The Glorious Lord**
+- Light and darkness
+- Looming darkness
+- The unapproachable light
+- The unholy prophet
+- Cleansing fire
+- Hope from the light
+- Light in the face of Jesus
+
   
   
   
