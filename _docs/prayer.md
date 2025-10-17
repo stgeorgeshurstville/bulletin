@@ -44,7 +44,7 @@ Amen.
 
 
 **Mission Partners**
-<br><br>*High school scripture & chaplaincy* 
+<br><br>*High school scripture & chaplaincy*   
 General info: Semi works as a high school scripture teacher in the George’s River area. He attends three schools as part of his work as he teaches lessons and runs lunchtime groups.  The prayer points come from his August Newsletter. 
 
 1. Praise
