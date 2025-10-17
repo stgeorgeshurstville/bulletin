@@ -44,7 +44,7 @@ Amen.
 
 
 **Mission Partners**
-<br><br> *High school scripture & chaplaincy*  
+<br><br> <ins>High school scripture & chaplaincy<ins> 
 General info: Semi works as a high school scripture teacher in the George’s River area. He attends three schools as part of his work as he teaches lessons and runs lunchtime groups.  The prayer points come from his August Newsletter. 
 
 1. Praise
@@ -61,7 +61,7 @@ General info: Semi works as a high school scripture teacher in the George’s Ri
 - Pray for the Hurstville Scripture Board and Semi, for wisdom and guidance as they continue their mission to reach students with the gospel.
 - Pray for the student who was inspired to do mission work, that God would continue to guide and prepare them for a life of service.
 
-<br><br> *Projects (Anglican aid & Anglicare)*  
+<br><br> <ins>Projects (Anglican aid & Anglicare)<ins>
 
 
 **Church Ministries**
