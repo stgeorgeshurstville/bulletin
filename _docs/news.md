@@ -7,21 +7,18 @@ order: 5
 
 | Date | Event | Time |
 | ---- | ---- | ---- |
-| 13 October | Kids Holiday Hub - Robotics Day | 9:00am |
 | 26 October | Life Course | 5:30pm |
+| 2 November | Guest Speaker: JC | 9:30am and 4pm |
 | 15 November | Illuminate - A night of Prayer and Praise | 7:00pm |
 
 ## General
-**Kids Holiday Hub is FULL!**
+**Pupil-Free Day Kid's Holiday Hub Success!**
 
-We are thrilled to announce that our Kids Holiday Hub is at capacity!
-Please join us in taking a moment to give thanks:
-- Thank God for His generosity in providing all these wonderful children He has placed in our care for the day, many of whom have very little prior connection to our church.
-- Thank our willing leaders who are taking time out of their schedules and work hours to serve our church and His Gospel.
-- We ask that you also please pray that many seeds will be planted in the hearts of these children.
+A huge thank you to all the incredible people who volunteered for our first-ever Pupil-Free Day Kid's Holiday Hub!
+It was a fantastic day where the children learned about our God who loves us through Jesus. We had an exciting and interactive session where they got a taste of the world of robotics, had party pies and corn dogs for lunch and the day ended with a viewing of the fun 2005 film, Robots.
 
+Please continue to pray for the families who made contact with our church community through our connection team.  
 
-![Robotics day](https://github.com/stgeorgeshurstville/bulletin/blob/1c751638511b728d4d8ee0f1e231d96e34e2347d/images/Robotics%20day.jpg)
 
 **Life Course**
 
@@ -48,12 +45,19 @@ All are welcome, and invite a friend!
 
 ![Illuminate](https://github.com/stgeorgeshurstville/bulletin/blob/dc8c1bc1762663fa2114c193276f41465e2a1d4a/images/Illuminate.png)
 
-**Berkeley Life Centre: Summer Clothing Donations - A Big Success!** 
+**An Epic Journey: Studying Isaiah**
 
-A huge thank you to everyone who generously donated summer clothing over the last couple of weeks for the Berkeley Life Centre (BLC)! BLC Senior Pastor Beejai came on Monday to pick up the clothes, and his 4WD vehicle was comfortably filled to nearly every available inch! Your kindness will make a real difference to individuals and families in the community supported by the Berkeley Life Centre.
-Thank you again for your wonderful generosity!
+This term, our church has started a journey of studying the Book of Isaiah, leading us all the way up to Christmas. It promises to be an epic spiritual journey as we trace the prophet’s message to his people and explore how that powerful message relates to us as God's people on this side of the cross.
 
+To get the most out of our study of Isaiah, we encourage everyone to be reading it for themselves. As Christians, we know that hearing God's voice through His Word is essential to worshipping Him as Lord, but this vital task often gets squeezed out of our busy schedules.
 
+So, to make the most of this epic journey, we encourage you to read all 66 chapters of Isaiah over the next 9 weeks. To help you on this journey, we’ve created a 9-week reading plan[click here](https://www.canva.com/design/DAG16YkibTQ/h1WDqF08taLnE5OVQGcaVA/view?utm_content=DAG16YkibTQ&utm_campaign=designshare&utm_medium=link2&utm_source=uniquelinks&utlId=h659a985df1) so that you can see the majesty of what God has done for his people.
+
+**Missionary Guest Speaker: JC**
+
+We have the wonderful privilege of welcoming JC (aka Mr Noodle) to our 9:30pm and 4:00pm services on Sunday, November 2nd, as he shares about his overseas ministry.
+
+As a church, it is so encouraging for us to hear JC's story as It can shape how we should live by making costly decisions for the sake of Jesus. His story also gives us a window into how we can best support someone like JC as he endeavors to spread the Gospel to the ends of the earth. Please make plans not to miss this great opportunity!
 
 **Growing in Our Welcoming:**
   
