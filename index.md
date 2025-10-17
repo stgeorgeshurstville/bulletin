@@ -11,7 +11,7 @@ title: Welcome
 
 ## Isaiah - A Light Would Dawn
 
-### The Glorious God
+### The Glorious Lord
 
 
 
