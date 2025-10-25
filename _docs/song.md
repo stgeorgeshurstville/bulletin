@@ -12,10 +12,10 @@ order: 1
 **Scroll below for 9:30am song lyrics**
 
 ## 4:00pm
-1. 
-2. 
-3. 
-4. 
+1. All Creatures of Our God and King
+2. Take Heart
+3. O Come All Ye Faithful
+4. All Glory Be to Christ
 
 
 
