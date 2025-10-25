@@ -10,30 +10,26 @@ Merciful Lord, grant to your faithful people pardon and peace, that they may be 
 
 
 **From the Passage**
-<br><br> Holy, holy, holy are you, Lord Almighty.  
-The whole earth is full of your glory.  
-You dwell in unapproachable light, yet you have made yourself known — the King seated on the throne, exalted in holiness and splendour.  
-We come before you in awe and humility.  
-Lord, we confess that like Isaiah, we are people of unclean lips and unclean hearts.  
-We have stolen your glory, seeking honour for ourselves.  
-We have exchanged the glory of the Creator for the things you have made — chasing after comfort, achievement, wealth, or reputation instead of you.  
-As your people, called to reflect your light, we have often hidden it;  
-we have dimmed your glory through pride, fear, and forgetfulness.  
-Forgive us, Lord.  
-Thank you that in your mercy, you do not leave us in our darkness.  
-As the burning coal touched Isaiah’s lips, so the blood of Jesus cleanses us from all sin.  
-Thank you that in him your holiness meets us in grace —  
-that our guilt is taken away, and our sin atoned for.  
-Thank you that Jesus, the true image of God, perfectly reflected your love and faithfulness,  
-and now restores your image in us.  
-Father, make us mirrors of your glory once again.  
-Let your light shine in our hearts through the knowledge of your glory in the face of Christ.  
-Help us to walk in holiness, to live for your praise,  
-and to show your goodness, love, and justice in all we do.  
-When the world is dark, let your people shine —  
-not with our own light, but with yours.  
-We pray this in the name of Jesus Christ,  
-the Light of the world.  
+<br><br> Gracious God,
+ You are our refuge and strength,
+ yet we confess that we often seek safety elsewhere.
+ We trust in our plans, possessions, and people
+ more than in You.
+ We fear losing control more than losing sight of You.
+Lord, have mercy.
+ We admit we’re reluctant to let You expose our idols,
+ because we hold them so tightly.
+ But we ask — gently, patiently —
+ show us what we’ve trusted instead of You,
+ and free us from their grip.
+Thank You that Jesus, gentle and lowly,
+ does not come to crush but to save;
+ not to condemn but to give rest.
+ Help us to be still,
+ to cease striving,
+ and to know that You are God —
+ our refuge, our salvation, our peace.
+Through Christ our Lord,
 Amen.  
 
 **Mission and Vision** 
