@@ -4,7 +4,7 @@ order: 4
 ---
 
 ## Collect
-Almighty and merciful God, of your bountiful goodness keep us from everything that may hurt us, that we may be ready in body and soul cheerfully to accomplish whatever you want us to do; through Jesus Christ our Lord. Amen.
+Merciful Lord, grant to your faithful people pardon and peace, that they may be cleansed from all their sins, and serve you with a quiet mind; through Jesus Christ our Lord. Amen.
 
 ## Week H
 
