@@ -12,22 +12,14 @@ order: 5
 | 15 November | Illuminate - A night of Prayer and Praise | 7:00pm |
 
 ## General
-**Pupil-Free Day Kid's Holiday Hub Success!**
-
-A huge thank you to all the incredible people who volunteered for our first-ever Pupil-Free Day Kid's Holiday Hub!
-It was a fantastic day where the children learned about our God who loves us through Jesus. We had an exciting and interactive session where they got a taste of the world of robotics, had party pies and corn dogs for lunch and the day ended with a viewing of the fun 2005 film, Robots.
-
-Please continue to pray for the families who made contact with our church community through our connection team.  
-
-
-**Life Course**
+**Life Course!**
 
 Whether you are a genuine seeker or a skeptic, come to our Life Course where we will consider the life-changing message of the Gospel as it relates to the person of Jesus.
 We are excited to announce our upcoming Life Course, a four-week journey designed to provide a welcoming space for honest conversations. The course begins on Monday, October 26th, at 5:30 pm.
 We can't wait to see you there!
 
 
-**Illuminate - A night of Prayer and Priase**
+**Illuminate - A night of Prayer and Praise**
 
 The 4pm English music team will be hosting a praise & prayer night in November.
 
@@ -58,6 +50,10 @@ So, to make the most of this epic journey, we encourage you to read all 66 chapt
 We have the wonderful privilege of welcoming JC (aka Mr Noodle) to our 9:30pm and 4:00pm services on Sunday, November 2nd, as he shares about his overseas ministry.
 
 As a church, it is so encouraging for us to hear JC's story as It can shape how we should live by making costly decisions for the sake of Jesus. His story also gives us a window into how we can best support someone like JC as he endeavors to spread the Gospel to the ends of the earth. Please make plans not to miss this great opportunity!
+
+**Warden's News**
+
+We’re planning to start prep work on the inner lawn of the main church site this Monday 27/10 from 10am to get ready for laying artificial turf. We need 4 helpers for digging, levelling, and laying the artificial turf. If you can lend a hand, please let Darren know!
 
 **Growing in Our Welcoming:**
   
