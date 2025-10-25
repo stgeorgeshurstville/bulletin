@@ -16,12 +16,14 @@ Merciful Lord, grant to your faithful people pardon and peace, that they may be 
  We trust in our plans, possessions, and people
  more than in You.
  We fear losing control more than losing sight of You.
+
 Lord, have mercy.
  We admit we’re reluctant to let You expose our idols,
  because we hold them so tightly.
  But we ask — gently, patiently —
  show us what we’ve trusted instead of You,
  and free us from their grip.
+
 Thank You that Jesus, gentle and lowly,
  does not come to crush but to save;
  not to condemn but to give rest.
