@@ -67,14 +67,13 @@ leave stumps when they are cut down,
 so the holy seed will be the stump in the land.”  
 
 ## Sermon Outline
-**The Glorious Lord**
-- Light and darkness
-- Looming darkness
-- The unapproachable light
-- The unholy prophet
-- Cleansing fire
-- Hope from the light
-- Light in the face of Jesus
+** **
+Not Christmas yet 
+A king in crisis 
+A promise 
+Immanuel - terrifying and wonderful 
+Salvation is found in no one else  
+
 
   
   
