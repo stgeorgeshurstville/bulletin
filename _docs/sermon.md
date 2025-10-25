@@ -28,7 +28,15 @@ Dear God, thank you for letting us know you. Please help us learn from your word
 
 ² Now the house of David was told, “Aram has allied itself with Ephraim”; so the hearts of Ahaz and his people were shaken, as the trees of the forest are shaken by the wind.
 
-³ Then the Lord said to Isaiah, “Go out, you and your son Shear-Jashub, to meet Ahaz at the end of the aqueduct of the Upper Pool, on the road to the Launderer’s Field. ⁴ Say to him, ‘Be careful, keep calm and don’t be afraid. Do not lose heart because of these two smoldering stubs of firewood—because of the fierce anger of Rezin and Aram and of the son of Remaliah. ⁵ Aram, Ephraim and Remaliah’s son have plotted your ruin, saying, ⁶ “Let us invade Judah; let us tear it apart and divide it among ourselves, and make the son of Tabeel king over it.” ⁷ Yet this is what the Sovereign Lord says:
+³ Then the Lord said to Isaiah, “Go out, you and your son Shear-Jashub, to meet Ahaz at the end of the aqueduct of the Upper Pool, on the road to the Launderer’s Field. 
+
+⁴ Say to him, ‘Be careful, keep calm and don’t be afraid. Do not lose heart because of these two smoldering stubs of firewood—because of the fierce anger of Rezin and Aram and of the son of Remaliah. 
+
+⁵ Aram, Ephraim and Remaliah’s son have plotted your ruin, saying, 
+
+⁶ “Let us invade Judah; let us tear it apart and divide it among ourselves, and make the son of Tabeel king over it.” 
+
+⁷ Yet this is what the Sovereign Lord says:
 
 “‘It will not take place,
 it will not happen,
