@@ -31,39 +31,53 @@ Thank You that Jesus, gentle and lowly,
  to cease striving,
  and to know that You are God —
  our refuge, our salvation, our peace.
+
 Through Christ our Lord,
+
 Amen.  
 
 **Mission and Vision** 
-<br><br> *For growing out:* Write your own prayer
+<br><br> *Mission:* Write your own prayer
 
 **Global and Nation** 
-<br><br> *Local*: Write your own prayer
+<br><br> *World:* Write your own prayer
 
 
 **Mission Partners**
-<br><br>*High school scripture & chaplaincy*   
-General info: Semi works as a high school scripture teacher in the George’s River area. He attends three schools as part of his work as he teaches lessons and runs lunchtime groups.  The prayer points come from his August Newsletter. 
+<br><br>*Compassion*   
+General info: Compassion is a Christian international holistic child development organisation. In response to God’s call, Compassion gives hope to the hopeless, spreading the gospel of Jesus Christ in a culturally relevant, non-coercive way. Through our Child Sponsorship Program, more than 2 million children are currently being released from poverty in Jesus’ name.
 
-1. Praise
-- Praise God for the consistent and enthusiastic attendance in Scripture classes, seminars, and lunch-time programs, with over 100 students participating in just two weeks.
-- Praise God for the significant growth in the Georges River College Hurstville classes, with the Year 7-8 class increasing from 4 to 21 students and the Year 9-10 class growing to 13 students.
-- Praise God for the high participation of over 20 students in the Oatley Senior Campus lunch-time program, a significant increase from last year.
-- Praise God for providing a deeply rewarding mission trip for Semi to the Kimberley region, allowing him to encourage and pray with young people.
-- Praise God for inspiring a student at Georges River College to express a desire to do mission work one day.
+This Sunday we are praying for three projects that Compassion supports throughout many towns and villages all over the world. 
 
-2. Prayer
-- Pray for the students at all three high schools, that they would continue to grow in their faith and understanding of the Bible, and that the seeds of the gospel would take root in their hearts.
-- Pray for continued opportunities for growth in all the programs, and that more students would be encouraged to join.
-- Pray for the church leaders and supporters, that they would be encouraged by the reports and continue their vital support through prayer, finances, and encouragement.
-- Pray for the Hurstville Scripture Board and Semi, for wisdom and guidance as they continue their mission to reach students with the gospel.
-- Pray for the student who was inspired to do mission work, that God would continue to guide and prepare them for a life of service.
+*1. The Global Food Crisis Support*
+We pray first for immediate provision. We ask you to supply emergency food, water, and life-saving aid to children and families suffering from the severe Global Food Crisis. Sustain the most vulnerable and give the local church partners the resources and wisdom to deliver help where it is most desperate.
 
-<br><br>*Projects (Anglican aid & Anglicare)*
+Find out [more:](https://www.compassion.com.au/global-food-crisis?srsltid=AfmBOoozrXCBtm1NzrmEBroUzUHXSw3__DnCoj75Hw1BRQt46Y65ODzZ)
 
+*2. Mums and Babies Survival Projects*
+We pray for a strong foundation of life. Watch over every vulnerable mother and infant in the Mums and Babies Survival Projects. Grant health, safe deliveries, and a strong start to life. May the church staff minister life, hope, and community to these families.
+
+Find out [more:](https://www.compassion.com.au/fund-a-project/mums-and-babies?srsltid=AfmBOorBPAZtcMgacIcp-46O8dVsXmeCPytYWcZWsJ1Z-dDxC_qq7Y-A)
+
+*3. The Whole Child Approach*
+Finally, we pray for the holistic development of The Whole Child. We ask that you meet their physical needs (health and safety), their educational needs (a hopeful future), their social needs (protection and belonging), and most importantly, their spiritual needs, so they may be released from poverty in Jesus' name, realizing their full, God-given potential.
+
+Find out [more:](https://www.compassion.com/child-development-model.htm)
 
 **Church Ministries**
-<br><br> *Discipleship Groups*  
+<br><br> *English Congregation - A prayer to keep on shining!*  
+
+Heavenly Father, we thank you for the vision you've given our church this year: to shine for Jesus, anyplace anytime. As this year draws to a close, we ask that you firmly implant this mission in our hearts.
+
+We confess that it is easy to shine in here, within the walls of this church, but often hard to live that light out there, in the world. Forgive us for the moments we have hidden our light under a basket—when fear of rejection, the pull of comfort, or simple busyness kept us silent.
+
+Lord, ignite in us a conviction to realize that "anyplace" means our workplaces, our schools, our homes, and the grocery aisle. Show us that "anytime" means in traffic, during a difficult conversation, or when we are tired and depleted.
+
+May we end this year not by slowing down, but by running the final miles with greater fervour, leaving a trail of your light and love wherever our feet may take us.
+
+We pray this in the powerful name of Jesus, the Light of the World.
+
+Amen
 
 
 **Groups in Church**
