@@ -55,6 +55,12 @@ you will not stand at all.’”
 
 ¹⁸ In that day the Lord will whistle for flies from the Nile delta in Egypt and for bees from the land of Assyria. ¹⁹ They will all come and settle in the steep ravines and in the crevices in the rocks, on all the thornbushes and at all the water holes. ²⁰ In that day the Lord will use a razor hired from beyond the Euphrates River—the king of Assyria—to shave your head and private parts, and to cut off your beard also. ²¹ In that day, a person will keep alive a young cow and two goats. ²² And because of the abundance of the milk they give, there will be curds to eat. All who remain in the land will eat curds and honey. ²³ In that day, in every place where there were a thousand vines worth a thousand silver shekels, there will be only briers and thorns. ²⁴ Hunters will go there with bow and arrow, for the land will be covered with briers and thorns. ²⁵ As for all the hills once cultivated by the hoe, you will no longer go there for fear of the briers and thorns; they will become places where cattle are turned loose and where sheep run.
 
+### Isaiah 8:19-22 (NIV)
+
+**The Darkness Turns to Light**
+
+¹⁹ When someone tells you to consult mediums and spiritists, who whisper and mutter, should not a people inquire of their God? Why consult the dead on behalf of the living? ²⁰ Consult God’s instruction and the testimony of warning. If anyone does not speak according to this word, they have no light of dawn. ²¹ Distressed and hungry, they will roam through the land; when they are famished, they will become enraged and, looking upward, will curse their king and their God. ²² Then they will look toward the earth and see only distress and darkness and fearful gloom, and they will be thrust into utter darkness.
+
 ## Sermon Outline
 
 Not Christmas yet 
