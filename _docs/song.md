@@ -4,18 +4,18 @@ order: 1
 ---
 
 ## 9:30am
-1. Before the Throne of God Above 
-2. You Are Holy
-3. Holy Holy Holy
-4. Build My Life
+1. Lights
+2. Jesus Name Above All Names
+3. You Are My All In All
+4. No Other Name
 
 **Scroll below for 9:30am song lyrics**
 
 ## 4:00pm
-1. Be Thou My Vision
-2. Come Thou Fount
-3. Crown Him with Many Crowns
-4. Christ our Hope in Life and Death
+1. 
+2. 
+3. 
+4. 
 
 
 
