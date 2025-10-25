@@ -20,51 +20,37 @@ order: 2
 ### Prayer
 Dear God, thank you for letting us know you. Please help us learn from your word. Help us to serve and praise you. **Amen!**
 
-### Isaiah 6 (NIV)
+### Isaiah 7:1-25 (NIV)
 
-**Isaiah’s Commission**
+**The Sign of Immanuel**
 
-¹ In the year that King Uzziah died, I saw the Lord, high and exalted, seated on a throne; and the train of his robe filled the temple. ² Above him were seraphim, each with six wings: With two wings they covered their faces, with two they covered their feet, and with two they were flying. ³ And they were calling to one another:  
+¹ When Ahaz son of Jotham, the son of Uzziah, was king of Judah, King Rezin of Aram and Pekah son of Remaliah king of Israel marched up to fight against Jerusalem, but they could not overpower it.
 
-“Holy, holy, holy is the Lord Almighty;  
-the whole earth is full of his glory.”  
+² Now the house of David was told, “Aram has allied itself with Ephraim”; so the hearts of Ahaz and his people were shaken, as the trees of the forest are shaken by the wind.
 
-⁴ At the sound of their voices the doorposts and thresholds shook and the temple was filled with smoke.  
+³ Then the Lord said to Isaiah, “Go out, you and your son Shear-Jashub, to meet Ahaz at the end of the aqueduct of the Upper Pool, on the road to the Launderer’s Field. ⁴ Say to him, ‘Be careful, keep calm and don’t be afraid. Do not lose heart because of these two smoldering stubs of firewood—because of the fierce anger of Rezin and Aram and of the son of Remaliah. ⁵ Aram, Ephraim and Remaliah’s son have plotted your ruin, saying, ⁶ “Let us invade Judah; let us tear it apart and divide it among ourselves, and make the son of Tabeel king over it.” ⁷ Yet this is what the Sovereign Lord says:
 
-⁵ “Woe to me!” I cried. “I am ruined! For I am a man of unclean lips, and I live among a people of unclean lips, and my eyes have seen the King, the Lord Almighty.”  
+“‘It will not take place,
+it will not happen,
+⁸ 
+for the head of Aram is Damascus,
+and the head of Damascus is only Rezin.
+Within sixty-five years
+Ephraim will be too shattered to be a people.
+⁹ 
+The head of Ephraim is Samaria,
+and the head of Samaria is only Remaliah’s son.
+If you do not stand firm in your faith,
+you will not stand at all.’”
 
-⁶ Then one of the seraphim flew to me with a live coal in his hand, which he had taken with tongs from the altar. ⁷ With it he touched my mouth and said, “See, this has touched your lips; your guilt is taken away and your sin atoned for.”  
+¹⁰ Again the Lord spoke to Ahaz, ¹¹ “Ask the Lord your God for a sign, whether in the deepest depths or in the highest heights.”
 
-⁸ Then I heard the voice of the Lord saying, “Whom shall I send? And who will go for us?”  
+¹² But Ahaz said, “I will not ask; I will not put the Lord to the test.”
 
-And I said, “Here am I. Send me!”  
+¹³ Then Isaiah said, “Hear now, you house of David! Is it not enough to try the patience of humans? Will you try the patience of my God also? ¹⁴ Therefore the Lord himself will give you a sign: The virgin will conceive and give birth to a son, and will call him Immanuel. ¹⁵ He will be eating curds and honey when he knows enough to reject the wrong and choose the right, ¹⁶ for before the boy knows enough to reject the wrong and choose the right, the land of the two kings you dread will be laid waste. ¹⁷ The Lord will bring on you and on your people and on the house of your father a time unlike any since Ephraim broke away from Judah—he will bring the king of Assyria.”
+Assyria, the Lord’s Instrument
 
-⁹ He said, “Go and tell this people:  
-
-“‘Be ever hearing, but never understanding;  
-be ever seeing, but never perceiving.’  
-¹⁰ Make the heart of this people calloused;  
-make their ears dull  
-and close their eyes.   
-Otherwise they might see with their eyes,  
-hear with their ears,  
-understand with their hearts,  
-and turn and be healed.”  
-¹¹ Then I said, “For how long, Lord?”  
-
-And he answered:  
-
-“Until the cities lie ruined  
-and without inhabitant,  
-until the houses are left deserted 
-and the fields ruined and ravaged,  
-¹² until the Lord has sent everyone far away  
-and the land is utterly forsaken.  
-¹³ And though a tenth remains in the land,  
-it will again be laid waste.  
-But as the terebinth and oak  
-leave stumps when they are cut down,  
-so the holy seed will be the stump in the land.”  
+¹⁸ In that day the Lord will whistle for flies from the Nile delta in Egypt and for bees from the land of Assyria. ¹⁹ They will all come and settle in the steep ravines and in the crevices in the rocks, on all the thornbushes and at all the water holes. ²⁰ In that day the Lord will use a razor hired from beyond the Euphrates River—the king of Assyria—to shave your head and private parts, and to cut off your beard also. ²¹ In that day, a person will keep alive a young cow and two goats. ²² And because of the abundance of the milk they give, there will be curds to eat. All who remain in the land will eat curds and honey. ²³ In that day, in every place where there were a thousand vines worth a thousand silver shekels, there will be only briers and thorns. ²⁴ Hunters will go there with bow and arrow, for the land will be covered with briers and thorns. ²⁵ As for all the hills once cultivated by the hoe, you will no longer go there for fear of the briers and thorns; they will become places where cattle are turned loose and where sheep run.
 
 ## Sermon Outline
 
