@@ -20,190 +20,174 @@ order: 1
 
 
 ### 9:30am Song Lyrics
-<br><br>**1. Before the Throne of God Above**<br><br>
-Before the throne of God above  
-I have a strong and perfect plea  
-A great High Priest whose name is love  
-Who ever lives and pleads for me  
-My name is graven on His hands  
-My name is written on His heart  
-I know that while in heav’n He stands  
-No tongue can bid me thence depart  
-No tongue can bid me thence depart  
+<br><br>**1. Lights**<br><br>
+In the world, it was night
+Chains of darkness 'round our hearts
+Eyes were blind, minds were closed
+Chose to stay within the dark
+Couldn't see, couldn't change
+Helpless in our darkened state
+There we stayed 'til the light of life appeared 
 
-When Satan tempts me to despair  
-And tells me of the guilt within  
-Upward I look and see Him there  
-Who made an end to all my sin  
-Because the sinless Savior died  
-My sinful soul is counted free  
-For God the Just is satisfied  
-To look on Him and pardon me  
-To look on Him and pardon me  
+Who can break the chains of darkness?
+Who can save?
 
-Behold Him there, the risen Lamb  
-My perfect, spotless Righteousness  
-The great unchangeable I AM  
-The King of glory and of grace  
-One with Himself, I cannot die  
-My soul is purchased by His blood  
-My life is hid with Christ on high  
-With Christ my Savior and my God  
-With Christ my Savior and my God  
+You are (you are) the light in darkness
+You came (you came) to bring salvation
+You gave (you gave) your life to free us
+You are the light
+Then you came as a man
+To the earth that you had made
+On the cross you gave your life
+The darkness seemed to have its way
+But then you rose in victory
+Death defeated, we are free
+Now you reign, calling us into your light
+Who can wake us from our slumber?
+Who can save?
 
-One with Himself, I cannot die  
-My soul is purchased by His blood  
-My life is hid with Christ on high  
-With Christ my Savior and my God  
-With Christ my Savior and my God  
-
-CCLI: #2306412  
-Original words by Charitie Lees Bancroft (1841-1892), music and alt. words by Vikki Cook.   © 1997 Sovereign Grace Worship  
-CCLI 62951 (main copyright licence)  
-CCLI 174113 (streaming licence)  
+You are (you are) the light in darkness
+You came (you came) to bring salvation
+You gave (you gave) your life to free us
+You are the light
+Who can break the chains of darkness?
+Who can save?
+Who can wake us from our slumber?
+Who can save?
+You can break the chains of darkness
+You can save
+You can wake us from our slumber
+You can save
 
 
-<br><br>**2. You Are Holy**<br><br>
-You are holy (You are holy)  
-You are mighty (You are mighty)  
-You are worthy (You are worthy)  
-Worthy of praise (Worthy of praise)  
-And I will follow (I will follow)  
-I will listen (I will listen)  
-I will love you (I will love you)  
-All of my days (All of my days)  
+You are (you are) the light in darkness
+You came (you came) to bring salvation
+You gave (you gave) your life to free us
+You are the light
+We have (we have) been brought from darkness
+We stand (we stand) free from judgement
+We give (we give) our lives to serve you
+We are your lights
 
-I will sing to  
-And worship  
-The King who is worthy  
-I will love Him, adore Him  
-And I will bow down before Him  
-I will sing to  
-and worship  
-the King who is worthy  
-I will love Him, adore him  
-I will bow down before Him  
-You're my Prince of Peace and I will live my life for you.  
+CCCLI Song # 7081707 | Alanna Glover | Sam Manchester | Liv Chapman | © 2016 Glover, Alanna | Chapman, Liv | Manchester, Sam | emumusic.com
+CCLI 62951 (main copyright licence)
+CCLI 174113 (streaming licence)
 
-You are holy (You are holy)  
-You are mighty (You are mighty)    
-You are worthy (You are worthy)  
-Worthy of praise (Worthy of praise)  
-And I will follow (I will follow)  
-I will listen (I will listen)  
-I will love you (I will love you)  
-All of my days (All of my days)  
 
-You are Lord of lords  
-You are King of kings  
-You are Mighty God  
-Lord of everything  
-You're Emmanuel  
-You're the great I AM  
-You're the Prince of peace  
-Who is the Lamb  
-You're the Living God  
-You're my Saving Grace  
-You will reign forever  
-You are Ancient of Days  
-You are Alpha, Omega  
-Beginning and End  
-You're my Savior, Messiah,  
-Redeemer and Friend  
-You're my Prince of peace  
-And I will live my life for You  
 
-I will sing to  
-And worship  
-The King who is worthy  
-I will love Him, adore Him  
-And I will bow down before Him  
-I will sing to  
-and worship  
-the King who is worthy  
-I will love Him, adore Him  
-I will bow down before Him  
-You're my Prince of Peace and I will live my life for you  
-You're my Prince of Peace and I will live my life for you  
+<br><br>**2. Jesus Name Above All Names**<br><br>
+Jesus, name above all names
+Beautiful Saviour, glorious Lord.
+Emmanuel, God is with us.
+Blessed Redeemer, Living word.
 
-CCLI Song Number 2332149; Michael W. Smith  
-CCLI 62951 (main copyright licence)  
-CCLI 174113 (streaming licence)  
+Jesus, Lord God all Mighty
+Wonderful Counsellor, light of the world
+The Prince of East, all above glory
+Man of sorrow, lamb of God.
+
+Jesus, name above all names
+Beautiful Saviour, glorious Lord.
+Emmanuel, God is with us.
+Blessed Redeemer, living word.
+
+© 1999 Compilation WoW Worship| Bill Batstone| Naida Hearn
+CCLI 62951 (main copyright licence)
+CCLI 174113 (streaming licence)
 
  
-<br><br>**3. Holy Holy Holy**<br><br>
-VERSE 1  
-Holy, holy, holy! Lord God Almighty!  
-Early in the morning our song shall rise to Thee;  
-Holy, holy, holy, merciful and mighty!  
-God in three Persons, blessed Trinity!  
+<br><br>**3. You Are My All In All**<br><br>
+You are my strength when I am weak
+You are the treasure that I seek
+You are my all in all
+Seeking You like a precious jewel
+Lord, to give up I'd be a fool
+You are my all in all
 
-VERSE 2  
-Holy, holy, holy! All the saints adore Thee,  
-Casting down their golden crowns around the glassy sea,  
-Cherubim and seraphim falling down before Thee,  
-Who wert and art, and evermore shalt be.  
-
-VERSE 3  
- Holy, holy, holy! Though the darkness hide Thee,  
-Though the eye of sinful man Thy glory may not see;  
-Only Thou art holy; there is none beside Thee,  
-Perfect in power, love, and purity.  
-
-VERSE 4  
-Holy, holy, holy! Lord God Almighty!  
-All Thy works shall praise Thy name in earth and sky and sea;  
-Holy, holy, holy, merciful and mighty!  
-God in three Persons, blessed Trinity!  
-
-Words by Reginald Heber (1783-1826). Music by John B. Dykes (1861). Public Domain  
-CCLI 62951 (main copyright licence)  
-CCLI 174113 (streaming licence)  
+Jesus, Lamb of God
+Worthy is Your name
+Jesus, Lamb of God
+Worthy is Your name
 
 
-<br><br> **4. Build My Life** <br><br>
-Worthy of every song we could ever sing  
-Worthy of all the praise we could ever bring  
-Worthy of every breath we could ever breathe  
-We live for You, oh, we live for You  
+Taking my sin, my cross, my shame
+Raising again I praise Your name
+You are my all in all
+When I fall down You pick me up
+When I run dry You fill my cup
+You are my all in all
 
-Jesus, the name above every other name  
-Jesus, the only one who could ever save  
-Worthy of every breath we could ever breathe  
-We live for You, we live for You  
+Jesus, Lamb of God
+Worthy is Your name
+Jesus, Lamb of God
+Worthy is Your name
 
-Holy, there is no one like You, there is none beside You  
-Open up my eyes in wonder and  
-Show me who You are and fill me with Your heart  
-And lead me in Your love to those around me  
+Jesus, Lamb of God
+Worthy is Your name
+Jesus, Lamb of God
+Worthy is Your name
 
-Jesus, the name above every other name  
-Jesus, the only One who could ever save  
-You're worthy of every breath we could ever breathe  
-We live for You, oh, we live for You  
-
-Holy, there is no one like You, there is none beside You  
-Open up my eyes in wonder and  
-Show me who You are and fill me with Your heart  
-And lead me in Your love to those around me  
-
-I will build my life upon Your love, it is a firm foundation  
-And I will put my trust in You alone, and I will not be shaken  
-
-And I will build my life upon Your love, it is a firm foundation  
-And I will put my trust in You alone, and I will not be shaken  
-
-Holy, there is no one like You, there is none beside You  
-Open up my eyes in wonder and  
-Show me who You are and fill me with Your heart  
-And lead me in Your love to those around me  
+CCLI song # 825356 @1991 Shepherd Heart Music, Inc. (Admin. by PraiseCharts Publishing, Inc.)
+CCLI 62951 (main copyright licence)
+CCLI 174113 (streaming licence)
 
 
-Songwriters: Matthew James Redman / Karl Martin / Kirby Kaple / Brett Steven Younker / Joseph Patrick Martin Barrett  
-CCLI Song # 7070345  
-CCLI 62951 (main copyright licence)  
-CCLI 174113 (streaming licence)  
 
+<br><br> **4. No Other Name** <br><br>
+There is no other name
+In heaven can be found
+Through whom we are redeemed
+Through whom your grace abounds
+No other name can save
+But Jesus Christ our Lord
+ 
+There is no other name
+In heaven can be found
+Through whom we are redeemed
+Through whom your grace abounds
+No other name can save
+But Jesus Christ our Lord
+ 
+My joy in sorrow's tears
+My strength to cast out fears
+No other name but Jesus, Jesus
+My hope in darkest night
+My broken soul's delight
+No other name but Jesus, Jesus
+ 
+There is no victory
+But Jesus crucified
+No other cure for sin
+But that our Saviour died
+No other hope we have
+But that he rose again
+He rose again
+
+My joy in sorrow's tears
+My strength to cast out fears
+No other name but Jesus, Jesus
+My hope in darkest night
+My broken soul's delight
+No other name but Jesus, Jesus
+ 
+No other throne endures
+No other song remains
+But ‘Worthy is the Lamb
+Who was for sinners slain'
+When every knee shall bow
+And tongue confess you are Lord
+You are Lord
+ 
+My joy in sorrow's tears
+My strength to cast out fears
+No other name but Jesus, Jesus
+My hope in darkest night
+My broken soul's delight
+No other name but Jesus, Jesus
+
+CCLI Song # 57372284 © 2010 Trevor Hodge 
+CCLI 62951 (main copyright licence)
+CCLI 174113 (streaming licence)
 
 
 
