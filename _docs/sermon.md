@@ -67,11 +67,15 @@ leave stumps when they are cut down,
 so the holy seed will be the stump in the land.”  
 
 ## Sermon Outline
-** **
+
 Not Christmas yet 
+
 A king in crisis 
+
 A promise 
+
 Immanuel - terrifying and wonderful 
+
 Salvation is found in no one else  
 
 
