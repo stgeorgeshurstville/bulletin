@@ -77,11 +77,10 @@ May we end this year not by slowing down, but by running the final miles with gr
 
 We pray this in the powerful name of Jesus, the Light of the World.
 
-Amen
-
+Amen.
 
 **Groups in Church**
-<br><br> *Volunteers*
+<br><br> *Staff*
 
 
 
