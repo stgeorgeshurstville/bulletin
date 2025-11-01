@@ -44,43 +44,36 @@ Amen.
 
 
 **Mission Partners**
-<br><br>*Compassion*   
-General info: Compassion is a Christian international holistic child development organisation. In response to God’s call, Compassion gives hope to the hopeless, spreading the gospel of Jesus Christ in a culturally relevant, non-coercive way. Through our Child Sponsorship Program, more than 2 million children are currently being released from poverty in Jesus’ name.
+<br><br>*Persecuted Christians*   
 
-This Sunday we are praying for three projects that Compassion supports throughout many towns and villages all over the world. 
+<br><br>*JC in SE Asia*   
+Sovereign God, we come before you now to lift up our mission partner, JC, who serves you so faithfully in a place of great challenge and risk.
 
-*1. The Global Food Crisis Support*
-We pray first for immediate provision. We ask you to supply emergency food, water, and life-saving aid to children and families suffering from the severe Global Food Crisis. Sustain the most vulnerable and give the local church partners the resources and wisdom to deliver help where it is most desperate.
+We thank you for the sheer boldness and constancy of his witness—that he shines for Jesus anyplace and anytime. Thank you for his heart, his dedication, and the incredible work you are accomplishing through him and his team.
 
-Find out [more:](https://www.compassion.com.au/global-food-crisis?srsltid=AfmBOoozrXCBtm1NzrmEBroUzUHXSw3__DnCoj75Hw1BRQt46Y65ODzZ)
+We thank you that as a church we were able to hear more about his story and be encouraged as he is not ashamed of the gospel . We pray for a powerful shield of protection over JC guarding his movements, his health, and his communications. May his faith remain strong and his steps be guided by your Spirit.
 
-*2. Mums and Babies Survival Projects*
-We pray for a strong foundation of life. Watch over every vulnerable mother and infant in the Mums and Babies Survival Projects. Grant health, safe deliveries, and a strong start to life. May the church staff minister life, hope, and community to these families.
+Specifically, we bring before you the grave and tense situation resulting from the arrest of the seven leaders from that influential house group for "illegal religious activity” that happened recently.  We pray for their immediate safety, justice, and release. Give them endurance, wisdom in their answers, and a profound sense of peace while they are detained. Let this hardship not break their faith, but instead be a testimony to the strength of Christ within them.
 
-Find out [more:](https://www.compassion.com.au/fund-a-project/mums-and-babies?srsltid=AfmBOorBPAZtcMgacIcp-46O8dVsXmeCPytYWcZWsJ1Z-dDxC_qq7Y-A)
+For the house churches they served, we ask that you pour out a spirit of peace, not paralyzing fear. May the remaining believers be strengthened to maintain fellowship and continue their worship in secret. Turn this tense situation into an opportunity, and let the Gospel continue to spread to others, multiplied by the very pressure it faces.
 
-*3. The Whole Child Approach*
-Finally, we pray for the holistic development of The Whole Child. We ask that you meet their physical needs (health and safety), their educational needs (a hopeful future), their social needs (protection and belonging), and most importantly, their spiritual needs, so they may be released from poverty in Jesus' name, realizing their full, God-given potential.
-
-Find out [more:](https://www.compassion.com/child-development-model.htm)
 
 **Church Ministries**
-<br><br> *English Congregation - A prayer to keep on shining!*  
+<br><br> *CanCare*  
 
-Heavenly Father, we thank you for the vision you've given our church this year: to shine for Jesus, anyplace anytime. As this year draws to a close, we ask that you firmly implant this mission in our hearts.
+Heavenly Father, we praise You for Your mercy and kindness. You understand the trials and suffering we face and are compassionate toward our weaknesses. We thank You for using CanCare to support those who are battling or have overcome cancer, along with their families and friends. Through Christ’s love, they serve and walk alongside them on this challenging journey.
 
-We confess that it is easy to shine in here, within the walls of this church, but often hard to live that light out there, in the world. Forgive us for the moments we have hidden our light under a basket—when fear of rejection, the pull of comfort, or simple busyness kept us silent.
+As the year draws to a close and we prepare to celebrate the birth of our Lord Jesus Christ, we pray for Your blessing upon CanCare’s ministries during this joyful season. May every service and special Christmas program become a channel of grace, sharing the good news that Jesus came into the world to save mankind. We pray that every patient and family will receive this priceless gift of salvation and be renewed with hope and joy in life.
 
-Lord, ignite in us a conviction to realize that "anyplace" means our workplaces, our schools, our homes, and the grocery aisle. Show us that "anytime" means in traffic, during a difficult conversation, or when we are tired and depleted.
+<br><br> *Nursing home / Pastoral Care Teams*  
 
-May we end this year not by slowing down, but by running the final miles with greater fervour, leaving a trail of your light and love wherever our feet may take us.
+Dear Heavenly Father, You are the God of grace and hope. You know the unique struggles and hardships each elderly person carries in their heart. We ask that Your mighty hand would touch their hearts and bring comfort to their spirits. Help them to lift their eyes to You alone and to rely on You, that they may receive true peace and blessing in Your presence. Whether they are living in nursing homes or receiving special care at home, Lord, may they experience Your love in a deeper way. 
 
-We pray this in the powerful name of Jesus, the Light of the World.
+We also pray that You would use every member of the care and visitation team as a channel of Your love. May those they visit feel the joy and encouragement of genuine fellowship and the fullness of love shared among them.
 
-Amen.
 
 **Groups in Church**
-<br><br> *Staff*
+<br><br> *Singles, widows and orphans*
 
 
 
