@@ -4,72 +4,58 @@ order: 1
 ---
 
 ## 9:30am
-1. Lights
-2. Jesus Name Above All Names
-3. You Are My All In All
-4. No Other Name
+1. Here I am to Worship
+2. Beautiful Saviour (All of My Days)
+3. Living Hope
+4. Pass It On
 
 **Scroll below for 9:30am song lyrics**
 
 ## 4:00pm
-1. All Creatures of Our God and King
-2. Take Heart
-3. O Come All Ye Faithful
-4. All Glory Be to Christ
+1. Here we stand
+2. All I have is Christ
+3. In Christ alone
+4. Joy to the World
 
 
 
 ### 9:30am Song Lyrics
-<br><br>**1. Lights**<br><br>
-In the world, it was night
-Chains of darkness 'round our hearts
-Eyes were blind, minds were closed
-Chose to stay within the dark
-Couldn't see, couldn't change
-Helpless in our darkened state
-There we stayed 'til the light of life appeared 
+<br><br>**1. Here I am to Worship**<br><br>
+Light of the world
+You stepped down into darkness
+Opened my eyes and let me see
+Beauty that made this heart adore You
+Hope of a life spent with You
 
-Who can break the chains of darkness?
-Who can save?
+Here I am to worship, here I am to bow down
+Here I am to say that You're my God
+You’re altogether lovely, altogether worthy
+Altogether wonderful to me
 
-You are (you are) the light in darkness
-You came (you came) to bring salvation
-You gave (you gave) your life to free us
-You are the light
-Then you came as a man
-To the earth that you had made
-On the cross you gave your life
-The darkness seemed to have its way
-But then you rose in victory
-Death defeated, we are free
-Now you reign, calling us into your light
-Who can wake us from our slumber?
-Who can save?
+King of all days, oh so highly exalted
+You're glorious in heaven above
+Humbly You came to this Earth You created
+All for love's sake became poor
 
-You are (you are) the light in darkness
-You came (you came) to bring salvation
-You gave (you gave) your life to free us
-You are the light
-Who can break the chains of darkness?
-Who can save?
-Who can wake us from our slumber?
-Who can save?
-You can break the chains of darkness
-You can save
-You can wake us from our slumber
-You can save
+Here I am to worship, here I am to bow down
+Here I am to say that You're my God
+You’re altogether lovely, altogether worthy
+Altogether wonderful to me
 
+I'll never know how much it cost
+To see my sin upon that cross
+I'll never know how much it cost
+To see my sin upon that cross
+Here I am to worship, here I am to bow down
+Here I am to say that You're my God
+You ‘re altogether lovely, altogether worthy
+Altogether wonderful to me
+I'll never know how much it cost
+To see my sin upon that cross
+I'll never know how much it cost
+To see my sin upon that cross
 
-You are (you are) the light in darkness
-You came (you came) to bring salvation
-You gave (you gave) your life to free us
-You are the light
-We have (we have) been brought from darkness
-We stand (we stand) free from judgement
-We give (we give) our lives to serve you
-We are your lights
-
-CCCLI Song # 7081707 | Alanna Glover | Sam Manchester | Liv Chapman | © 2016 Glover, Alanna | Chapman, Liv | Manchester, Sam | emumusic.com
+CCLI Song # 3266032 © 2000 Thank You Music Ltd.
 CCLI 62951 (main copyright licence)
 CCLI 174113 (streaming licence)
 
