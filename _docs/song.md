@@ -22,10 +22,15 @@ order: 1
 ### 9:30am Song Lyrics
 <br><br>**1. Here I am to Worship**<br><br>
 Light of the world
+
 You stepped down into darkness
+
 Opened my eyes and let me see
+
 Beauty that made this heart adore You
+
 Hope of a life spent with You
+
 
 Here I am to worship, here I am to bow down
 Here I am to say that You're my God
