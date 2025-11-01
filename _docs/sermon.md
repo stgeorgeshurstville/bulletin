@@ -22,44 +22,50 @@ Dear God, thank you for letting us know you. Please help us learn from your word
 
 ### Isaiah 9:1-7 (NIV)
 
-**The Sign of Immanuel**
 
-¹ When Ahaz son of Jotham, the son of Uzziah, was king of Judah, King Rezin of Aram and Pekah son of Remaliah king of Israel marched up to fight against Jerusalem, but they could not overpower it.
+¹ Nevertheless, there will be no more gloom for those who were in distress. In the past he humbled the land of Zebulun and the land of Naphtali, but in the future he will honor Galilee of the nations, by the Way of the Sea, beyond the Jordan—
 
-² Now the house of David was told, “Aram has allied itself with Ephraim”; so the hearts of Ahaz and his people were shaken, as the trees of the forest are shaken by the wind.
+² The people walking in darkness
+have seen a great light;
+on those living in the land of deep darkness
+a light has dawned.
 
-³ Then the Lord said to Isaiah, “Go out, you and your son Shear-Jashub, to meet Ahaz at the end of the aqueduct of the Upper Pool, on the road to the Launderer’s Field. ⁴ Say to him, ‘Be careful, keep calm and don’t be afraid. Do not lose heart because of these two smoldering stubs of firewood—because of the fierce anger of Rezin and Aram and of the son of Remaliah. ⁵ Aram, Ephraim and Remaliah’s son have plotted your ruin, saying, ⁶ “Let us invade Judah; let us tear it apart and divide it among ourselves, and make the son of Tabeel king over it.” 
+³ You have enlarged the nation
+and increased their joy;
+they rejoice before you
+as people rejoice at the harvest,
+as warriors rejoice
+when dividing the plunder.
 
-⁷ Yet this is what the Sovereign Lord says:
+⁴ For as in the day of Midian’s defeat,
+you have shattered
+the yoke that burdens them,
+the bar across their shoulders,
+the rod of their oppressor.
 
-“‘It will not take place,
-it will not happen,
-⁸ 
-for the head of Aram is Damascus,
-and the head of Damascus is only Rezin.
-Within sixty-five years
-Ephraim will be too shattered to be a people.
-⁹ 
-The head of Ephraim is Samaria,
-and the head of Samaria is only Remaliah’s son.
-If you do not stand firm in your faith,
-you will not stand at all.’”
+⁵ Every warrior’s boot used in battle
+and every garment rolled in blood
+will be destined for burning,
+will be fuel for the fire.
 
-¹⁰ Again the Lord spoke to Ahaz, ¹¹ “Ask the Lord your God for a sign, whether in the deepest depths or in the highest heights.”
+⁶ For to us a child is born,
+to us a son is given,
+and the government will be on his shoulders.
+And he will be called
+Wonderful Counselor, Mighty God,
+Everlasting Father, Prince of Peace.
 
-¹² But Ahaz said, “I will not ask; I will not put the Lord to the test.”
+⁷ Of the greatness of his government and peace
+there will be no end.
+He will reign on David’s throne
+and over his kingdom,
+establishing and upholding it
+with justice and righteousness
+from that time on and forever.
+The zeal of the Lord Almighty
+will accomplish this.
 
-¹³ Then Isaiah said, “Hear now, you house of David! Is it not enough to try the patience of humans? Will you try the patience of my God also? ¹⁴ Therefore the Lord himself will give you a sign: The virgin will conceive and give birth to a son, and will call him Immanuel. ¹⁵ He will be eating curds and honey when he knows enough to reject the wrong and choose the right, ¹⁶ for before the boy knows enough to reject the wrong and choose the right, the land of the two kings you dread will be laid waste. ¹⁷ The Lord will bring on you and on your people and on the house of your father a time unlike any since Ephraim broke away from Judah—he will bring the king of Assyria.”
 
-**Assyria, the Lord’s Instrument**
-
-¹⁸ In that day the Lord will whistle for flies from the Nile delta in Egypt and for bees from the land of Assyria. ¹⁹ They will all come and settle in the steep ravines and in the crevices in the rocks, on all the thornbushes and at all the water holes. ²⁰ In that day the Lord will use a razor hired from beyond the Euphrates River—the king of Assyria—to shave your head and private parts, and to cut off your beard also. ²¹ In that day, a person will keep alive a young cow and two goats. ²² And because of the abundance of the milk they give, there will be curds to eat. All who remain in the land will eat curds and honey. ²³ In that day, in every place where there were a thousand vines worth a thousand silver shekels, there will be only briers and thorns. ²⁴ Hunters will go there with bow and arrow, for the land will be covered with briers and thorns. ²⁵ As for all the hills once cultivated by the hoe, you will no longer go there for fear of the briers and thorns; they will become places where cattle are turned loose and where sheep run.
-
-### Isaiah 8:19-22 (NIV)
-
-**The Darkness Turns to Light**
-
-¹⁹ When someone tells you to consult mediums and spiritists, who whisper and mutter, should not a people inquire of their God? Why consult the dead on behalf of the living? ²⁰ Consult God’s instruction and the testimony of warning. If anyone does not speak according to this word, they have no light of dawn. ²¹ Distressed and hungry, they will roam through the land; when they are famished, they will become enraged and, looking upward, will curse their king and their God. ²² Then they will look toward the earth and see only distress and darkness and fearful gloom, and they will be thrust into utter darkness.
 
 ## Sermon Outline
 
