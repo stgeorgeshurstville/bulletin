@@ -69,15 +69,22 @@ will accomplish this.
 
 ## Sermon Outline
 
-Not Christmas yet 
+Drinking sea water 8:19-22 
 
-A king in crisis 
+Light in darkness 9:1-2
 
-A promise 
+A great turn around 9:3-5
 
-Immanuel - terrifying and wonderful 
+A child will bring peace 9:6-7
 
-Salvation is found in no one else  
+Too good to be true 
+
+The first Christmas 
+
+His way is not our ways
+
+The way of the child 
+
 
 
   
