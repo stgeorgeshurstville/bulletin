@@ -15,8 +15,8 @@ order: 5
 **Life Course!**
 
 Whether you are a genuine seeker or a skeptic, come to our Life Course where we will consider the life-changing message of the Gospel as it relates to the person of Jesus.
-We are excited to announce our upcoming Life Course, a four-week journey designed to provide a welcoming space for honest conversations. The course begins on Monday, October 26th, at 5:30 pm.
-We can't wait to see you there!
+The course started last week but it’s not too late to join us as we think about the relationship between Jesus and his father in heaven and how that can have an effect upon us as people. 
+We’ll be meeting in the middle seminar room at 5:30pm this Sunday. 
 
 
 **Illuminate - A night of Prayer and Praise**
