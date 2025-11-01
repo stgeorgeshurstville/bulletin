@@ -4,9 +4,9 @@ order: 4
 ---
 
 ## Collect
-Merciful Lord, grant to your faithful people pardon and peace, that they may be cleansed from all their sins, and serve you with a quiet mind; through Jesus Christ our Lord. Amen.
+Father in heaven, keep your household the church steadfast in faith and love, that through your protection it may be free from all adversities, and may devoutly serve you in good works to the glory of your name; through Jesus Christ our Lord. Amen.
 
-## Week H
+## Week B
 
 
 **From the Passage**
