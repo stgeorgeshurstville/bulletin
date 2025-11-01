@@ -11,6 +11,7 @@ Father in heaven, keep your household the church steadfast in faith and love, th
 
 **From the Passage**
 <br><br> Gracious God,
+
  We praise you for Jesus — the light who shines in the darkness.
  When the world was lost and blind, you sent your Son,  the Wonderful Counsellor, Mighty God, Everlasting Father, Prince of Peace.  He is the hope,the joy, the peace, the life of the world.
 
