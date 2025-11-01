@@ -62,61 +62,68 @@ CCLI 174113 (streaming licence)
 
 
 
-<br><br>**2. Jesus Name Above All Names**<br><br>
-Jesus, name above all names
-Beautiful Saviour, glorious Lord.
-Emmanuel, God is with us.
-Blessed Redeemer, Living word.
-
-Jesus, Lord God all Mighty
-Wonderful Counsellor, light of the world
-The Prince of East, all above glory
-Man of sorrow, lamb of God.
-
-Jesus, name above all names
-Beautiful Saviour, glorious Lord.
-Emmanuel, God is with us.
-Blessed Redeemer, living word.
-
-© 1999 Compilation WoW Worship| Bill Batstone| Naida Hearn
-CCLI 62951 (main copyright licence)
-CCLI 174113 (streaming licence)
-
+<br><br>**2. Beautiful Saviour (All of My Days)**<br><br>
+All my days I will sing this song of gladness
+ Give my praise to the fountain of delights
+ For in my helplessness, you heard my cry
+ And waves of mercy poured down on my life.
  
-<br><br>**3. You Are My All In All**<br><br>
-You are my strength when I am weak
-You are the treasure that I seek
-You are my all in all
-Seeking You like a precious jewel
-Lord, to give up I'd be a fool
-You are my all in all
+ I will trust in the cross of my Redeemer
+ I will sing of the blood that never fails
+ Of sins forgiven of conscience cleansed
+ Of death defeated and life without end.
+ 
+ Beautiful Saviour, wonderful counsellor
+ Clothed in majesty, Lord of history
+ You're the way, the truth, the life.
+ 
+ Star of the morning, glorious in holiness
+ You're the risen one, heaven's champion
+ And you reign, you reign over all.
+ 
+ All my days I will sing this song of gladness
+ Give my praise to the fountain of delights
+ For in my helplessness, you heard my cry
+ And waves of mercy poured down on my life.
+ 
+ I will trust in the cross of my Redeemer
+ I will sing of the blood that never fails
+ Of sins forgiven of conscience cleansed.
+ 
+Of death defeated and life without end.
 
-Jesus, Lamb of God
-Worthy is Your name
-Jesus, Lamb of God
-Worthy is Your name
+ Beautiful Savior, wonderful counsellor
+ Clothed in majesty, Lord of history
+ You're the way, the truth, the life.
+ 
+ Star of the morning, glorious in holiness
+ You're the risen one, heaven's champion
+ And you reign, you reign.
+ 
+ Beautiful Savior, wonderful counsellor
+ Clothed in majesty, Lord of history
+ You're the way, the truth, the life.
+ 
+ Star of the morning, glorious in holiness
+ You're the risen one, heaven's champion
+ And you reign, you reign over all
+ I long to be where the praise is never ending
+ Yearn to dwell where the glory never fades
+ Where countless worshippers will share one song
+ And cries of "WORTHY!" will honour the Lamb.
+ 
+ Beautiful Savior, wonderful counsellor
+ Clothed in majesty, Lord of history
+ You're the way, the truth, the life.
+ 
+ Star of the morning, glorious in holiness
+ You're the risen one, heaven's champion
+ And you reign, you reign over all
 
-
-Taking my sin, my cross, my shame
-Raising again I praise Your name
-You are my all in all
-When I fall down You pick me up
-When I run dry You fill my cup
-You are my all in all
-
-Jesus, Lamb of God
-Worthy is Your name
-Jesus, Lamb of God
-Worthy is Your name
-
-Jesus, Lamb of God
-Worthy is Your name
-Jesus, Lamb of God
-Worthy is Your name
-
-CCLI song # 825356 @1991 Shepherd Heart Music, Inc. (Admin. by PraiseCharts Publishing, Inc.)
+© 2001 Thankyou Music, Thank You Music Ltd.
 CCLI 62951 (main copyright licence)
 CCLI 174113 (streaming licence)
+
 
 
 
