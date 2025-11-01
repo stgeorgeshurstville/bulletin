@@ -47,19 +47,11 @@ To get the most out of our study of Isaiah, we encourage everyone to be reading 
 
 So, to make the most of this epic journey, we encourage you to read all 66 chapters of Isaiah over the next 9 weeks. To help you on this journey, we’ve created a [9-week reading plan](https://www.canva.com/design/DAG16YkibTQ/h1WDqF08taLnE5OVQGcaVA/view?utm_content=DAG16YkibTQ&utm_campaign=designshare&utm_medium=link2&utm_source=uniquelinks&utlId=h659a985df1) so that you can see the majesty of what God has done for his people.
 
-**An Epic Journey: Studying Isaiah**
+**Inner Lawn Turf (Phase 1) at Church is Finished!**
 
-This term, our church has started a journey of *studying* the *Book of Isaiah*, leading us all the way up to Christmas. It promises to be an epic spiritual journey as we trace the prophet’s message to his people and explore how that powerful message relates to us as God's people on this side of the cross.
+We're thrilled to announce that the first phase of the artificial turf replacement on the inner lawn of the main church site is now complete! A tremendous thank you once again to the dedicated volunteers who worked hard and efficiently last week. Your service made this upgrade possible! The new turf looks fantastic and provides a beautiful space for our community to use.
 
-To get the most out of our study of Isaiah, we encourage everyone to be reading it for themselves. As *Christians*, we know that hearing God's voice through His Word is essential to worshipping Him as Lord, but this vital task often gets squeezed out of our busy schedules.
-
-So, to make the most of this epic journey, we encourage you to read all 66 chapters of Isaiah over the next 9 weeks. To help you on this journey, we’ve created a *9-week reading plan* so that you can see the majesty of what God has done for his people.
-
-  <img width="236" alt="[Screenshot 2023-07-01 134203" src="https://github.com/stgeorgeshurstville/bulletin/assets/119166299/b540ac1c-0ba4-481e-90a5-5464939f7e4c](https://www.canva.com/design/DAG16YkibTQ/h1WDqF08taLnE5OVQGcaVA/view?utm_content=DAG16YkibTQ&utm_campaign=designshare&utm_medium=link2&utm_source=uniquelinks&utlId=h659a985df1)">
-
-**Warden's News**
-
-We’re planning to start prep work on the inner lawn of the main church site this Monday 27/10 from 10am to get ready for laying artificial turf. We need 4 helpers for digging, levelling, and laying the artificial turf. If you can lend a hand, please let Darren know!
+The momentum continues! Our next major project is the replacement of the hall flooring. This essential work will significantly improve the function of our hall gathering space. We know many of you cherish our community spaces, and these projects rely entirely on your generosity. Please prayerfully consider continuing your giving towards the Church Building Fund to ensure we can continue improvements and maintenance for our entire site. Thank you for investing in the future of our church home!
 
 **Growing in Our Welcoming:**
   
