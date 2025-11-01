@@ -20,7 +20,7 @@ order: 2
 ### Prayer
 Dear God, thank you for letting us know you. Please help us learn from your word. Help us to serve and praise you. **Amen!**
 
-### Isaiah 7:1-25 (NIV)
+### Isaiah 9:1-7 (NIV)
 
 **The Sign of Immanuel**
 
