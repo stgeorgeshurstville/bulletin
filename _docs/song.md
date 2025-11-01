@@ -127,62 +127,113 @@ CCLI 174113 (streaming licence)
 
 
 
-<br><br> **4. No Other Name** <br><br>
-There is no other name
-In heaven can be found
-Through whom we are redeemed
-Through whom your grace abounds
-No other name can save
-But Jesus Christ our Lord
- 
-There is no other name
-In heaven can be found
-Through whom we are redeemed
-Through whom your grace abounds
-No other name can save
-But Jesus Christ our Lord
- 
-My joy in sorrow's tears
-My strength to cast out fears
-No other name but Jesus, Jesus
-My hope in darkest night
-My broken soul's delight
-No other name but Jesus, Jesus
- 
-There is no victory
-But Jesus crucified
-No other cure for sin
-But that our Saviour died
-No other hope we have
-But that he rose again
-He rose again
+<br><br> **3. Living Hope** <br><br>
+How great the chasm that lay between us
+How high the mountain I could not climb
+In desperation, I turned to heaven
+And spoke Your name into the night
 
-My joy in sorrow's tears
-My strength to cast out fears
-No other name but Jesus, Jesus
-My hope in darkest night
-My broken soul's delight
-No other name but Jesus, Jesus
+Then through the darkness, Your loving kindness
+Tore through the shadows of my soul
+The work is ﬁnished, the end is written
+Jesus Christ, my living hope
  
-No other throne endures
-No other song remains
-But ‘Worthy is the Lamb
-Who was for sinners slain'
-When every knee shall bow
-And tongue confess you are Lord
-You are Lord
- 
-My joy in sorrow's tears
-My strength to cast out fears
-No other name but Jesus, Jesus
-My hope in darkest night
-My broken soul's delight
-No other name but Jesus, Jesus
+Who could imagine so great a mercy?
+What heart could fathom such boundless grace?
+The God of ages stepped down from glory
+To wear my sin and bear my shame
 
-CCLI Song # 57372284 © 2010 Trevor Hodge 
+The cross has spoken, I am forgiven
+The King of kings calls me His own
+Beautiful Saviour, I'm Yours forever
+Jesus Christ, my living hope
+ 
+Hallelujah, praise the One who set me free
+Hallelujah, death has lost its grip on me
+You have broken every chain
+There's salvation in Your name
+Jesus Christ, my living hope
+
+Hallelujah, praise the One who set me free
+Hallelujah, death has lost its grip on me
+You have broken every chain
+There's salvation in Your name
+Jesus Christ, my living hope
+Then came the morning that sealed the promise
+Your buried body began to breathe
+Out of the silence, the Roaring Lion
+Declared the grave has no claim on me
+
+Then came the morning that sealed the promise
+Your buried body began to breathe
+Out of the silence, the Roaring Lion
+Declared the grave has no claim on me
+Jesus, Yours is the victory, 
+
+Hallelujah, praise the One who set me free
+Hallelujah, death has lost its grip on me
+You have broken every chain
+There's salvation in Your name
+Jesus Christ, my living hope
+
+Hallelujah, praise the One who set me free
+Hallelujah, death has lost its grip on me
+You have broken every chain
+There's salvation in Your name
+Jesus Christ, my living hope
+ 
+Jesus Christ, my living hope
+Oh God, You are my living hope
+
+© 2018  Phil Wickham, Simply Global Songs
 CCLI 62951 (main copyright licence)
 CCLI 174113 (streaming licence)
 
+
+<br><br> **4. Pass It On** <br><br>
+It only takes a spark
+To get a fire going
+And soon all those around
+Can warm up in its glowing
+
+That's how it is with God's love
+Once you've experienced it
+You spread His love to ev'ryone
+You want to pass it on
+
+What a wondrous time is spring
+When all the trees are budding
+The birds begin to sing
+The flowers start their blooming
+ 
+That's how it is with God's love
+Once you've experienced it
+You want to sing it's fresh like spring
+You want to pass it on
+
+I wish for you my friend
+This happiness that I've found
+You can depend on Him
+It matters not where you're bound
+
+I'll shout it from the mountain top
+I want the world to know
+The Lord of love has come to me
+I want to pass it on
+ 
+I'll shout it from the mountain top
+I want the world to know
+The Lord of love has come to me
+I want to pass it on
+
+That's how it is with God's love
+Once you've experienced it
+You want to sing it's fresh like spring
+You want to pass it on
+
+CCLI Song # 14284 | ©2019 Kurt Kaiser
+CCLI 62951 (main copyright licence)
+CCLI 174113 (streaming licence)
 
 
 
