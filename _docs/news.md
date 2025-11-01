@@ -15,7 +15,9 @@ order: 5
 **Life Course!**
 
 Whether you are a genuine seeker or a skeptic, come to our Life Course where we will consider the life-changing message of the Gospel as it relates to the person of Jesus.
+
 The course started last week but it’s not too late to join us as we think about the relationship between Jesus and his father in heaven and how that can have an effect upon us as people. 
+
 We’ll be meeting in the middle seminar room at 5:30pm this Sunday. 
 
 
@@ -45,11 +47,15 @@ To get the most out of our study of Isaiah, we encourage everyone to be reading 
 
 So, to make the most of this epic journey, we encourage you to read all 66 chapters of Isaiah over the next 9 weeks. To help you on this journey, we’ve created a [9-week reading plan](https://www.canva.com/design/DAG16YkibTQ/h1WDqF08taLnE5OVQGcaVA/view?utm_content=DAG16YkibTQ&utm_campaign=designshare&utm_medium=link2&utm_source=uniquelinks&utlId=h659a985df1) so that you can see the majesty of what God has done for his people.
 
-**Missionary Guest Speaker: JC**
+**An Epic Journey: Studying Isaiah**
 
-We have the wonderful privilege of welcoming JC (aka Mr Noodle) to our 9:30pm and 4:00pm services on Sunday, November 2nd, as he shares about his overseas ministry.
+This term, our church has started a journey of *studying* the *Book of Isaiah*, leading us all the way up to Christmas. It promises to be an epic spiritual journey as we trace the prophet’s message to his people and explore how that powerful message relates to us as God's people on this side of the cross.
 
-As a church, it is so encouraging for us to hear JC's story as It can shape how we should live by making costly decisions for the sake of Jesus. His story also gives us a window into how we can best support someone like JC as he endeavors to spread the Gospel to the ends of the earth. Please make plans not to miss this great opportunity!
+To get the most out of our study of Isaiah, we encourage everyone to be reading it for themselves. As *Christians*, we know that hearing God's voice through His Word is essential to worshipping Him as Lord, but this vital task often gets squeezed out of our busy schedules.
+
+So, to make the most of this epic journey, we encourage you to read all 66 chapters of Isaiah over the next 9 weeks. To help you on this journey, we’ve created a *9-week reading plan* so that you can see the majesty of what God has done for his people.
+
+  <img width="236" alt="[Screenshot 2023-07-01 134203" src="https://github.com/stgeorgeshurstville/bulletin/assets/119166299/b540ac1c-0ba4-481e-90a5-5464939f7e4c](https://www.canva.com/design/DAG16YkibTQ/h1WDqF08taLnE5OVQGcaVA/view?utm_content=DAG16YkibTQ&utm_campaign=designshare&utm_medium=link2&utm_source=uniquelinks&utlId=h659a985df1)">
 
 **Warden's News**
 
