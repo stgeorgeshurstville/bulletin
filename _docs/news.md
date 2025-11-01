@@ -53,6 +53,14 @@ We're thrilled to announce that the first phase of the artificial turf replaceme
 
 The momentum continues! Our next major project is the replacement of the hall flooring. This essential work will significantly improve the function of our hall gathering space. We know many of you cherish our community spaces, and these projects rely entirely on your generosity. Please prayerfully consider continuing your giving towards the Church Building Fund to ensure we can continue improvements and maintenance for our entire site. Thank you for investing in the future of our church home!
 
+
+**A New Year of Serving Together!**
+
+As the new year rapidly approaches, we'd love for you to consider how you would like to continue serving our church. Everyone’s contribution is greatly appreciated as we seek to love people both inside and outside of our church community. 
+
+Next week in church, we will be holding a survey where you can express interest in the areas you may like to serve. Please take some time this week to pray and think about which areas in particular you may like to make yourself available.
+
+
 **Growing in Our Welcoming:**
   
   <img width="236" alt="Screenshot 2023-07-01 134203" src="https://github.com/stgeorgeshurstville/bulletin/assets/119166299/b540ac1c-0ba4-481e-90a5-5464939f7e4c">
