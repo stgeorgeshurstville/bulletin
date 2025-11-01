@@ -11,28 +11,21 @@ Father in heaven, keep your household the church steadfast in faith and love, th
 
 **From the Passage**
 <br><br> Gracious God,
- You are our refuge and strength,
- yet we confess that we often seek safety elsewhere.
- We trust in our plans, possessions, and people
- more than in You.
- We fear losing control more than losing sight of You.
+ We praise you for Jesus — the light who shines in the darkness.
+ When the world was lost and blind, you sent your Son,  the Wonderful Counsellor, Mighty God, Everlasting Father, Prince of Peace.  He is the hope,the joy, the peace, the life of the world.
 
-Lord, have mercy.
- We admit we’re reluctant to let You expose our idols,
- because we hold them so tightly.
- But we ask — gently, patiently —
- show us what we’ve trusted instead of You,
- and free us from their grip.
+Thank you that through him, the light has dawned —  that even in our darkest days, your promises still stand.
 
-Thank You that Jesus, gentle and lowly,
- does not come to crush but to save;
- not to condemn but to give rest.
- Help us to be still,
- to cease striving,
- and to know that You are God —
- our refuge, our salvation, our peace.
+Thank you that Jesus bore the burden of guilt and shame on the cross,
+ so that we might walk free in the light of your grace.
+And now, Lord, make us your light-bearers.  As Ephesians says, once we were darkness,
+ but now we are light in the Lord.
 
-Through Christ our Lord,
+Help us to live as children of light — to reflect the goodness, righteousness, and truth of Christ in our homes, our schools, our workplaces, and our city.
+
+May others see your light in us and be drawn to Jesus,  the child who became our Saviour, the King whose peace will never end.
+
+We pray this in his powerful name,
 
 Amen.  
 
@@ -60,13 +53,11 @@ For the house churches they served, we ask that you pour out a spirit of peace, 
 
 **Church Ministries**
 <br><br> *CanCare*  
-
 Heavenly Father, we praise You for Your mercy and kindness. You understand the trials and suffering we face and are compassionate toward our weaknesses. We thank You for using CanCare to support those who are battling or have overcome cancer, along with their families and friends. Through Christ’s love, they serve and walk alongside them on this challenging journey.
 
 As the year draws to a close and we prepare to celebrate the birth of our Lord Jesus Christ, we pray for Your blessing upon CanCare’s ministries during this joyful season. May every service and special Christmas program become a channel of grace, sharing the good news that Jesus came into the world to save mankind. We pray that every patient and family will receive this priceless gift of salvation and be renewed with hope and joy in life.
 
 <br><br> *Nursing home / Pastoral Care Teams*  
-
 Dear Heavenly Father, You are the God of grace and hope. You know the unique struggles and hardships each elderly person carries in their heart. We ask that Your mighty hand would touch their hearts and bring comfort to their spirits. Help them to lift their eyes to You alone and to rely on You, that they may receive true peace and blessing in Your presence. Whether they are living in nursing homes or receiving special care at home, Lord, may they experience Your love in a deeper way. 
 
 We also pray that You would use every member of the care and visitation team as a channel of Your love. May those they visit feel the joy and encouragement of genuine fellowship and the fullness of love shared among them.
