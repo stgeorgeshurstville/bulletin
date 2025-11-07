@@ -4,68 +4,68 @@ order: 4
 ---
 
 ## Collect
-Father in heaven, keep your household the church steadfast in faith and love, that through your protection it may be free from all adversities, and may devoutly serve you in good works to the glory of your name; through Jesus Christ our Lord. Amen.
+God our refuge and strength, the author of all godliness, hear the devout prayers of your Church: and grant that what we ask in faith we may surely obtain; through Jesus Christ our Lord. 
 
-## Week B
+## Week C
 
 
 **From the Passage**
-<br><br> Gracious God,
+<br><br> O Lord, Our God, we lift up the brokenness of our world, 
 
- We praise you for Jesus — the light who shines in the darkness.
- When the world was lost and blind, you sent your Son,  the Wonderful Counsellor, Mighty God, Everlasting Father, Prince of Peace.  He is the hope,the joy, the peace, the life of the world.
+We feel the weight of destruction, seeing lives shattered who are looking for hope. We acknowledge the depths of human despair and the feeling of being cut down to a stump.
 
-Thank you that through him, the light has dawned —  that even in our darkest days, your promises still stand.
+Yet, we cling to Your defiant promise through the prophet Isaiah: that from the dead stump of Jesse, a Branch will shoot forth—a King, anointed by Your Spirit.
 
-Thank you that Jesus bore the burden of guilt and shame on the cross,
- so that we might walk free in the light of your grace.
-And now, Lord, make us your light-bearers.  As Ephesians says, once we were darkness,
- but now we are light in the Lord.
+We praise You for Jesus Christ, the perfect Ruler:
 
-Help us to live as children of light — to reflect the goodness, righteousness, and truth of Christ in our homes, our schools, our workplaces, and our city.
+He is filled with Wisdom and Understanding.
 
-May others see your light in us and be drawn to Jesus,  the child who became our Saviour, the King whose peace will never end.
+He governs with Counsel and Might.
 
-We pray this in his powerful name,
+He acts with Knowledge and the Fear of the LORD.
 
-Amen.  
+We seek refuge in His leadership because He does not judge by what He sees or hears, but discerns the truth with perfect righteousness. Thank You, Lord Jesus, for seeing us as we truly are, free from prejudice.
+
+We pray for the fulfillment of Your kingdom, where hostility ceases and peace reigns—where the wolf lies with the lamb, and there is no harm or destruction. May the earth be filled with the knowledge of the Lord as the waters cover the sea.
+
+Strengthen us to be the people who hold out this saving hope to a world that feels dangerous and prejudiced. May we be witnesses to this King and His promised safe kingdom, until all nations rally to Him.
+
+In the powerful name of Jesus, our sure hope, we pray. Amen
+
 
 **Mission and Vision** 
-<br><br> *Mission:* Write your own prayer
+<br><br> *Mission:* Please reflect on your own prayer
 
 **Global and Nation** 
-<br><br> *World:* Write your own prayer
+<br><br> *World:* Please reflect on your own prayer
 
 
 **Mission Partners**
-<br><br>*Persecuted Christians*   
+<br><br>*Berkeley Life Centre*   
 
-<br><br>*JC in SE Asia*   
-Sovereign God, we come before you now to lift up our mission partner, JC, who serves you so faithfully in a place of great challenge and risk.
+_General info:
+Berkeley Life Centre desires to see Jesus Christ transforming lives to transform a community. They minister in the south coast in an area where many people are from a low socioeconomic background. People are coming to faith and the church is making a positive impact._
 
-We thank you for the sheer boldness and constancy of his witness—that he shines for Jesus anyplace and anytime. Thank you for his heart, his dedication, and the incredible work you are accomplishing through him and his team.
+Lord, we lay the Berkeley community before you. You see the deep need and the pain of this marginalized, low socio-economic area. We pray for every person struggling with disability, depression, chronic disease, low self-esteem, and dementia. We ask for your intervention in the lives of those trapped by high unemployment and the destructive cycles of addiction to drugs, alcohol, and gambling, and for those impacted by domestic violence. Bring peace where there is chaos, and clarity where there is confusion.
 
-We thank you that as a church we were able to hear more about his story and be encouraged as he is not ashamed of the gospel . We pray for a powerful shield of protection over JC guarding his movements, his health, and his communications. May his faith remain strong and his steps be guided by your Spirit.
+Strengthen the faith of those who have come to know you, who still wrestle with the impact of these issues and the threats of the evil one. Protect their resolve, Lord, and empower them to live out the truth of the Gospel daily.
 
-Specifically, we bring before you the grave and tense situation resulting from the arrest of the seven leaders from that influential house group for "illegal religious activity” that happened recently.  We pray for their immediate safety, justice, and release. Give them endurance, wisdom in their answers, and a profound sense of peace while they are detained. Let this hardship not break their faith, but instead be a testimony to the strength of Christ within them.
+We pray for provision for their outreach. Bless the ministry of the Op Shop, that through low-cost, quality items and access to food, we may meet tangible needs and build bridges of trust.
 
-For the house churches they served, we ask that you pour out a spirit of peace, not paralyzing fear. May the remaining believers be strengthened to maintain fellowship and continue their worship in secret. Turn this tense situation into an opportunity, and let the Gospel continue to spread to others, multiplied by the very pressure it faces.
+Father, we ask specifically for the resources to help people improve their lives. We urgently pray for skilled, Christ-centred counsellors to run the life-improving training courses and to facilitate powerful 1:1 discipling. We trust you for the necessary financial resources to cover these costs, knowing that developing these lives is an investment in your Kingdom.
+
 
 
 **Church Ministries**
-<br><br> *CanCare*  
-Heavenly Father, we praise You for Your mercy and kindness. You understand the trials and suffering we face and are compassionate toward our weaknesses. We thank You for using CanCare to support those who are battling or have overcome cancer, along with their families and friends. Through Christ’s love, they serve and walk alongside them on this challenging journey.
+<br><br> *EAL/D*  
+Staff team to confirm updates
 
-As the year draws to a close and we prepare to celebrate the birth of our Lord Jesus Christ, we pray for Your blessing upon CanCare’s ministries during this joyful season. May every service and special Christmas program become a channel of grace, sharing the good news that Jesus came into the world to save mankind. We pray that every patient and family will receive this priceless gift of salvation and be renewed with hope and joy in life.
-
-<br><br> *Nursing home / Pastoral Care Teams*  
-Dear Heavenly Father, You are the God of grace and hope. You know the unique struggles and hardships each elderly person carries in their heart. We ask that Your mighty hand would touch their hearts and bring comfort to their spirits. Help them to lift their eyes to You alone and to rely on You, that they may receive true peace and blessing in Your presence. Whether they are living in nursing homes or receiving special care at home, Lord, may they experience Your love in a deeper way. 
-
-We also pray that You would use every member of the care and visitation team as a channel of Your love. May those they visit feel the joy and encouragement of genuine fellowship and the fullness of love shared among them.
+<br><br> *Redevelopment*  
+We’re waiting for the Commonwealth government to open the next round of HAFF funding applcition. We hope that this will happen in December.  Please pray for wisdom in planning for us, and for the Lord’s provision to meet our current and future ministry needs. 
 
 
 **Groups in Church**
-<br><br> *Singles, widows and orphans*
+<br><br> *People with disabilities:* Please reflect on your own prayer
 
 
 
