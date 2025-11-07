@@ -14,19 +14,34 @@ order: 5
 ## General
 
 **Inner Lawn Turf (Phase 1) at Church is Finished!**
-We're thrilled to announce that the first phase of the artificial turf replacement on the inner lawn of the main church site is now complete! A tremendous thank you once again to the dedicated volunteers who worked hard and efficiently last week. Your service made this upgrade possible! The new turf looks fantastic and provides a beautiful space for our community to use.
-The momentum continues! Our next major project is the replacement of the hall flooring. This essential work will significantly improve the function of our hall gathering space. We know many of you cherish our community spaces, and these projects rely entirely on your generosity. Please prayerfully consider continuing your giving towards the Church Building Fund to ensure we can continue improvements and maintenance for our entire site. Thank you for investing in the future of our church home!
+
+We're thrilled to announce that the first phase of the artificial turf replacement on the inner lawn of the main church site is now complete! 
+A tremendous thank you once again to the dedicated volunteers who worked hard and efficiently last week. Your service made this upgrade possible! The new turf looks fantastic and provides a beautiful space for our community to use.
+The momentum continues! Our next major project is the replacement of the hall flooring. This essential work will significantly improve the function of our hall gathering space. We know many of you cherish our community spaces, and these projects rely entirely on your generosity. 
+Please prayerfully consider continuing your giving towards the Church Building Fund to ensure we can continue improvements and maintenance for our entire site. Thank you for investing in the future of our church home!
 
 **Change in parking conditions**
+
 Please note that the parking conditions have changed on the Avenue. 
+
 <img width="291" height="512" alt="image" src="https://github.com/user-attachments/assets/7f5f6037-f2a2-49b9-9a76-fcaa489c9b20" />
 
 **Staff changes** 
+
 We are writing to let you know that our Pastoral Counsellor, Tim Chan, has resigned from his role. His last day with us will be November 18th, before he takes some final leave.
-Tim has been called to serve as the minister at Auburn Presbyterian Church, a small congregation that has been without a pastor for nearly a year. We see this as a wonderful, God-given missional opportunity, and we are thankful that Tim is willing to take on this role. We trust that this new position will be a great fit for his gifts, and we pray for God's blessing on him and Wendy in this new chapter.
-We are truly grateful for Tim's five years of faithful service among us. As the Bible encourages us in 1 Timothy 5:17, we want to honour him for his work. We know that for a small number of you who have shared a close, personal connection with Tim and Wendy, this news will be sad. Your care for them is a testament to the deep relationships formed within our church family.
+
+Tim has been called to serve as the minister at Auburn Presbyterian Church, a small congregation that has been without a pastor for nearly a year. 
+
+We see this as a wonderful, God-given missional opportunity, and we are thankful that Tim is willing to take on this role. We trust that this new position will be a great fit for his gifts, and we pray for God's blessing on him and Wendy in this new chapter.
+
+We are truly grateful for Tim's five years of faithful service among us. As the Bible encourages us in 1 Timothy 5:17, we want to honour him for his work. 
+
+We know that for a small number of you who have shared a close, personal connection with Tim and Wendy, this news will be sad. Your care for them is a testament to the deep relationships formed within our church family.
+
 To thank God for Tim and Wendy, and to give us a chance to say a proper goodbye and pray for them, we will be holding a farewell afternoon tea.
+
 **Please join us on:****Saturday, 15th November at 4:00 PM**
+
 We hope you can come to wish Tim and Wendy well as we send them out to this important work.
 
 
