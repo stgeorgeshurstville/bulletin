@@ -4,18 +4,18 @@ order: 1
 ---
 
 ## 9:30am
-1. Here I am to Worship
-2. Beautiful Saviour (All of My Days)
-3. Living Hope
-4. Pass It On
+1. Come Thou Fount of Every Blessing
+2. Shout to the Lord
+3. See Him Coming
+4. Is He Worthy
 
 **Scroll below for 9:30am song lyrics**
 
 ## 4:00pm
-1. Here we stand
-2. All I have is Christ
-3. In Christ alone
-4. Joy to the World
+1. Only a Hold God
+2. It was finished upon that cross
+3. Rejoice
+4. Let your kingdom come
 
 
 
