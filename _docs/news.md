@@ -7,8 +7,8 @@ order: 5
 
 | Date | Event | Time |
 | ---- | ---- | ---- |
-| 26 October | Life Course | 5:30pm |
-| 2 November | Guest Speaker: JC | 9:30am and 4pm |
+| 26 October -  16 December| Life Course | 5:30pm |
+| 15 November | Tim & Wendy Chan Farewell | 4:00pm |
 | 15 November | Illuminate - A night of Prayer and Praise | 7:00pm |
 
 ## General
@@ -41,7 +41,7 @@ We hope you can come to wish Tim and Wendy well as we send them out to this impo
 **Life Course!**
 
 Whether you are a genuine seeker or a skeptic, come to our Life Course where we will consider the life-changing message of the Gospel as it relates to the person of Jesus.
-The course started last week but it’s not too late to join us as we think about the relationship between Jesus and his father in heaven and how that can have an effect upon us as people. 
+The course started 2 weeks ago but it’s not too late to join us as we think about the relationship between Jesus and his father in heaven and how that can have an effect upon us as people. 
 We’ll be meeting in the middle seminar room at 5:30pm this Sunday. 
 
 
