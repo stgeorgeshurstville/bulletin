@@ -11,12 +11,13 @@ title: Welcome
 
 ## Isaiah - A Light Would Dawn
 
-### A Light Will Dawn
+### The whole world will be enlightened
 
 
 
-#### Thus says the Lord, I know the plans I have for you, plans for your welfare and not for evil, to give you a future and a hope.
-#### Jeremiah 29:11 
+#### O come, let us worship and bow down, let us kneel before the Lord, our Maker. For he is our God, and we are the people of his pasture, and the sheep of his hand. 
+#### Psalm 95.6-7
+
 
 ---
 - We are gathering in person! For people who can’t gather in person, you can watch online [here](https://stgeorgeshurstville.org.au/sunday-english-online)
