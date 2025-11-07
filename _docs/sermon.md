@@ -23,7 +23,8 @@ Dear God, thank you for letting us know you. Please help us learn from your word
 ### Isaiah 11 (NIV)
 
 
-The Branch From Jesse
+_The Branch From Jesse_
+
 ¹ A shoot will come up from the stump of Jesse;
 from his roots a Branch will bear fruit.
 ² The Spirit of the Lord will rest on him—
