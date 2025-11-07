@@ -17,7 +17,7 @@ order: 5
 We're thrilled to announce that the first phase of the artificial turf replacement on the inner lawn of the main church site is now complete! A tremendous thank you once again to the dedicated volunteers who worked hard and efficiently last week. Your service made this upgrade possible! The new turf looks fantastic and provides a beautiful space for our community to use.
 The momentum continues! Our next major project is the replacement of the hall flooring. This essential work will significantly improve the function of our hall gathering space. We know many of you cherish our community spaces, and these projects rely entirely on your generosity. Please prayerfully consider continuing your giving towards the Church Building Fund to ensure we can continue improvements and maintenance for our entire site. Thank you for investing in the future of our church home!
 
-**Change in parking conditions **
+**Change in parking conditions**
 Please note that the parking conditions have changed on the Avenue. 
 <img width="291" height="512" alt="image" src="https://github.com/user-attachments/assets/7f5f6037-f2a2-49b9-9a76-fcaa489c9b20" />
 
