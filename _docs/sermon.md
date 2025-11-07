@@ -85,9 +85,11 @@ when they came up from Egypt.
 
 ## Sermon Outline
 
-Point 1: The Character of this King (verses 1-3a)
-Point 2: The Judgement of this King (verses 3b-5)
-Point 3: The State of Affairs Under this King (verses 6-16) 
+- Point 1: The Character of this King (verses 1-3a)
+
+- Point 2: The Judgement of this King (verses 3b-5)
+
+- Point 3: The State of Affairs Under this King (verses 6-16) 
 
 
 
