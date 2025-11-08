@@ -160,4 +160,56 @@ CCLI 174113 (streaming licence)
 
 
 <br><br> **4. Is He Worthy** <br><br>
+Do you feel the world is broken? (We do)
+Do you feel the shadows deepen? (We do)
+But do you know that all the dark won't
+stop the light from getting through? (We do)
+Do you wish that you could see it all made new? (We do)
+
+Is all creation groaning? (It is)
+Is a new creation coming? (It is)
+Is the glory of the Lord to be the light within our midst? (It is)
+Is it good that we remind ourselves of this? (It is)
+
+Is anyone worthy? Is anyone whole?
+Is anyone able to break the seal and open the scroll?
+The Lion of Judah who conquered the grave
+He is David's root and the Lamb who died to ransom the slave
+
+Is He worthy? Is He worthy
+Of all blessing and honor and glory?
+Is He worthy of this?
+He is
+
+Does the Father truly love us? (He does)
+Does the Spirit move among us? (He does)
+And does Jesus, our Messiah, hold forever those He loves? (He does)
+Does our God intend to dwell again with us? (He does)
+
+Is anyone worthy? Is anyone whole?
+Is anyone able to break the seal and open the scroll?
+The Lion of Judah who conquered the grave
+He is David's root and the Lamb who died to ransom the slave
+From every people and tribe
+Every nation and tongue
+He has made us a kingdom and priests to God
+To reign with the Son
+
+Is He worthy? Is He worthy?
+Of all blessing and honor and glory?
+Is He worthy? Is He worthy?
+Is He worthy of this?
+He is, He is
+He is, He is
+
+He is worthy! He is worthy!
+Of all blessing and honor and glory
+He is worthy of this
+He is
+
+Andrew Peterson and Ben Shive 2018; Shane & Shane 2019
+CCLI 62951 (main copyright licence)
+CCLI 174113 (streaming licence)
+
+
 
