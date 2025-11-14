@@ -60,7 +60,8 @@ As you complete the form, please indicate:
 - What ministry area(s) you are currently serving in.
 - What new ministries you would like to consider serving.
 Two areas in particular that we'd love for you to consider in our December and January period are: our Christmas Market (13th of December) and our New Gen Program (11th,18th and 25th of January).  You can nominate your preference for these seasonal roles in the form as well!
-<u>Please note</u>: Indicating a new area does not automatically mean you will be serving there. It will simply be the basis for a friendly conversation with one of our staff members. Together, we can consider what might be the best fit for you and our church.
+
+Please note: Indicating a new area does not automatically mean you will be serving there. It will simply be the basis for a friendly conversation with one of our staff members. Together, we can consider what might be the best fit for you and our church.
 Also this form is not the means for discontinuing a ministry in the new year. If you'd like to step down from a current team, then we'd like to direct you to have that conversation with the ministry leader of that team. 
 
 https://docs.google.com/forms/d/e/1FAIpQLSeljZR3t7boD-xQVUP9U-tOTjnZkxkEjBjPX8Qf2yyCJ54_pA/viewform
