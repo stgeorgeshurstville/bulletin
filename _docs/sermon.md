@@ -147,11 +147,10 @@ Dear God, thank you for letting us know you. Please help us learn from your word
 
 ## Sermon Outline
 
-- Point 1: The Character of this King (verses 1-3a)
+1. The Problem: When our faith in God is threatened? (Isaiah 36:4-22) 
+2. The Action: Coming to God for help (Isaiah 37:1-20) 
+3. The Resolution: God’s final word on those who rage against him (Isaiah 37:21-35)
 
-- Point 2: The Judgement of this King (verses 3b-5)
-
-- Point 3: The State of Affairs Under this King (verses 6-16) 
 
 
 
