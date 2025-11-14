@@ -67,28 +67,28 @@ Dear God, thank you for letting us know you. Please help us learn from your word
 
 ²¹ Then Isaiah son of Amoz sent a message to Hezekiah: “This is what the Lord, the God of Israel, says: Because you have prayed to me concerning Sennacherib king of Assyria, ²² this is the word the Lord has spoken against him:
 
-“Virgin Daughter Zion
-<br>  despises and mocks you.
-<br>Daughter Jerusalem
-<br>  tosses her head as you flee.
-<br>²³ Who is it you have ridiculed and blasphemed?
-<br>  Against whom have you raised your voice
-<br>and lifted your eyes in pride?
-<br>  Against the Holy One of Israel!
-<br>²⁴ By your messengers
-<br>  you have ridiculed the Lord.
-<br>And you have said,
-<br>  ‘With my many chariots
-<br>I have ascended the heights of the mountains,
-<br>  the utmost heights of Lebanon.
-<br>I have cut down its tallest cedars,
-<br>  the choicest of its junipers.
-<br>I have reached its remotest heights,
-<br>  the finest of its forests.
-<br>²⁵ I have dug wells in foreign lands 
-<br>  and drunk the water there.
-<br>With the soles of my feet
-<br>  I have dried up all the streams of Egypt.’
+    “Virgin Daughter Zion
+    <br>  despises and mocks you.
+    <br>Daughter Jerusalem
+    <br>  tosses her head as you flee.
+    <br>²³ Who is it you have ridiculed and blasphemed?
+    <br>  Against whom have you raised your voice
+    <br>and lifted your eyes in pride?
+    <br>  Against the Holy One of Israel!
+    <br>²⁴ By your messengers
+    <br>  you have ridiculed the Lord.
+    <br>And you have said,
+    <br>  ‘With my many chariots
+    <br>I have ascended the heights of the mountains,
+    <br>  the utmost heights of Lebanon.
+    <br>I have cut down its tallest cedars,
+    <br>  the choicest of its junipers.
+    <br>I have reached its remotest heights,
+    <br>  the finest of its forests.
+    <br>²⁵ I have dug wells in foreign lands 
+    <br>  and drunk the water there.
+    <br>With the soles of my feet
+    <br>  I have dried up all the streams of Egypt.’
 
 
 <br>²⁶ “Have you not heard?
