@@ -68,76 +68,76 @@ Dear God, thank you for letting us know you. Please help us learn from your word
 ²¹ Then Isaiah son of Amoz sent a message to Hezekiah: “This is what the Lord, the God of Israel, says: Because you have prayed to me concerning Sennacherib king of Assyria, ²² this is the word the Lord has spoken against him:
 
 “Virgin Daughter Zion
-<br>&nbsp;despises and mocks you.
+<br>&nbsp;&nbsp;despises and mocks you.
 <br>Daughter Jerusalem
-<br>&nbsp;tosses her head as you flee.
+<br>&nbsp;&nbsp;tosses her head as you flee.
 <br>²³ Who is it you have ridiculed and blasphemed?
-<br>&nbsp;Against whom have you raised your voice
+<br>&nbsp;&nbsp;Against whom have you raised your voice
 <br>and lifted your eyes in pride?
-<br>&nbsp;Against the Holy One of Israel!
+<br>&nbsp;&nbsp;Against the Holy One of Israel!
 <br>²⁴ By your messengers
-<br>&nbsp;you have ridiculed the Lord.
+<br>&nbsp;&nbsp;you have ridiculed the Lord.
 <br>And you have said,
-<br>&nbsp;‘With my many chariots
+<br>&nbsp;&nbsp;‘With my many chariots
 <br>I have ascended the heights of the mountains,
-<br>&nbsp;the utmost heights of Lebanon.
+<br>&nbsp;&nbsp;the utmost heights of Lebanon.
 <br>I have cut down its tallest cedars,
-<br>&nbsp;the choicest of its junipers.
+<br>&nbsp;&nbsp;the choicest of its junipers.
 <br>I have reached its remotest heights,
-<br>&nbsp;the finest of its forests.
+<br>&nbsp;&nbsp;the finest of its forests.
 <br>²⁵ I have dug wells in foreign lands 
-<br>&nbsp;and drunk the water there.
+<br>&nbsp;&nbsp;and drunk the water there.
 <br>With the soles of my feet
-<br>&nbsp;I have dried up all the streams of Egypt.’
+<br>&nbsp;&nbsp;I have dried up all the streams of Egypt.’
 
 
 <br>²⁶ “Have you not heard?
-<br>  Long ago I ordained it.
+<br>&nbsp;&nbsp;Long ago I ordained it.
 <br>In days of old I planned it;
-<br>  now I have brought it to pass,
+<br>&nbsp;&nbsp;now I have brought it to pass,
 <br>that you have turned fortified cities
-<br>  into piles of stone.
+<br>&nbsp;&nbsp;into piles of stone.
 <br>²⁷ Their people, drained of power,
-<br>  are dismayed and put to shame.
+<br>&nbsp;&nbsp;are dismayed and put to shame.
 <br>They are like plants in the field,
-<br>  like tender green shoots,
+<br>&nbsp;&nbsp;like tender green shoots,
 <br>like grass sprouting on the roof,
-<br>  scorched before it grows up.
+<br>&nbsp;&nbsp;scorched before it grows up.
 
 
 <br>²⁸ “But I know where you are
-<br>  and when you come and go
-<br>  and how you rage against me.
+<br>&nbsp;&nbsp;and when you come and go
+<br>&nbsp;&nbsp;and how you rage against me.
 <br>²⁹ Because you rage against me
-<br>  and because your insolence has reached my ears,
+<br>&nbsp;&nbsp;and because your insolence has reached my ears,
 <br>I will put my hook in your nose
-<br>  and my bit in your mouth,
+<br>&nbsp;&nbsp;and my bit in your mouth,
 <br>and I will make you return
-<br>  by the way you came.
+<br>&nbsp;&nbsp;by the way you came.
 
 ³⁰ “This will be the sign for you, Hezekiah:
 
 <br>“This year you will eat what grows by itself,
-<br>  and the second year what springs from that.
+<br>&nbsp;&nbsp;and the second year what springs from that.
 <br>But in the third year sow and reap,
-<br>  plant vineyards and eat their fruit.
+<br>&nbsp;&nbsp;plant vineyards and eat their fruit.
 <br>³¹ Once more a remnant of the kingdom of Judah
-<br>  will take root below and bear fruit above.
+<br>&nbsp;&nbsp;will take root below and bear fruit above.
 <br>³² For out of Jerusalem will come a remnant,
-<br>  and out of Mount Zion a band of survivors.
+<br>&nbsp;&nbsp;and out of Mount Zion a band of survivors.
 <br>The zeal of the Lord Almighty
-<br>  will accomplish this.
+<br>&nbsp;&nbsp;will accomplish this.
 
 ³³ “Therefore this is what the Lord says concerning the king of Assyria:
 
 <br>“He will not enter this city
-<br>  or shoot an arrow here.
+<br>&nbsp;&nbsp;or shoot an arrow here.
 <br>He will not come before it with shield
-<br>  or build a siege ramp against it.
+<br>&nbsp;&nbsp;or build a siege ramp against it.
 <br>³⁴ By the way that he came he will return;
-<br>  he will not enter this city,”
+<br>&nbsp;&nbsp;he will not enter this city,”
 <br>declares the Lord.
-<br>  ³⁵ “I will defend this city and save it,
+<br>&nbsp;&nbsp;³⁵ “I will defend this city and save it,
 <br>for my sake and for the sake of David my servant!”
 
 ³⁶ Then the angel of the Lord went out and put to death a hundred and eighty-five thousand in the Assyrian camp. When the people got up the next morning—there were all the dead bodies! ³⁷ So Sennacherib king of Assyria broke camp and withdrew. He returned to Nineveh and stayed there.
