@@ -24,8 +24,8 @@ Event Details:
 - Time: 4:30 PM – 8:30 PM
 How You Can Participate:
 - Host a Stall: Register to host a Car Boot or Food Stall to engage with the community and raise funds.
-    - Car Boot Sale Registration: https://forms.gle/k8hq4FJZeZMv77sX9
-    - Food Stall Registration: https://forms.gle/TczdBqitSu17aUhS6
+    - [Car Boot Sale Registration](https://forms.gle/k8hq4FJZeZMv77sX9)
+    - [Food Stall Registration](https://forms.gle/TczdBqitSu17aUhS6)
 - Join the Outreach Team: Be on the front lines, sharing the good news with visitors.
 - Invite: Bring your family and friends to enjoy the market atmosphere.
 - Support: Contribute to the charity fundraising initiatives.
@@ -34,7 +34,7 @@ How You Can Participate:
 ### Opportunity to Serve: Billeting Our Students
 
 If you are in a position to host one of the UNSW students (Dec 10th–14th), please express your interest by filling out this form:
-[Billeting Interest Form](https://www.google.com/search?q=https://forms.gle/9XS8GfnsUwQfzRq5A)
+[Billeting Interest Form](https://forms.gle/9XS8GfnsUwQfzRq5A)
 
 For More Information
 If you have further questions, please contact the appropriate person for your service:
