@@ -12,6 +12,32 @@ order: 5
 | 15 November | Illuminate - A night of Prayer and Praise | 7:00pm |
 
 ## General
+**Christmas Mission Season 2025: Sharing the Good News**
+This December, from December 13th leading up to Christmas, we warmly invite all our church members to participate in our Christmas mission, where we will be sharing the good news of Jesus to those in our community.
+To support this effort, a Team of students from UNSW will be with us from December 10th to December 14th.
+
+**Christmas Market 2025**
+One of the key events during this season is our annual Christmas Market. This is a wonderful opportunity to connect with our local community, share the gospel, and extend practical care through charity fundraising.
+Event Details:
+- Date: Saturday, December 13th, 2025
+- Time: 4:30 PM – 8:30 PM
+How You Can Participate:
+- Host a Stall: Register to host a Car Boot or Food Stall to engage with the community and raise funds.
+    - Car Boot Sale Registration: https://forms.gle/k8hq4FJZeZMv77sX9
+    - Food Stall Registration: https://forms.gle/TczdBqitSu17aUhS6
+- Join the Outreach Team: Be on the front lines, sharing the good news with visitors.
+- Invite: Bring your family and friends to enjoy the market atmosphere.
+- Support: Contribute to the charity fundraising initiatives.
+
+
+**Opportunity to Serve: Billeting Our Students**
+If you are in a position to host one of the UNSW students (Dec 10th–14th), please express your interest by filling out this form:
+[Billeting Interest Form](https://www.google.com/search?q=https://forms.gle/9XS8GfnsUwQfzRq5A)
+For More Information
+If you have further questions, please contact the appropriate person for your service:
+- 9:30 AM Cantonese: Kevin Lee
+- 4:00 PM Mandarin: Esther Wu
+- Other Inquiries: Your Congregation Minister
 
 **Inner Lawn Turf (Phase 1) at Church is Finished!**
 
@@ -26,50 +52,18 @@ Please note that the parking conditions have changed on the Avenue.
 
 <img width="291" height="512" alt="image" src="https://github.com/user-attachments/assets/7f5f6037-f2a2-49b9-9a76-fcaa489c9b20" />
 
-**Staff changes** 
-
-We are writing to let you know that our Pastoral Counsellor, Tim Chan, has resigned from his role. His last day with us will be November 18th, before he takes some final leave.
-Tim has been called to serve as the minister at Auburn Presbyterian Church, a small congregation that has been without a pastor for nearly a year. 
-We see this as a wonderful, God-given missional opportunity, and we are thankful that Tim is willing to take on this role. We trust that this new position will be a great fit for his gifts, and we pray for God's blessing on him and Wendy in this new chapter.
-We are truly grateful for Tim's five years of faithful service among us. As the Bible encourages us in 1 Timothy 5:17, we want to honour him for his work. 
-We know that for a small number of you who have shared a close, personal connection with Tim and Wendy, this news will be sad. Your care for them is a testament to the deep relationships formed within our church family.
-To thank God for Tim and Wendy, and to give us a chance to say a proper goodbye and pray for them, we will be holding a farewell afternoon tea.
-_**Please join us on: Saturday, 15th November at 4:00 PM**_
-We hope you can come to wish Tim and Wendy well as we send them out to this important work.
-
-
-**Life Course!**
-
-Whether you are a genuine seeker or a skeptic, come to our Life Course where we will consider the life-changing message of the Gospel as it relates to the person of Jesus.
-The course started 2 weeks ago but it’s not too late to join us as we think about the relationship between Jesus and his father in heaven and how that can have an effect upon us as people. 
-We’ll be meeting in the middle seminar room at 5:30pm this Sunday. 
-
-
-**Illuminate - A night of Prayer and Praise**
-
-The 4pm English music team will be hosting a praise & prayer night in November.
-Join us for Illuminate, where we will explore what the Bible says about light and the promise of Jesus as our true Light. Come and be refreshed, encouraged, and reminded of the hope that shines in Him.
-All are welcome, and invite a friend!
-**Event Details**
-**Date:** Saturday 15 November
-**Time:** 7:00pm
-**Location**: St George's Anglican Church Hurstville, Church Hall
-![Illuminate](https://github.com/stgeorgeshurstville/bulletin/blob/dc8c1bc1762663fa2114c193276f41465e2a1d4a/images/Illuminate.png)
-
 
 **A New Year of Serving Together!**
 As the new year rapidly approaches, we'd love for you to consider how you would like to continue serving our church. Everyone’s contribution is greatly appreciated as we seek to love people both inside and outside of our church community. 
 As God's people, we are called to emulate the Lord Jesus, who came "not to be served but to serve, and to give his life as a ransom for many." There are many areas in which you can serve our church in the coming year, and you’ll see those detailed in the form.
-To express interest in new areas you’d like to serve in the new year please press the link below: https://docs.google.com/forms/d/e/1FAIpQLSeljZR3t7boD-xQVUP9U-tOTjnZkxkEjBjPX8Qf2yyCJ54_pA/viewform
+As you complete the form, please indicate:
+- What ministry area(s) you are currently serving in.
+- What new ministries you would like to consider serving.
+Two areas in particular that we'd love for you to consider in our December and January period are: our Christmas Market (13th of December) and our New Gen Program (11th,18th and 25th of January).  You can nominate your preference for these seasonal roles in the form as well!
+<u>Please note</u>: Indicating a new area does not automatically mean you will be serving there. It will simply be the basis for a friendly conversation with one of our staff members. Together, we can consider what might be the best fit for you and our church.
+Also this form is not the means for discontinuing a ministry in the new year. If you'd like to step down from a current team, then we'd like to direct you to have that conversation with the ministry leader of that team. 
 
-
-**An Epic Journey: Studying Isaiah**
-
-This term, our church has started a journey of studying the Book of Isaiah, leading us all the way up to Christmas. It promises to be an epic spiritual journey as we trace the prophet’s message to his people and explore how that powerful message relates to us as God's people on this side of the cross.
-To get the most out of our study of Isaiah, we encourage everyone to be reading it for themselves. As Christians, we know that hearing God's voice through His Word is essential to worshipping Him as Lord, but this vital task often gets squeezed out of our busy schedules.
-So, to make the most of this epic journey, we encourage you to read all 66 chapters of Isaiah over the next 9 weeks. To help you on this journey, we’ve created a [9-week reading plan](https://www.canva.com/design/DAG16YkibTQ/h1WDqF08taLnE5OVQGcaVA/view?utm_content=DAG16YkibTQ&utm_campaign=designshare&utm_medium=link2&utm_source=uniquelinks&utlId=h659a985df1) so that you can see the majesty of what God has done for his people.
-
-
+https://docs.google.com/forms/d/e/1FAIpQLSeljZR3t7boD-xQVUP9U-tOTjnZkxkEjBjPX8Qf2yyCJ54_pA/viewform
 
 
 **Growing in Our Welcoming:**
