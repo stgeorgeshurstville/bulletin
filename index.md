@@ -11,12 +11,12 @@ title: Welcome
 
 ## Isaiah - A Light Would Dawn
 
-### The whole world will be enlightened
+### The great salvation event
 
 
 
-#### O come, let us worship and bow down, let us kneel before the Lord, our Maker. For he is our God, and we are the people of his pasture, and the sheep of his hand. 
-#### Psalm 95.6-7
+#### Jesus said; I am the light of the world; he who follows me will not walk in darkness, but will have the light of life.
+##### John 8:12
 
 
 ---
