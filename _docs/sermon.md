@@ -67,7 +67,7 @@ Dear God, thank you for letting us know you. Please help us learn from your word
 
 ²¹ Then Isaiah son of Amoz sent a message to Hezekiah: “This is what the Lord, the God of Israel, says: Because you have prayed to me concerning Sennacherib king of Assyria, ²² this is the word the Lord has spoken against him:
 
-    “Virgin Daughter Zion
+“Virgin Daughter Zion
     <br>  despises and mocks you.
     <br>Daughter Jerusalem
     <br>  tosses her head as you flee.
