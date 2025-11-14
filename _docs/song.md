@@ -21,196 +21,196 @@ order: 1
 
 ### 9:30am Song Lyrics
 <br><br>**1. How Great is Our God**<br><br>
-The splendour of a King, clothed in majesty
-Let all the Earth rejoice
-All the Earth rejoice
+<br>The splendour of a King, clothed in majesty
+<br>Let all the Earth rejoice
+<br>All the Earth rejoice
  
-He wraps himself in light
-And darkness tries to hide
-And trembles at His voice
-Trembles at His voice
+<br>He wraps himself in light
+<br>And darkness tries to hide
+<br>And trembles at His voice
+<br>Trembles at His voice
  
-How great is our God, sing with me
-How great is our God, and all will see
-How great, how great is our God
+<br>How great is our God, sing with me
+<br>How great is our God, and all will see
+<br>How great, how great is our God
  
-Age to age He stands
-And time is in His hands
-Beginning and the end
-Beginning and the end
+<br>Age to age He stands
+<br>And time is in His hands
+<br>Beginning and the end
+<br>Beginning and the end
  
-The Godhead Three in One
-Father Spirit Son
-The Lion and the Lamb
-The Lion and the Lamb
+<br>The Godhead Three in One
+<br>Father Spirit Son
+<br>The Lion and the Lamb
+<br>The Lion and the Lamb
  
-How great is our God, sing with me
-How great is our God, and all will see
-How great, how great is our God
+<br>How great is our God, sing with me
+<br>How great is our God, and all will see
+<br>How great, how great is our God
  
-Name above all names 
-Worthy of our praise 
-My heart will sing
-How great is our God
+<br>Name above all names 
+<br>Worthy of our praise 
+<br>My heart will sing
+<br>How great is our God
  
-Name above all names 
-You are worthy of our praise 
-And my heart will sing
-How great is our God
+<br>Name above all names 
+<br>You are worthy of our praise 
+<br>And my heart will sing
+<br>How great is our God
  
-How great is our God, sing with me
-How great is our God, and all will see
-How great, how great is our God
+<br>How great is our God, sing with me
+<br>How great is our God, and all will see
+<br>How great, how great is our God
  
-_© 2004 Christ Tomlin, Capitol CMG Publishing, Music Services, Reservoir Media Management, Inc
-CCLI 62951 (main copyright licence)
-CCLI 174113 (streaming licence)_
+<br>_© 2004 Christ Tomlin, Capitol CMG Publishing, Music Services, Reservoir Media Management, Inc
+<br>CCLI 62951 (main copyright licence)
+<br>CCLI 174113 (streaming licence)_
 
 
 
 
 <br><br>**2. Ancient of Days**<br><br>
-Though the nations rage
-Kingdoms rise and fall
-There is still one King
-Reigning over all
+<br>Though the nations rage
+<br>Kingdoms rise and fall
+<br>There is still one King
+<br>Reigning over all
 
-So I will not fear for this truth remains:
-That my God is the Ancient of Days
+<br>So I will not fear for this truth remains:
+<br>That my God is the Ancient of Days
 
-None above Him, none before Him
-All of time in His hands
-For His throne it shall remain and ever stand
+<br>None above Him, none before Him
+<br>All of time in His hands
+<br>For His throne it shall remain and ever stand
 
-All the power, all the glory
-I will trust in His name
-For my God is the Ancient of Days
+<br>All the power, all the glory
+<br>I will trust in His name
+<br>For my God is the Ancient of Days
 
-Though the dread of night
-Overwhelms my soul
-He is here with me
-I am not alone
+<br>Though the dread of night
+<br>Overwhelms my soul
+<br>He is here with me
+<br>I am not alone
 
-O His love is sure and He knows my name
-For my God is the Ancient of Days
+<br>O His love is sure and He knows my name
+<br>For my God is the Ancient of Days
 
-None above Him, none before Him
-All of time in His hands
-For His throne it shall remain and ever stand
+<br>None above Him, none before Him
+<br>All of time in His hands
+<br>For His throne it shall remain and ever stand
 
-All the power, all the glory
-I will trust in His name
-For my God is the Ancient of Days
+<br>All the power, all the glory
+<br>I will trust in His name
+<br>For my God is the Ancient of Days
 
-Though I may not see
-What the future brings
-I will watch and wait
-For the Saviour King
+<br>Though I may not see
+<br>What the future brings
+<br>I will watch and wait
+<br>For the Saviour King
 
-Then my joy complete standing face to face
-In the presence of the Ancient of Days
+<br>Then my joy complete standing face to face
+<br>In the presence of the Ancient of Days
 
-None above Him, none before Him
-All of time in His hands
-For His throne it shall remain and ever stand
-All the power, all the glory
-I will trust in His name
-For my God is the Ancient of Days
-For my God is the Ancient of Days
+<br>None above Him, none before Him
+<br>All of time in His hands
+<br>For His throne it shall remain and ever stand
+<br>All the power, all the glory
+<br>I will trust in His name
+<br>For my God is the Ancient of Days
+<br>For my God is the Ancient of Days
 
 
 
-_CCLI Song # 7121851 © 2018 CityAlight Music | CityAlight Publishing | cityalight.com
-CCLI 62951 (main copyright licence)
-CCLI 174113 (streaming licence)_
+<br>_CCLI Song # 7121851 © 2018 CityAlight Music | CityAlight Publishing | cityalight.com
+<br>CCLI 62951 (main copyright licence)
+<br>CCLI 174113 (streaming licence)_
 
 
 
 
 
 <br><br> **3. You Alone** <br><br>
-You alone could light the heavens
-Speak, and form the universe
-Every grain and galaxy
-Abiding by Your word
-You alone deserve all glory
-In one anthem, joyfully raised
-Every language, every tongue
-Resounding in Your praise
+<br>You alone could light the heavens
+<br>Speak, and form the universe
+<br>Every grain and galaxy
+<br>Abiding by Your word
+<br>You alone deserve all glory
+<br>In one anthem, joyfully raised
+<br>Every language, every tongue
+<br>Resounding in Your praise
  
-Chorus:
-Every nation needs to know
-There's salvation in Your name alone
-For Your kingdom we must go
-To all of the earth, all of the earth
+<br>Chorus:
+<br>Every nation needs to know
+<br>There's salvation in Your name alone
+<br>For Your kingdom we must go
+<br>To all of the earth, all of the earth
  
-You alone could ransom sinners
-No one else could pay such price
-Give for love Your perfect life
-In humble sacrifice
-You alone have conquered darkness
-Death no longer wields its sting
-Raised in power to reign forever
-Jesus, King of Kings
+<br>You alone could ransom sinners
+<br>No one else could pay such price
+<br>Give for love Your perfect life
+<br>In humble sacrifice
+<br>You alone have conquered darkness
+<br>Death no longer wields its sting
+<br>Raised in power to reign forever
+<br>Jesus, King of Kings
  
-Chorus:
-Every nation needs to know
-There's salvation in Your name alone
-For Your kingdom we must go
-To all of the earth, all of the earth
+<br>Chorus:
+<br>Every nation needs to know
+<br>There's salvation in Your name alone
+<br>For Your kingdom we must go
+<br>To all of the earth, all of the earth
  
-You alone restore the broken
-Through the weak display Your power
-Strengthen us to persevere
-Equip us for this hour
-Christ alone our ceaseless message
-Grace and peace our overflow
-Surely You are always with us
-Jesus, we will go
+<br>You alone restore the broken
+<br>Through the weak display Your power
+<br>Strengthen us to persevere
+<br>Equip us for this hour
+<br>Christ alone our ceaseless message
+<br>Grace and peace our overflow
+<br>Surely You are always with us
+<br>Jesus, we will go
  
-Chorus:
-Every nation needs to know
-There's salvation in Your name alone
-For Your kingdom we must go
-To all of the earth, all of the earth
+<br>Chorus:
+<br>Every nation needs to know
+<br>There's salvation in Your name alone
+<br>For Your kingdom we must go
+<br>To all of the earth, all of the earth
  
-Every nation needs to know
-There's salvation in Your name alone
-For Your kingdom we must go
-To all of the earth, all of the earth
+<br>Every nation needs to know
+<br>There's salvation in Your name alone
+<br>For Your kingdom we must go
+<br>To all of the earth, all of the earth
 
-_CCLI #7132161 ©2019 Words and music Trevor Hodge 
-CCLI 62951 (main copyright licence)
-CCLI 174113 (streaming licence)_
+<br>_CCLI #7132161 ©2019 Words and music Trevor Hodge 
+<br>CCLI 62951 (main copyright licence)
+<br>CCLI 174113 (streaming licence)_
 
 
 
 
 <br><br> **4. God is Our Strength and Refuge** <br><br>
-God is our strength and refuge,
-Our present help in trouble;
-and we therefore will not fear,
-though the earth should change!
-Though mountains shake and tremble,
-though swirling floods are raging,
-God the Lord of hosts is with us evermore!
+<br>God is our strength and refuge,
+<br>Our present help in trouble;
+<br>and we therefore will not fear,
+<br>though the earth should change!
+<br>Though mountains shake and tremble,
+<br>though swirling floods are raging,
+<br>God the Lord of hosts is with us evermore!
  
-There is a flowing river,
-Within God's holy city;
-God is in the midst of her -
-she shall not be moved!
-God's help is swiftly given,
-thrones vanish at his presence -
-God the Lord of hosts is with us evermore!
+<br>There is a flowing river,
+<br>Within God's holy city;
+<br>God is in the midst of her -
+<br>she shall not be moved!
+<br>God's help is swiftly given,
+<br>thrones vanish at his presence -
+<br>God the Lord of hosts is with us evermore!
  
-Come, see the works of our maker,
-learn of his His deeds all powerful;
-wars will cease across the world
-when He shatters the spear!
-Be still and know your creator,
-uplift Him in the nations -
-God the Lord of hosts is with us evermore!
+<br>Come, see the works of our maker,
+<br>learn of his His deeds all powerful;
+<br>wars will cease across the world
+<br>when He shatters the spear!
+<br>Be still and know your creator,
+<br>uplift Him in the nations -
+<br>God the Lord of hosts is with us evermore!
 
-_© 1973  Hope Publishing Co. | Richard Bewes
-CCLI 62951 (main copyright licence)
-CCLI 174113 (streaming licence)_
+<br>_© 1973  Hope Publishing Co. | Richard Bewes
+<br>CCLI 62951 (main copyright licence)
+<br>CCLI 174113 (streaming licence)_
