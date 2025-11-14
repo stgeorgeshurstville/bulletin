@@ -24,7 +24,6 @@ Dear God, thank you for letting us know you. Please help us learn from your word
 
 
 **_Sennacherib Threatens Jerusalem_**
-
 **36** ¹ In the fourteenth year of King Hezekiah’s reign, Sennacherib king of Assyria attacked all the fortified cities of Judah and captured them. ² Then the king of Assyria sent his field commander with a large army from Lachish to King Hezekiah at Jerusalem. When the commander stopped at the aqueduct of the Upper Pool, on the road to the Launderer’s Field, ³ Eliakim son of Hilkiah the palace administrator, Shebna the secretary, and Joah son of Asaph the recorder went out to him.
 
 ⁴ The field commander said to them, “Tell Hezekiah:
