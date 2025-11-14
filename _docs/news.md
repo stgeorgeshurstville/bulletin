@@ -68,7 +68,7 @@ Two areas in particular that we'd love for you to consider in our December and J
 _Please note: Indicating a new area does not automatically mean you will be serving there. It will simply be the basis for a friendly conversation with one of our staff members. Together, we can consider what might be the best fit for you and our church.
 Also this form is not the means for discontinuing a ministry in the new year. If you'd like to step down from a current team, then we'd like to direct you to have that conversation with the ministry leader of that team._ 
 
-https://docs.google.com/forms/d/e/1FAIpQLSeljZR3t7boD-xQVUP9U-tOTjnZkxkEjBjPX8Qf2yyCJ54_pA/viewform
+[The link to the form can be found here](https://docs.google.com/forms/d/e/1FAIpQLSeljZR3t7boD-xQVUP9U-tOTjnZkxkEjBjPX8Qf2yyCJ54_pA/viewform)
 
 
 ### Growing in Our Welcoming:
