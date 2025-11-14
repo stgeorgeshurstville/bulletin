@@ -68,49 +68,94 @@ Dear God, thank you for letting us know you. Please help us learn from your word
 ²¹ Then Isaiah son of Amoz sent a message to Hezekiah: “This is what the Lord, the God of Israel, says: Because you have prayed to me concerning Sennacherib king of Assyria, ²² this is the word the Lord has spoken against him:
 
 “Virgin Daughter Zion
+
 despises and mocks you.
+
 Daughter Jerusalem
+
 tosses her head as you flee.
+
 ²³ Who is it you have ridiculed and blasphemed?
+
 Against whom have you raised your voice
+
 and lifted your eyes in pride?
+
 Against the Holy One of Israel!
+
 ²⁴ By your messengers
+
 you have ridiculed the Lord.
+
 And you have said,
+
 ‘With my many chariots
+
 I have ascended the heights of the mountains,
+
 the utmost heights of Lebanon.
+
 I have cut down its tallest cedars,
+
 the choicest of its junipers.
+
 I have reached its remotest heights,
+
 the finest of its forests.
+
 ²⁵ I have dug wells in foreign lands 
+
 and drunk the water there.
+
 With the soles of my feet
+
 I have dried up all the streams of Egypt.’
 
+
+
+
 ²⁶ “Have you not heard?
+
 Long ago I ordained it.
+
 In days of old I planned it;
+
 now I have brought it to pass,
+
 that you have turned fortified cities
+
 into piles of stone.
+
 ²⁷ Their people, drained of power,
+
 are dismayed and put to shame.
+
 They are like plants in the field,
+
 like tender green shoots,
+
 like grass sprouting on the roof,
+
 scorched before it grows up.
 
+
+
 ²⁸ “But I know where you are
+
 and when you come and go
+
 and how you rage against me.
+
 ²⁹ Because you rage against me
+
 and because your insolence has reached my ears,
+
 I will put my hook in your nose
+
 and my bit in your mouth,
+
 and I will make you return
+
 by the way you came.
 
 ³⁰ “This will be the sign for you, Hezekiah:
