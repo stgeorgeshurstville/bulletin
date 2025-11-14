@@ -23,7 +23,7 @@ Dear God, thank you for letting us know you. Please help us learn from your word
 ### Isaiah 36-37 (NIV)
 
 
-_Sennacherib Threatens Jerusalem_
+**_Sennacherib Threatens Jerusalem_**
 
 **36** ¹ In the fourteenth year of King Hezekiah’s reign, Sennacherib king of Assyria attacked all the fortified cities of Judah and captured them. ² Then the king of Assyria sent his field commander with a large army from Lachish to King Hezekiah at Jerusalem. When the commander stopped at the aqueduct of the Upper Pool, on the road to the Launderer’s Field, ³ Eliakim son of Hilkiah the palace administrator, Shebna the secretary, and Joah son of Asaph the recorder went out to him.
 
@@ -47,7 +47,7 @@ _Sennacherib Threatens Jerusalem_
 
 ²² Then Eliakim son of Hilkiah the palace administrator, Shebna the secretary and Joah son of Asaph the recorder went to Hezekiah, with their clothes torn, and told him what the field commander had said.
 
-_Jerusalem’s Deliverance Foretold_
+**_Jerusalem’s Deliverance Foretold_**
 
 **37** ¹ When King Hezekiah heard this, he tore his clothes and put on sackcloth and went into the temple of the Lord. ² He sent Eliakim the palace administrator, Shebna the secretary, and the leading priests, all wearing sackcloth, to the prophet Isaiah son of Amoz. ³ They told him, “This is what Hezekiah says: This day is a day of distress and rebuke and disgrace, as when children come to the moment of birth and there is no strength to deliver them. ⁴ It may be that the Lord your God will hear the words of the field commander, whom his master, the king of Assyria, has sent to ridicule the living God, and that he will rebuke him for the words the Lord your God has heard. Therefore pray for the remnant that still survives.”
 
@@ -57,13 +57,13 @@ _Jerusalem’s Deliverance Foretold_
 
 ⁹ Now Sennacherib received a report that Tirhakah, the king of Cush, was marching out to fight against him. When he heard it, he sent messengers to Hezekiah with this word: ¹⁰ “Say to Hezekiah king of Judah: Do not let the god you depend on deceive you when he says, ‘Jerusalem will not be given into the hands of the king of Assyria.’ ¹¹ Surely you have heard what the kings of Assyria have done to all the countries, destroying them completely. And will you be delivered? ¹² Did the gods of the nations that were destroyed by my predecessors deliver them—the gods of Gozan, Harran, Rezeph and the people of Eden who were in Tel Assar? ¹³ Where is the king of Hamath or the king of Arpad? Where are the kings of Lair, Sepharvaim, Hena and Ivvah?”
 
-_Hezekiah’s Prayer_
+**_Hezekiah’s Prayer_**
 
 ¹⁴ Hezekiah received the letter from the messengers and read it. Then he went up to the temple of the Lord and spread it out before the Lord. ¹⁵ And Hezekiah prayed to the Lord: ¹⁶ “Lord Almighty, the God of Israel, enthroned between the cherubim, you alone are God over all the kingdoms of the earth. You have made heaven and earth. ¹⁷ Give ear, Lord, and hear; open your eyes, Lord, and see; listen to all the words Sennacherib has sent to ridicule the living God.
 
 ¹⁸ “It is true, Lord, that the Assyrian kings have laid waste all these peoples and their lands. ¹⁹ They have thrown their gods into the fire and destroyed them, for they were not gods but only wood and stone, fashioned by human hands. ²⁰ Now, Lord our God, deliver us from his hand, so that all the kingdoms of the earth may know that you, Lord, are the only God. ”
 
-_Sennacherib’s Fall_
+**_Sennacherib’s Fall_**
 
 ²¹ Then Isaiah son of Amoz sent a message to Hezekiah: “This is what the Lord, the God of Israel, says: Because you have prayed to me concerning Sennacherib king of Assyria, ²² this is the word the Lord has spoken against him:
 
