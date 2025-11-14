@@ -130,7 +130,7 @@ Dear God, thank you for letting us know you. Please help us learn from your word
 
 ³³ “Therefore this is what the Lord says concerning the king of Assyria:
 
-<br>“He will not enter this city
+“He will not enter this city
 <br>&nbsp;&nbsp;or shoot an arrow here.
 <br>He will not come before it with shield
 <br>&nbsp;&nbsp;or build a siege ramp against it.
