@@ -13,10 +13,12 @@ order: 5
 
 ## General
 **Christmas Mission Season 2025: Sharing the Good News**
+
 This December, from December 13th leading up to Christmas, we warmly invite all our church members to participate in our Christmas mission, where we will be sharing the good news of Jesus to those in our community.
 To support this effort, a Team of students from UNSW will be with us from December 10th to December 14th.
 
 **Christmas Market 2025**
+
 One of the key events during this season is our annual Christmas Market. This is a wonderful opportunity to connect with our local community, share the gospel, and extend practical care through charity fundraising.
 Event Details:
 - Date: Saturday, December 13th, 2025
@@ -31,8 +33,10 @@ How You Can Participate:
 
 
 **Opportunity to Serve: Billeting Our Students**
+
 If you are in a position to host one of the UNSW students (Dec 10th–14th), please express your interest by filling out this form:
 [Billeting Interest Form](https://www.google.com/search?q=https://forms.gle/9XS8GfnsUwQfzRq5A)
+
 For More Information
 If you have further questions, please contact the appropriate person for your service:
 - 9:30 AM Cantonese: Kevin Lee
