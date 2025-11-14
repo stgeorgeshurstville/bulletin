@@ -68,120 +68,77 @@ Dear God, thank you for letting us know you. Please help us learn from your word
 ²¹ Then Isaiah son of Amoz sent a message to Hezekiah: “This is what the Lord, the God of Israel, says: Because you have prayed to me concerning Sennacherib king of Assyria, ²² this is the word the Lord has spoken against him:
 
 “Virgin Daughter Zion
-
-despises and mocks you.
-
-Daughter Jerusalem
-
-tosses her head as you flee.
-
-²³ Who is it you have ridiculed and blasphemed?
-
-Against whom have you raised your voice
-
-and lifted your eyes in pride?
-
-Against the Holy One of Israel!
-
-²⁴ By your messengers
-
-you have ridiculed the Lord.
-
-And you have said,
-
-‘With my many chariots
-
-I have ascended the heights of the mountains,
-
-the utmost heights of Lebanon.
-
-I have cut down its tallest cedars,
-
-the choicest of its junipers.
-
-I have reached its remotest heights,
-
-the finest of its forests.
-
-²⁵ I have dug wells in foreign lands 
-
-and drunk the water there.
-
-With the soles of my feet
-
-I have dried up all the streams of Egypt.’
+<br>despises and mocks you.
+<br>Daughter Jerusalem
+<br>tosses her head as you flee.
+<br>²³ Who is it you have ridiculed and blasphemed?
+<br>Against whom have you raised your voice
+<br>and lifted your eyes in pride?
+<br>Against the Holy One of Israel!
+<br>²⁴ By your messengers
+<br>you have ridiculed the Lord.
+<br>And you have said,
+<br>‘With my many chariots
+<br>I have ascended the heights of the mountains,
+<br>the utmost heights of Lebanon.
+<br>I have cut down its tallest cedars,
+<br>the choicest of its junipers.
+<br>I have reached its remotest heights,
+<br>the finest of its forests.
+<br>²⁵ I have dug wells in foreign lands 
+<br>and drunk the water there.
+<br>With the soles of my feet
+<br>I have dried up all the streams of Egypt.’
 
 
+<br>²⁶ “Have you not heard?
+<br>Long ago I ordained it.
+<br>In days of old I planned it;
+<br>now I have brought it to pass,
+<br>that you have turned fortified cities
+<br>into piles of stone.
+<br>²⁷ Their people, drained of power,
+<br>are dismayed and put to shame.
+<br>They are like plants in the field,
+<br>like tender green shoots,
+<br>like grass sprouting on the roof,
+<br>scorched before it grows up.
 
 
-²⁶ “Have you not heard?
-
-Long ago I ordained it.
-
-In days of old I planned it;
-
-now I have brought it to pass,
-
-that you have turned fortified cities
-
-into piles of stone.
-
-²⁷ Their people, drained of power,
-
-are dismayed and put to shame.
-
-They are like plants in the field,
-
-like tender green shoots,
-
-like grass sprouting on the roof,
-
-scorched before it grows up.
-
-
-
-²⁸ “But I know where you are
-
-and when you come and go
-
-and how you rage against me.
-
-²⁹ Because you rage against me
-
-and because your insolence has reached my ears,
-
-I will put my hook in your nose
-
-and my bit in your mouth,
-
-and I will make you return
-
-by the way you came.
+<br>²⁸ “But I know where you are
+<br>and when you come and go
+<br>and how you rage against me.
+<br>²⁹ Because you rage against me
+<br>and because your insolence has reached my ears,
+<br>I will put my hook in your nose
+<br>and my bit in your mouth,
+<br>and I will make you return
+<br>by the way you came.
 
 ³⁰ “This will be the sign for you, Hezekiah:
 
-“This year you will eat what grows by itself,
-and the second year what springs from that.
-But in the third year sow and reap,
-plant vineyards and eat their fruit.
-³¹ Once more a remnant of the kingdom of Judah
-will take root below and bear fruit above.
-³² For out of Jerusalem will come a remnant,
-and out of Mount Zion a band of survivors.
-The zeal of the Lord Almighty
-will accomplish this.
+<br>“This year you will eat what grows by itself,
+<br>and the second year what springs from that.
+<br>But in the third year sow and reap,
+<br>plant vineyards and eat their fruit.
+<br>³¹ Once more a remnant of the kingdom of Judah
+<br>will take root below and bear fruit above.
+<br>³² For out of Jerusalem will come a remnant,
+<br>and out of Mount Zion a band of survivors.
+<br>The zeal of the Lord Almighty
+<br>will accomplish this.
 
 ³³ “Therefore this is what the Lord says concerning the king of Assyria:
 
-“He will not enter this city
-or shoot an arrow here.
-He will not come before it with shield
-or build a siege ramp against it.
-³⁴ By the way that he came he will return;
-he will not enter this city,”
-declares the Lord.
-³⁵ “I will defend this city and save it,
-for my sake and for the sake of David my servant!”
+<br>“He will not enter this city
+<br>or shoot an arrow here.
+<br>He will not come before it with shield
+<br>or build a siege ramp against it.
+<br>³⁴ By the way that he came he will return;
+<br>he will not enter this city,”
+<br>declares the Lord.
+<br>³⁵ “I will defend this city and save it,
+<br>for my sake and for the sake of David my servant!”
 
 ³⁶ Then the angel of the Lord went out and put to death a hundred and eighty-five thousand in the Assyrian camp. When the people got up the next morning—there were all the dead bodies! ³⁷ So Sennacherib king of Assyria broke camp and withdrew. He returned to Nineveh and stayed there.
 
