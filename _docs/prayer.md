@@ -4,18 +4,37 @@ order: 4
 ---
 
 ## Collect
-God our refuge and strength, the author of all godliness, hear the devout prayers of your Church: and grant that what we ask in faith we may surely obtain; through Jesus Christ our Lord. 
+Lord, we pray, absolve your from their offences; that through your bountiful goodness we may be set free from the chains of those sins which in our frailty we have committed: grant this, heavenly Father, for the sake of Jesus Christ, our Lord and Saviour.
 
-## Week C
+
+## Week D
 
 | **Section** | **Content** |
 |--------------|-------------|
-| **From the Passage** | O Lord, Our God, we lift up the brokenness of our world, <br><br>We feel the weight of destruction, seeing lives shattered who are looking for hope. We acknowledge the depths of human despair and the feeling of being cut down to a stump.<br><br>Yet, we cling to Your defiant promise through the prophet Isaiah: that from the dead stump of Jesse, a Branch will shoot forth—a King, anointed by Your Spirit.<br><br>We praise You for Jesus Christ, the perfect Ruler:<br><br>He is filled with Wisdom and Understanding.<br>He governs with Counsel and Might.<br>He acts with Knowledge and the Fear of the LORD.<br><br>We seek refuge in His leadership because He does not judge by what He sees or hears, but discerns the truth with perfect righteousness. Thank You, Lord Jesus, for seeing us as we truly are, free from prejudice.<br><br>We pray for the fulfillment of Your kingdom, where hostility ceases and peace reigns—where the wolf lies with the lamb, and there is no harm or destruction. May the earth be filled with the knowledge of the Lord as the waters cover the sea.<br><br>Strengthen us to be the people who hold out this saving hope to a world that feels dangerous and prejudiced. May we be witnesses to this King and His promised safe kingdom, until all nations rally to Him.<br><br>In the powerful name of Jesus, our sure hope, we pray. Amen |
-| **Mission and Vision** | *Mission:* Please reflect on your own prayer |
-| **Global and Nation** | *World:* Please reflect on your own prayer |
-| **Mission Partners** | *Berkeley Life Centre*<br><br>_General info:_<br>Berkeley Life Centre desires to see Jesus Christ transforming lives to transform a community. They minister in the south coast in an area where many people are from a low socioeconomic background. People are coming to faith and the church is making a positive impact.<br><br>Lord, we lay the Berkeley community before you. You see the deep need and the pain of this marginalized, low socio-economic area. We pray for every person struggling with disability, depression, chronic disease, low self-esteem, and dementia. We ask for your intervention in the lives of those trapped by high unemployment and the destructive cycles of addiction to drugs, alcohol, and gambling, and for those impacted by domestic violence. Bring peace where there is chaos, and clarity where there is confusion.<br><br>Strengthen the faith of those who have come to know you, who still wrestle with the impact of these issues and the threats of the evil one. Protect their resolve, Lord, and empower them to live out the truth of the Gospel daily.<br><br>We pray for provision for their outreach. Bless the ministry of the Op Shop, that through low-cost, quality items and access to food, we may meet tangible needs and build bridges of trust.<br><br>Father, we ask specifically for the resources to help people improve their lives. We urgently pray for skilled, Christ-centred counsellors to run the life-improving training courses and to facilitate powerful 1:1 discipling. We trust you for the necessary financial resources to cover these costs, knowing that developing these lives is an investment in your Kingdom. |
-| **Church Ministries** | *EAL/D*<br>Staff team to confirm updates<br><br>*Redevelopment*<br>We’re waiting for the Commonwealth government to open the next round of HAFF funding application. We hope that this will happen in December. Please pray for wisdom in planning for us, and for the Lord’s provision to meet our current and future ministry needs. |
-| **Groups in Church** | *People with disabilities:* Please reflect on your own prayer |
+| **From the Passage** | Heavenly Father, we come before You with a necessary confession. We acknowledge that we constantly live under spiritual warfare, and we repeatedly fall for the devil's schemes, allowing his taunts—like Sennacherib's psychological attacks—to undermine our belief in Your goodness and truth. We confess that we are too quick to doubt Your promises and seek false security in the world's lies.<br><br>
+We look to the model of King Hezekiah who laid the letter of the taunt before You, but we thank You that his faith was merely a pointer to the perfect reality we find in Your Son. Thank You, Lord, that Jesus is perfect and obedient, who conquered every temptation and secured eternal victory for us. We praise You that His flawless obedience is credited to our account, enabling and empowering us to live fully for Your glory by the Spirit's power.<br><br>
+Lord our God, in our world that heckles and taunts Your holy name and rages against Your Anointed King, grant us the grace to stand firm. Help us to continue to love, be gentle, and respond with dignity, knowing that Your word is the final word. We pray for the spiritual sight to see past the world's temporary arrogance, knowing You will bring all those who mock to account.
+<br><br>Deliver us, O God, so that all the kingdoms of the earth may know that You alone are God, and Jesus Christ is Lord. Amen
+ |
+| **Mission and Vision** | *For Growing Up:* Please reflect on your own prayer |
+| **Global and Nation** | *Nation:* Please reflect on your own prayer |
+| **Mission Partners** | *Hoi-Yan Shea in Japan*<br><br>_General information:_<br>Hoi-Yan is a missionary who works with OMF (Overseas Missionary Fellowship) in Japan. The prayer points relate to her prayer update she sent in August.<br><br>**For Mizuyo:**<br>Hoi-Yan has been ministering to Mizuyo, a new believer, who is starting to see God created all things rather than God being part of creation. 
+- Praise God for the opportunity to share the creation story with Mizuyo and for her willingness to listen.
+- Praise God that Mizuyo is beginning to understand that God made everything and that the world was made for him.
+- Pray that God will continue to open Mizuyo's mind and heart to the Bible stories.
+- Pray for Mizuyo's salvation and that she will come to know Jesus personally.
+**For the Kids' Bible Camp:**<br>At kid’s Bible camp Hoi-Yan experienced an  illness on the first day but received prayer; subsequently  got healed while providing a powerful testimony to the children, that God hears and answers prayers, and leading one child to exclaim that "Jesus was amazing."
+- Praise God for healing the leader during the camp, turning an untimely illness into a testimony of his power.
+- Praise God for Azuki's testimony, showing that he hears and answers prayers.
+- Pray for the salvation of all the children who attended the camp, especially those from non-Christian homes.
+**For the Ministry Team:**<br>
+One of the challenges that Hoi-Yan is facing as a member of the Yahabible Network team is navigating a period of change; she is seeking prayer for her colleagues and for the overall strategy of their ministry as they seek a fresh direction in their mission to share God's word with non-Christians. 
+- Pray for **wisdom** and **guidance** as the team reconsiders their strategy and future direction.
+- Pray for **opportunities** for each team member to share God's word with their non-Christian friends.
+- Pray for a **fresh vision** and **clear direction** for the Yahabible Network.
+|
+| **Church Ministries** | *Children*<br>Staff team to confirm updates<br><br>*SRE*<br>Staff team to confirm updates |
+| **Groups in Church** | *Families* Please reflect on your own prayer |
 
 
 
