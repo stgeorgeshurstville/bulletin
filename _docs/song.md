@@ -24,41 +24,41 @@ order: 1
 <br>The splendour of a King, clothed in majesty
 <br>Let all the Earth rejoice
 <br>All the Earth rejoice
- 
-<br>He wraps himself in light
+
+He wraps himself in light
 <br>And darkness tries to hide
 <br>And trembles at His voice
 <br>Trembles at His voice
  
-<br>How great is our God, sing with me
+How great is our God, sing with me
 <br>How great is our God, and all will see
 <br>How great, how great is our God
  
-<br>Age to age He stands
+Age to age He stands
 <br>And time is in His hands
 <br>Beginning and the end
 <br>Beginning and the end
  
-<br>The Godhead Three in One
+The Godhead Three in One
 <br>Father Spirit Son
 <br>The Lion and the Lamb
 <br>The Lion and the Lamb
  
-<br>How great is our God, sing with me
+How great is our God, sing with me
 <br>How great is our God, and all will see
 <br>How great, how great is our God
  
-<br>Name above all names 
+Name above all names 
 <br>Worthy of our praise 
 <br>My heart will sing
 <br>How great is our God
  
-<br>Name above all names 
+Name above all names 
 <br>You are worthy of our praise 
 <br>And my heart will sing
 <br>How great is our God
  
-<br>How great is our God, sing with me
+How great is our God, sing with me
 <br>How great is our God, and all will see
 <br>How great, how great is our God
  
@@ -75,42 +75,42 @@ order: 1
 <br>There is still one King
 <br>Reigning over all
 
-<br>So I will not fear for this truth remains:
+So I will not fear for this truth remains:
 <br>That my God is the Ancient of Days
 
-<br>None above Him, none before Him
+None above Him, none before Him
 <br>All of time in His hands
 <br>For His throne it shall remain and ever stand
 
-<br>All the power, all the glory
+All the power, all the glory
 <br>I will trust in His name
 <br>For my God is the Ancient of Days
 
-<br>Though the dread of night
+Though the dread of night
 <br>Overwhelms my soul
 <br>He is here with me
 <br>I am not alone
 
-<br>O His love is sure and He knows my name
+O His love is sure and He knows my name
 <br>For my God is the Ancient of Days
 
-<br>None above Him, none before Him
+None above Him, none before Him
 <br>All of time in His hands
 <br>For His throne it shall remain and ever stand
 
-<br>All the power, all the glory
+All the power, all the glory
 <br>I will trust in His name
 <br>For my God is the Ancient of Days
 
-<br>Though I may not see
+Though I may not see
 <br>What the future brings
 <br>I will watch and wait
 <br>For the Saviour King
 
-<br>Then my joy complete standing face to face
+Then my joy complete standing face to face
 <br>In the presence of the Ancient of Days
 
-<br>None above Him, none before Him
+None above Him, none before Him
 <br>All of time in His hands
 <br>For His throne it shall remain and ever stand
 <br>All the power, all the glory
@@ -138,13 +138,13 @@ order: 1
 <br>Every language, every tongue
 <br>Resounding in Your praise
  
-<br>Chorus:
+Chorus:
 <br>Every nation needs to know
 <br>There's salvation in Your name alone
 <br>For Your kingdom we must go
 <br>To all of the earth, all of the earth
  
-<br>You alone could ransom sinners
+You alone could ransom sinners
 <br>No one else could pay such price
 <br>Give for love Your perfect life
 <br>In humble sacrifice
@@ -153,13 +153,13 @@ order: 1
 <br>Raised in power to reign forever
 <br>Jesus, King of Kings
  
-<br>Chorus:
+Chorus:
 <br>Every nation needs to know
 <br>There's salvation in Your name alone
 <br>For Your kingdom we must go
 <br>To all of the earth, all of the earth
  
-<br>You alone restore the broken
+You alone restore the broken
 <br>Through the weak display Your power
 <br>Strengthen us to persevere
 <br>Equip us for this hour
@@ -168,13 +168,13 @@ order: 1
 <br>Surely You are always with us
 <br>Jesus, we will go
  
-<br>Chorus:
+Chorus:
 <br>Every nation needs to know
 <br>There's salvation in Your name alone
 <br>For Your kingdom we must go
 <br>To all of the earth, all of the earth
  
-<br>Every nation needs to know
+Every nation needs to know
 <br>There's salvation in Your name alone
 <br>For Your kingdom we must go
 <br>To all of the earth, all of the earth
@@ -195,7 +195,7 @@ order: 1
 <br>though swirling floods are raging,
 <br>God the Lord of hosts is with us evermore!
  
-<br>There is a flowing river,
+There is a flowing river,
 <br>Within God's holy city;
 <br>God is in the midst of her -
 <br>she shall not be moved!
@@ -203,7 +203,7 @@ order: 1
 <br>thrones vanish at his presence -
 <br>God the Lord of hosts is with us evermore!
  
-<br>Come, see the works of our maker,
+Come, see the works of our maker,
 <br>learn of his His deeds all powerful;
 <br>wars will cease across the world
 <br>when He shatters the spear!
