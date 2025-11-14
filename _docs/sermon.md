@@ -25,7 +25,7 @@ Dear God, thank you for letting us know you. Please help us learn from your word
 
 _Sennacherib Threatens Jerusalem_
 
-**36**¹ In the fourteenth year of King Hezekiah’s reign, Sennacherib king of Assyria attacked all the fortified cities of Judah and captured them. ² Then the king of Assyria sent his field commander with a large army from Lachish to King Hezekiah at Jerusalem. When the commander stopped at the aqueduct of the Upper Pool, on the road to the Launderer’s Field, ³ Eliakim son of Hilkiah the palace administrator, Shebna the secretary, and Joah son of Asaph the recorder went out to him.
+**36** In the fourteenth year of King Hezekiah’s reign, Sennacherib king of Assyria attacked all the fortified cities of Judah and captured them. ² Then the king of Assyria sent his field commander with a large army from Lachish to King Hezekiah at Jerusalem. When the commander stopped at the aqueduct of the Upper Pool, on the road to the Launderer’s Field, ³ Eliakim son of Hilkiah the palace administrator, Shebna the secretary, and Joah son of Asaph the recorder went out to him.
 
 ⁴ The field commander said to them, “Tell Hezekiah:
 
@@ -49,7 +49,7 @@ _Sennacherib Threatens Jerusalem_
 
 _Jerusalem’s Deliverance Foretold_
 
-**37**¹ When King Hezekiah heard this, he tore his clothes and put on sackcloth and went into the temple of the Lord. ² He sent Eliakim the palace administrator, Shebna the secretary, and the leading priests, all wearing sackcloth, to the prophet Isaiah son of Amoz. ³ They told him, “This is what Hezekiah says: This day is a day of distress and rebuke and disgrace, as when children come to the moment of birth and there is no strength to deliver them. ⁴ It may be that the Lord your God will hear the words of the field commander, whom his master, the king of Assyria, has sent to ridicule the living God, and that he will rebuke him for the words the Lord your God has heard. Therefore pray for the remnant that still survives.”
+**37** When King Hezekiah heard this, he tore his clothes and put on sackcloth and went into the temple of the Lord. ² He sent Eliakim the palace administrator, Shebna the secretary, and the leading priests, all wearing sackcloth, to the prophet Isaiah son of Amoz. ³ They told him, “This is what Hezekiah says: This day is a day of distress and rebuke and disgrace, as when children come to the moment of birth and there is no strength to deliver them. ⁴ It may be that the Lord your God will hear the words of the field commander, whom his master, the king of Assyria, has sent to ridicule the living God, and that he will rebuke him for the words the Lord your God has heard. Therefore pray for the remnant that still survives.”
 
 ⁵ When King Hezekiah’s officials came to Isaiah, ⁶ Isaiah said to them, “Tell your master, ‘This is what the Lord says: Do not be afraid of what you have heard—those words with which the underlings of the king of Assyria have blasphemed me. ⁷ Listen! When he hears a certain report, I will make him want to return to his own country, and there I will have him cut down with the sword.’”
 
