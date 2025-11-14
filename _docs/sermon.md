@@ -90,8 +90,7 @@ Dear God, thank you for letting us know you. Please help us learn from your word
 <br>With the soles of my feet
 <br>&nbsp;&nbsp;I have dried up all the streams of Egypt.’
 
-
-<br>²⁶ “Have you not heard?
+²⁶ “Have you not heard?
 <br>&nbsp;&nbsp;Long ago I ordained it.
 <br>In days of old I planned it;
 <br>&nbsp;&nbsp;now I have brought it to pass,
@@ -104,8 +103,7 @@ Dear God, thank you for letting us know you. Please help us learn from your word
 <br>like grass sprouting on the roof,
 <br>&nbsp;&nbsp;scorched before it grows up.
 
-
-<br>²⁸ “But I know where you are
+²⁸ “But I know where you are
 <br>&nbsp;&nbsp;and when you come and go
 <br>&nbsp;&nbsp;and how you rage against me.
 <br>²⁹ Because you rage against me
@@ -117,7 +115,7 @@ Dear God, thank you for letting us know you. Please help us learn from your word
 
 ³⁰ “This will be the sign for you, Hezekiah:
 
-<br>“This year you will eat what grows by itself,
+“This year you will eat what grows by itself,
 <br>&nbsp;&nbsp;and the second year what springs from that.
 <br>But in the third year sow and reap,
 <br>&nbsp;&nbsp;plant vineyards and eat their fruit.
