@@ -19,6 +19,7 @@ To support this effort, a Team of students from UNSW will be with us from Decemb
 ### Christmas Market 2025
 
 One of the key events during this season is our annual Christmas Market. This is a wonderful opportunity to connect with our local community, share the gospel, and extend practical care through charity fundraising.
+
 <img width="621" height="441" alt="image" src="https://github.com/user-attachments/assets/b3cf92f8-e7a4-403b-ac58-1edc5ae1af4d" />
 
 Event Details:
