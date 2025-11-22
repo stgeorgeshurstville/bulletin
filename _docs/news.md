@@ -19,6 +19,8 @@ To support this effort, a Team of students from UNSW will be with us from Decemb
 ### Christmas Market 2025
 
 One of the key events during this season is our annual Christmas Market. This is a wonderful opportunity to connect with our local community, share the gospel, and extend practical care through charity fundraising.
+<img width="621" height="441" alt="image" src="https://github.com/user-attachments/assets/b3cf92f8-e7a4-403b-ac58-1edc5ae1af4d" />
+
 Event Details:
 - Date: Saturday, December 13th, 2025
 - Time: 4:30 PM – 8:30 PM
@@ -69,6 +71,16 @@ _Please note: Indicating a new area does not automatically mean you will be serv
 Also this form is not the means for discontinuing a ministry in the new year. If you'd like to step down from a current team, then we'd like to direct you to have that conversation with the ministry leader of that team._ 
 
 [The link to the form can be found here](https://docs.google.com/forms/d/e/1FAIpQLSeljZR3t7boD-xQVUP9U-tOTjnZkxkEjBjPX8Qf2yyCJ54_pA/viewform)
+
+### Domestic abuse
+Synod, in response to the ongoing concern of domestic abuse –
+ 
+1. Acknowledges that domestic abuse remains a significant social issue, both within the church and in the wider community,
+2. Affirms the ongoing work of many parishes in supporting those experiencing domestic abuse, as well as their efforts in teaching and training around this issue,
+3. Commends the use of the Diocesan Domestic Abuse and Good Practice Guidelines, along with other Safe Ministry resources, in equipping church leaders and members to understand, support and care for those experiencing abuse,
+4. notes that the Anglican Church of Australia designated the first Sunday in May 2025 as Domestic Violence (DV) Sunday,
+5. Recognises that for several years, parishes in Sydney have observed the International Day for the Elimination of Violence Against Women held annually in November, and;
+6. Encourages local churches to engage with and utilise the resources being developed by the Diocesan Domestic Abuse Monitoring Committee for use in church services on 23 or 30 November this year to ensure this critical issue continues to be addressed in our congregations.’
 
 
 ### Growing in Our Welcoming:
