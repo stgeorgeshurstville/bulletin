@@ -85,95 +85,31 @@ Dear God, thank you for letting us know you. Please help us learn from your word
 ²¹ Isaiah had said, “Prepare a poultice of figs and apply it to the boil, and he will recover.”
 
 ²² Hezekiah had asked, “What will be the sign that I will go up to the temple of the Lord?”
-“Virgin Daughter Zion
-<br>&nbsp;&nbsp;despises and mocks you.
-<br>Daughter Jerusalem
-<br>&nbsp;&nbsp;tosses her head as you flee.
-<br>²³ Who is it you have ridiculed and blasphemed?
-<br>&nbsp;&nbsp;Against whom have you raised your voice
-<br>and lifted your eyes in pride?
-<br>&nbsp;&nbsp;Against the Holy One of Israel!
-<br>²⁴ By your messengers
-<br>&nbsp;&nbsp;you have ridiculed the Lord.
-<br>And you have said,
-<br>&nbsp;&nbsp;‘With my many chariots
-<br>I have ascended the heights of the mountains,
-<br>&nbsp;&nbsp;the utmost heights of Lebanon.
-<br>I have cut down its tallest cedars,
-<br>&nbsp;&nbsp;the choicest of its junipers.
-<br>I have reached its remotest heights,
-<br>&nbsp;&nbsp;the finest of its forests.
-<br>²⁵ I have dug wells in foreign lands 
-<br>&nbsp;&nbsp;and drunk the water there.
-<br>With the soles of my feet
-<br>&nbsp;&nbsp;I have dried up all the streams of Egypt.’
 
-²⁶ “Have you not heard?
-<br>&nbsp;&nbsp;Long ago I ordained it.
-<br>In days of old I planned it;
-<br>&nbsp;&nbsp;now I have brought it to pass,
-<br>that you have turned fortified cities
-<br>&nbsp;&nbsp;into piles of stone.
-<br>²⁷ Their people, drained of power,
-<br>&nbsp;&nbsp;are dismayed and put to shame.
-<br>They are like plants in the field,
-<br>&nbsp;&nbsp;like tender green shoots,
-<br>like grass sprouting on the roof,
-<br>&nbsp;&nbsp;scorched before it grows up.
+**_Envoys From Babylon_**
+³⁹ At that time Marduk-Baladan son of Baladan king of Babylon sent Hezekiah letters and a gift, because he had heard of his illness and recovery. ² Hezekiah received the envoys gladly and showed them what was in his storehouses—the silver, the gold, the spices, the fine olive oil—his entire armory and everything found among his treasures. There was nothing in his palace or in all his kingdom that Hezekiah did not show them.
 
-²⁸ “But I know where you are
-<br>&nbsp;&nbsp;and when you come and go
-<br>&nbsp;&nbsp;and how you rage against me.
-<br>²⁹ Because you rage against me
-<br>&nbsp;&nbsp;and because your insolence has reached my ears,
-<br>I will put my hook in your nose
-<br>&nbsp;&nbsp;and my bit in your mouth,
-<br>and I will make you return
-<br>&nbsp;&nbsp;by the way you came.
+³ Then Isaiah the prophet went to King Hezekiah and asked, “What did those men say, and where did they come from?”
 
-³⁰ “This will be the sign for you, Hezekiah:
+“From a distant land,” Hezekiah replied. “They came to me from Babylon.”
 
-“This year you will eat what grows by itself,
-<br>&nbsp;&nbsp;and the second year what springs from that.
-<br>But in the third year sow and reap,
-<br>&nbsp;&nbsp;plant vineyards and eat their fruit.
-<br>³¹ Once more a remnant of the kingdom of Judah
-<br>&nbsp;&nbsp;will take root below and bear fruit above.
-<br>³² For out of Jerusalem will come a remnant,
-<br>&nbsp;&nbsp;and out of Mount Zion a band of survivors.
-<br>The zeal of the Lord Almighty
-<br>&nbsp;&nbsp;will accomplish this.
+⁴ The prophet asked, “What did they see in your palace?”
 
-³³ “Therefore this is what the Lord says concerning the king of Assyria:
+“They saw everything in my palace,” Hezekiah said. “There is nothing among my treasures that I did not show them.”
 
-“He will not enter this city
-<br>&nbsp;&nbsp;or shoot an arrow here.
-<br>He will not come before it with shield
-<br>&nbsp;&nbsp;or build a siege ramp against it.
-<br>³⁴ By the way that he came he will return;
-<br>&nbsp;&nbsp;he will not enter this city,”
-<br>declares the Lord.
-<br>&nbsp;&nbsp;³⁵ “I will defend this city and save it,
-<br>for my sake and for the sake of David my servant!”
+⁵ Then Isaiah said to Hezekiah, “Hear the word of the Lord Almighty: ⁶ The time will surely come when everything in your palace, and all that your predecessors have stored up until this day, will be carried off to Babylon. Nothing will be left, says the Lord. ⁷ And some of your descendants, your own flesh and blood who will be born to you, will be taken away, and they will become eunuchs in the palace of the king of Babylon.”
 
-³⁶ Then the angel of the Lord went out and put to death a hundred and eighty-five thousand in the Assyrian camp. When the people got up the next morning—there were all the dead bodies! ³⁷ So Sennacherib king of Assyria broke camp and withdrew. He returned to Nineveh and stayed there.
-
-³⁸ One day, while he was worshiping in the temple of his god Nisrok, his sons Adrammelek and Sharezer killed him with the sword, and they escaped to the land of Ararat. And Esarhaddon his son succeeded him as king.
+⁸ “The word of the Lord you have spoken is good,” Hezekiah replied. For he thought, “There will be peace and security in my lifetime.”
 
 
 ## Sermon Outline
 
-1. The Problem: When our faith in God is threatened? (Isaiah 36:4-22) 
-2. The Action: Coming to God for help (Isaiah 37:1-20) 
-3. The Resolution: God’s final word on those who rage against him (Isaiah 37:21-35)
+- “Like a red tulip in a field of yellow tulips.”
+- Why Isaiah 36-39 is unusual
+- The events themselves
+- Take-aways 
 
 
-
-
-
-  
-  
-  
 
 ## Q&A
 Got questions or comments? Send them [here](https://tinyurl.com/SGHACQuestionsAnswers)
