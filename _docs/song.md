@@ -21,46 +21,53 @@ order: 1
 
 ### 9:30am Song Lyrics
 <br><br>**1. Holy Forever**<br><br>
-<br>The splendour of a King, clothed in majesty
-<br>Let all the Earth rejoice
-<br>All the Earth rejoice
+<br>A thousand generations falling down in worship
+<br>To sing the song of ages to the Lamb
+<br>And all who’ve gone before us and all who will believe
+<br>Will sing the song of ages to the Lamb
+<br><br>Your name is the highest
+<br>Your name is the greatest
+<br>Your name stands above them all
+<br>All thrones and dominions
+<br>All powers and positions
+<br>Your name stands above them all
+<br><br>And the angels cry, Holy
+<br>All creation cries, Holy
+<br>You are lifted high, Holy
+<br>Holy forever
+<br><br>If you’ve been forgiven and if you’ve been redeemed
+<br>Sing the song forever to the Lamb
+<br>If you walk in freedom and if you bear His name
+<br>Sing the song forever to the Lamb
+<br>We’ll sing the song forever and amen
+<br><br>And the angels cry, Holy
+<br>All creation cries, Holy
+<br>You are lifted high, Holy
+<br>Holy forever
+<br><br>Your name is the highest
+<br>Your name is the greatest
+<br>Your name stands above them all
+<br>All thrones and dominions
+<br>All powers and positions
+<br>Your name stands above them all
+<br><br>Jesus, Your name is the highest
+<br>Your name is the greatest
+<br>Your name stands above them all
+<br>All thrones and dominions
+<br>All powers and positions
+<br>Your name stands above them all
+<br><br>And the angels cry, Holy
+<br>All creation cries, Holy
+<br>You are lifted high, Holy
+<br>Holy forever
+<br>Hear your people sing, Holy
+<br>To the King of Kings, Holy
+<br><br>You will always be, Holy
+<br>Holy forever
 
-He wraps himself in light
-<br>And darkness tries to hide
-<br>And trembles at His voice
-<br>Trembles at His voice
- 
-How great is our God, sing with me
-<br>How great is our God, and all will see
-<br>How great, how great is our God
- 
-Age to age He stands
-<br>And time is in His hands
-<br>Beginning and the end
-<br>Beginning and the end
- 
-The Godhead Three in One
-<br>Father Spirit Son
-<br>The Lion and the Lamb
-<br>The Lion and the Lamb
- 
-How great is our God, sing with me
-<br>How great is our God, and all will see
-<br>How great, how great is our God
- 
-Name above all names 
-<br>Worthy of our praise 
-<br>My heart will sing
-<br>How great is our God
- 
-Name above all names 
-<br>You are worthy of our praise 
-<br>And my heart will sing
-<br>How great is our God
- 
-How great is our God, sing with me
-<br>How great is our God, and all will see
-<br>How great, how great is our God
+You will always be, Holy
+Holy forever
+
  
 <br>_© 2004 Christ Tomlin, Capitol CMG Publishing, Music Services, Reservoir Media Management, Inc
 <br>CCLI 62951 (main copyright licence)
