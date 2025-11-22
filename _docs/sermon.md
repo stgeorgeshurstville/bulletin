@@ -23,7 +23,7 @@ Dear God, thank you for letting us know you. Please help us learn from your word
 ### Isaiah 38-39 (NIV)
 
 
-**_Hezekiah's Illness_**(Ch. 38)
+**_Hezekiah's Illness_** (Ch. 38)
 
 ³⁸ In those days Hezekiah became ill and was at the point of death. The prophet Isaiah son of Amoz went to him and said, “This is what the Lord says: Put your house in order, because you are going to die; you will not recover.”
 
