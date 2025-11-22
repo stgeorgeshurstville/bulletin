@@ -66,9 +66,8 @@ order: 1
 <br>Holy forever
 
 You will always be, Holy
-Holy forever
+<br>Holy forever
 
- 
 <br>_© 2004 Christ Tomlin, Capitol CMG Publishing, Music Services, Reservoir Media Management, Inc
 <br>CCLI 62951 (main copyright licence)
 <br>CCLI 174113 (streaming licence)_
@@ -76,56 +75,66 @@ Holy forever
 
 
 
-<br><br>**2. Ancient of Days**<br><br>
-<br>Though the nations rage
-<br>Kingdoms rise and fall
-<br>There is still one King
-<br>Reigning over all
-
-So I will not fear for this truth remains:
-<br>That my God is the Ancient of Days
-
-None above Him, none before Him
-<br>All of time in His hands
-<br>For His throne it shall remain and ever stand
-
-All the power, all the glory
-<br>I will trust in His name
-<br>For my God is the Ancient of Days
-
-Though the dread of night
-<br>Overwhelms my soul
-<br>He is here with me
-<br>I am not alone
-
-O His love is sure and He knows my name
-<br>For my God is the Ancient of Days
-
-None above Him, none before Him
-<br>All of time in His hands
-<br>For His throne it shall remain and ever stand
-
-All the power, all the glory
-<br>I will trust in His name
-<br>For my God is the Ancient of Days
-
-Though I may not see
-<br>What the future brings
-<br>I will watch and wait
-<br>For the Saviour King
-
-Then my joy complete standing face to face
-<br>In the presence of the Ancient of Days
-
-None above Him, none before Him
-<br>All of time in His hands
-<br>For His throne it shall remain and ever stand
-<br>All the power, all the glory
-<br>I will trust in His name
-<br>For my God is the Ancient of Days
-<br>For my God is the Ancient of Days
-
-
+<br><br>**2. Trust & Obey (CXMMXNS)**<br><br>
+<br>When we walk with the Lord
+<br>In the light of His Word
+<br>What a glory He sheds on our way
+<br>While we do His good will
+<br>He abides with us still
+<br>And with all who will trust and obey
+<br><br>There's no other way
+<br>To be happy in Jesus
+<br>With peace in my mind, joy in my heart
+<br>I'll take up my cross
+<br>For all of my days
+<br>I'll do what You say
+<br>There's no other way
+<br>But to trust and obey
+<br><br>Then in fellowship sweet
+<br>We will sit at His feet
+<br>Or we'll walk by His side in the way
+<br>What He says we will do
+<br>Where He sends we will go
+<br>Never fear, only trust and obey
+<br><br>There's no other way
+<br>To be happy in Jesus
+<br>With peace in my mind, and joy in my heart
+<br>I'll take up my cross
+<br>For all of my days
+<br>I'll do what You say
+<br>There's no other way
+<br>But to trust and obey
+<br><br>I'll trust the Lord
+<br>I'll trust the Lord
+<br>You will be faithful
+<br>Like You've been before
+<br><br>Oh, I'll trust You, Lord
+<br>Yes, I'll trust You, Lord
+<br>Oh, for the grace
+<br>To trust You with more
+<br><br>I'll trust the Lord
+<br>I'll trust the Lord
+<br>You will be faithful
+<br>Like You've been before
+<br><br>Oh, I'll trust You, Lord
+<br>Yes, I'll trust You, Lord
+<br>Oh, for the grace
+<br>To trust You with more
+<br><br>There's no other way
+<br>To be happy in Jesus
+<br>With peace in my mind, and joy in my heart
+<br>I'll take up my cross
+<br>For all of my days
+<br>I'll do what You say
+<br>There's no other way
+<br>But to trust and obey
+<br>I'll do what You say
+<br>There's no other way
+<br>But to trust and obey
+<br><br>Trust and obey
+<br>For there's no other way
+<br>To be happy in Jesus
+<br>But to trust and obey
 
 <br>_CCLI Song # 7121851 © 2018 CityAlight Music | CityAlight Publishing | cityalight.com
 <br>CCLI 62951 (main copyright licence)
@@ -135,56 +144,45 @@ None above Him, none before Him
 
 
 
-<br><br> **3. You Alone** <br><br>
-<br>You alone could light the heavens
-<br>Speak, and form the universe
-<br>Every grain and galaxy
-<br>Abiding by Your word
-<br>You alone deserve all glory
-<br>In one anthem, joyfully raised
-<br>Every language, every tongue
-<br>Resounding in Your praise
- 
-Chorus:
-<br>Every nation needs to know
-<br>There's salvation in Your name alone
-<br>For Your kingdom we must go
-<br>To all of the earth, all of the earth
- 
-You alone could ransom sinners
-<br>No one else could pay such price
-<br>Give for love Your perfect life
-<br>In humble sacrifice
-<br>You alone have conquered darkness
-<br>Death no longer wields its sting
-<br>Raised in power to reign forever
-<br>Jesus, King of Kings
- 
-Chorus:
-<br>Every nation needs to know
-<br>There's salvation in Your name alone
-<br>For Your kingdom we must go
-<br>To all of the earth, all of the earth
- 
-You alone restore the broken
-<br>Through the weak display Your power
-<br>Strengthen us to persevere
-<br>Equip us for this hour
-<br>Christ alone our ceaseless message
-<br>Grace and peace our overflow
-<br>Surely You are always with us
-<br>Jesus, we will go
- 
-Chorus:
-<br>Every nation needs to know
-<br>There's salvation in Your name alone
-<br>For Your kingdom we must go
-<br>To all of the earth, all of the earth
- 
-Every nation needs to know
-<br>There's salvation in Your name alone
-<br>For Your kingdom we must go
-<br>To all of the earth, all of the earth
+<br><br> **3. No Other Name** <br><br>
+<br>There is no other name 
+<br>In heaven can be found 
+<br>Through whom we are redeemed 
+<br>Through whom your grace abounds 
+<br>No other name can save 
+<br>But Jesus Christ our Lord 
+<br><br>My joy in sorrowʼs tears 
+<br>My strength to cast out fears 
+<br>No other name but Jesus, Jesus 
+<br>My hope in darkest night 
+<br>My broken soulʼs delight 
+<br>No other name but Jesus, Jesus 
+<br><br>There is no victory 
+<br>But Jesus crucified 
+<br>No other cure for sin 
+<br>But that our Saviour died 
+<br>No other hope we have 
+<br>But that he rose again 
+<br><br>My joy in sorrowʼs tears 
+<br>My strength to cast out fears 
+<br>No other name but Jesus, Jesus 
+<br>My hope in darkest night 
+<br>My broken soulʼs delight 
+<br>No other name but Jesus, Jesus 
+<br><br>No other throne endures 
+<br>No other song remains 
+<br>But ʻWorthy is the Lamb 
+<br>Who was for sinners slainʼ 
+<br>When every knee shall bow 
+<br>And tongue confess you are Lord, 
+<br>You are Lord
+<br><br>My joy in sorrowʼs tears 
+<br>My strength to cast out fears 
+<br>No other name but Jesus, Jesus 
+<br>My hope in darkest night 
+<br>My broken soulʼs delight 
+<br>No other name but Jesus, Jesus
+
 
 <br>_CCLI #7132161 ©2019 Words and music Trevor Hodge 
 <br>CCLI 62951 (main copyright licence)
@@ -193,30 +191,30 @@ Every nation needs to know
 
 
 
-<br><br> **4. God is Our Strength and Refuge** <br><br>
-<br>God is our strength and refuge,
-<br>Our present help in trouble;
-<br>and we therefore will not fear,
-<br>though the earth should change!
-<br>Though mountains shake and tremble,
-<br>though swirling floods are raging,
-<br>God the Lord of hosts is with us evermore!
- 
-There is a flowing river,
-<br>Within God's holy city;
-<br>God is in the midst of her -
-<br>she shall not be moved!
-<br>God's help is swiftly given,
-<br>thrones vanish at his presence -
-<br>God the Lord of hosts is with us evermore!
- 
-Come, see the works of our maker,
-<br>learn of his His deeds all powerful;
-<br>wars will cease across the world
-<br>when He shatters the spear!
-<br>Be still and know your creator,
-<br>uplift Him in the nations -
-<br>God the Lord of hosts is with us evermore!
+<br><br> **4. Psalm 90** <br><br>
+<br>Teach us to number our days
+<br>That we might have wise hearts
+<br>Grass wither flowers will fade
+<br>Your word alone will last
+<br><br>Do not store up here, things that wont last
+<br>Where your treasure is, there is your heart
+<br><br>Teach us to number our days
+<br>That we might have wise hearts
+<br>Grass wither flowers will fade
+<br>Your word alone will last
+<br><br>Seek and strive, put first the Kingdom of God 
+<br>All else that you need He will provide 
+<br><br>Teach us to number our days
+<br>That we might have wise hearts
+<br>Grass wither flowers will fade
+<br>Your word alone will last
+<br><br>Pain and struggle now, will not compare 
+<br>To the glory then, we will all share
+<br><br>Teach us to number our days
+<br>That we might have wise hearts
+<br>Grass wither flowers will fade
+<br>Your word alone will last
+<br><br>Your word alone will last
 
 <br>_© 1973  Hope Publishing Co. | Richard Bewes
 <br>CCLI 62951 (main copyright licence)
