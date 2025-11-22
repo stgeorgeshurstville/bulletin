@@ -11,12 +11,11 @@ title: Welcome
 
 ## Isaiah - A Light Would Dawn
 
-### The great salvation event
+### Trusting in Babylon
 
 
-
-#### Jesus said; I am the light of the world; he who follows me will not walk in darkness, but will have the light of life.
-##### John 8:12
+#### You are righteous, Lord, and right are your judgments. Deal with your servant according to your steadfast love. 
+##### Psalm 119.137,154
 
 
 ---
