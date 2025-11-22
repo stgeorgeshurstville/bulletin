@@ -34,7 +34,7 @@ Dear God, thank you for letting us know you. Please help us learn from your word
 ⁷ “‘This is the Lord’s sign to you that the Lord will do what he has promised: ⁸ I will make the shadow cast by the sun go back the ten steps it has gone down on the stairway of Ahaz.’” So the sunlight went back the ten steps it had gone down.
 
 ⁹ A writing of Hezekiah king of Judah after his illness and recovery:
-<br>¹⁰ I said, “In the prime of my life
+<br><br>¹⁰ I said, “In the prime of my life
 <br>&nbsp;&nbsp;must I go through the gates of death
 <br>&nbsp;&nbsp;and be robbed of the rest of my years?”
 <br>¹¹ I said, “I will not again see the Lord himself
