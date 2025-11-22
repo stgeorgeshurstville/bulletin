@@ -25,48 +25,66 @@ Dear God, thank you for letting us know you. Please help us learn from your word
 
 **_Hezekiah's Illness_**
 
-**36** ¹ In the fourteenth year of King Hezekiah’s reign, Sennacherib king of Assyria attacked all the fortified cities of Judah and captured them. ² Then the king of Assyria sent his field commander with a large army from Lachish to King Hezekiah at Jerusalem. When the commander stopped at the aqueduct of the Upper Pool, on the road to the Launderer’s Field, ³ Eliakim son of Hilkiah the palace administrator, Shebna the secretary, and Joah son of Asaph the recorder went out to him.
+³⁸ In those days Hezekiah became ill and was at the point of death. The prophet Isaiah son of Amoz went to him and said, “This is what the Lord says: Put your house in order, because you are going to die; you will not recover.”
 
-⁴ The field commander said to them, “Tell Hezekiah:
+² Hezekiah turned his face to the wall and prayed to the Lord, ³ “Remember, Lord, how I have walked before you faithfully and with wholehearted devotion and have done what is good in your eyes.” And Hezekiah wept bitterly.
 
-“‘This is what the great king, the king of Assyria, says: On what are you basing this confidence of yours? ⁵ You say you have counsel and might for war—but you speak only empty words. On whom are you depending, that you rebel against me? ⁶ Look, I know you are depending on Egypt, that splintered reed of a staff, which pierces the hand of anyone who leans on it! Such is Pharaoh king of Egypt to all who depend on him. ⁷ But if you say to me, “We are depending on the Lord our God”—isn’t he the one whose high places and altars Hezekiah removed, saying to Judah and Jerusalem, “You must worship before this altar”?
+⁴ Then the word of the Lord came to Isaiah: ⁵ “Go and tell Hezekiah, ‘This is what the Lord, the God of your father David, says: I have heard your prayer and seen your tears; I will add fifteen years to your life. ⁶ And I will deliver you and this city from the hand of the king of Assyria. I will defend this city.
 
-⁸ “‘Come now, make a bargain with my master, the king of Assyria: I will give you two thousand horses—if you can put riders on them! ⁹ How then can you repulse one officer of the least of my master’s officials, even though you are depending on Egypt for chariots and horsemen ? ¹⁰ Furthermore, have I come to attack and destroy this land without the Lord? The Lord himself told me to march against this country and destroy it.’”
+⁷ “‘This is the Lord’s sign to you that the Lord will do what he has promised: ⁸ I will make the shadow cast by the sun go back the ten steps it has gone down on the stairway of Ahaz.’” So the sunlight went back the ten steps it had gone down.
 
-¹¹ Then Eliakim, Shebna and Joah said to the field commander, “Please speak to your servants in Aramaic, since we understand it. Don’t speak to us in Hebrew in the hearing of the people on the wall.”
+⁹ A writing of Hezekiah king of Judah after his illness and recovery:
+<br>¹⁰ I said, “In the prime of my life
+<br>&nbsp;&nbsp;must I go through the gates of death
+<br>&nbsp;&nbsp;and be robbed of the rest of my years?”
+<br>¹¹ I said, “I will not again see the Lord himself
+<br>&nbsp;&nbsp;in the land of the living;
+<br>no longer will I look on my fellow man,
+<br>&nbsp;&nbsp;or be with those who now dwell in this world.
+<br>¹² Like a shepherd’s tent my house
+<br>&nbsp;&nbsp;has been pulled down and taken from me.
+<br>Like a weaver I have rolled up my life,
+<br>&nbsp;&nbsp;and he has cut me off from the loom;
+<br>&nbsp;&nbsp;day and night you made an end of me.
+<br>¹³ I waited patiently till dawn,
+<br>&nbsp;&nbsp;but like a lion he broke all my bones;
+<br>&nbsp;&nbsp;day and night you made an end of me.
+<br>¹⁴ I cried like a swift or thrush,
+<br>&nbsp;&nbsp;I moaned like a mourning dove.
+<br>My eyes grew weak as I looked to the heavens.
+<br>&nbsp;&nbsp;I am being threatened; Lord, come to my aid!”
+<br><br>
+¹⁵ But what can I say?
+<br>&nbsp;&nbsp;He has spoken to me, and he himself has done this.
+<br>I will walk humbly all my years
+<br>&nbsp;&nbsp;because of this anguish of my soul.
+<br>¹⁶ Lord, by such things people live;
+<br>&nbsp;&nbsp;and my spirit finds life in them too.
+<br>You restored me to health
+<br>&nbsp;&nbsp;and let me live.
+<br>¹⁷ Surely it was for my benefit
+<br>&nbsp;&nbsp;that I suffered such anguish.
+<br>In your love you kept me
+<br>&nbsp;&nbsp;from the pit of destruction;
+<br>you have put all my sins
+<br>&nbsp;&nbsp;behind your back.
+<br>¹⁸ For the grave cannot praise you,
+<br>&nbsp;&nbsp;death cannot sing your praise;
+<br>those who go down to the pit
+<br>&nbsp;&nbsp;cannot hope for your faithfulness.
+<br>¹⁹ The living, the living—they praise you,
+<br>&nbsp;&nbsp;as I am doing today;
+<br>parents tell their children
+<br>&nbsp;&nbsp;about your faithfulness.<br><br>
 
-¹² But the commander replied, “Was it only to your master and you that my master sent me to say these things, and not to the people sitting on the wall—who, like you, will have to eat their own excrement and drink their own urine?”
+²⁰ The Lord will save me,
+<br>&nbsp;&nbsp;and we will sing with stringed instruments
+<br>all the days of our lives
+<br>&nbsp;&nbsp;in the temple of the Lord.
+<br>
+²¹ Isaiah had said, “Prepare a poultice of figs and apply it to the boil, and he will recover.”
 
-¹³ Then the commander stood and called out in Hebrew, “Hear the words of the great king, the king of Assyria! ¹⁴ This is what the king says: Do not let Hezekiah deceive you. He cannot deliver you! ¹⁵ Do not let Hezekiah persuade you to trust in the Lord when he says, ‘The Lord will surely deliver us; this city will not be given into the hand of the king of Assyria.’
-
-¹⁶ “Do not listen to Hezekiah. This is what the king of Assyria says: Make peace with me and come out to me. Then each of you will eat fruit from your own vine and fig tree and drink water from your own cistern, ¹⁷ until I come and take you to a land like your own—a land of grain and new wine, a land of bread and vineyards.
-
-¹⁸ “Do not let Hezekiah mislead you when he says, ‘The Lord will deliver us.’ Have the gods of any nations ever delivered their lands from the hand of the king of Assyria? ¹⁹ Where are the gods of Hamath and Arpad? Where are the gods of Sepharvaim? Have they rescued Samaria from my hand? ²⁰ Who of all the gods of these countries have been able to save their lands from me? How then can the Lord deliver Jerusalem from my hand?”
-
-²¹ But the people remained silent and said nothing in reply, because the king had commanded, “Do not answer him.”
-
-²² Then Eliakim son of Hilkiah the palace administrator, Shebna the secretary and Joah son of Asaph the recorder went to Hezekiah, with their clothes torn, and told him what the field commander had said.
-
-**_Jerusalem’s Deliverance Foretold_**
-
-**37** ¹ When King Hezekiah heard this, he tore his clothes and put on sackcloth and went into the temple of the Lord. ² He sent Eliakim the palace administrator, Shebna the secretary, and the leading priests, all wearing sackcloth, to the prophet Isaiah son of Amoz. ³ They told him, “This is what Hezekiah says: This day is a day of distress and rebuke and disgrace, as when children come to the moment of birth and there is no strength to deliver them. ⁴ It may be that the Lord your God will hear the words of the field commander, whom his master, the king of Assyria, has sent to ridicule the living God, and that he will rebuke him for the words the Lord your God has heard. Therefore pray for the remnant that still survives.”
-
-⁵ When King Hezekiah’s officials came to Isaiah, ⁶ Isaiah said to them, “Tell your master, ‘This is what the Lord says: Do not be afraid of what you have heard—those words with which the underlings of the king of Assyria have blasphemed me. ⁷ Listen! When he hears a certain report, I will make him want to return to his own country, and there I will have him cut down with the sword.’”
-
-⁸ When the field commander heard that the king of Assyria had left Lachish, he withdrew and found the king fighting against Libnah.
-
-⁹ Now Sennacherib received a report that Tirhakah, the king of Cush, was marching out to fight against him. When he heard it, he sent messengers to Hezekiah with this word: ¹⁰ “Say to Hezekiah king of Judah: Do not let the god you depend on deceive you when he says, ‘Jerusalem will not be given into the hands of the king of Assyria.’ ¹¹ Surely you have heard what the kings of Assyria have done to all the countries, destroying them completely. And will you be delivered? ¹² Did the gods of the nations that were destroyed by my predecessors deliver them—the gods of Gozan, Harran, Rezeph and the people of Eden who were in Tel Assar? ¹³ Where is the king of Hamath or the king of Arpad? Where are the kings of Lair, Sepharvaim, Hena and Ivvah?”
-
-**_Hezekiah’s Prayer_**
-
-¹⁴ Hezekiah received the letter from the messengers and read it. Then he went up to the temple of the Lord and spread it out before the Lord. ¹⁵ And Hezekiah prayed to the Lord: ¹⁶ “Lord Almighty, the God of Israel, enthroned between the cherubim, you alone are God over all the kingdoms of the earth. You have made heaven and earth. ¹⁷ Give ear, Lord, and hear; open your eyes, Lord, and see; listen to all the words Sennacherib has sent to ridicule the living God.
-
-¹⁸ “It is true, Lord, that the Assyrian kings have laid waste all these peoples and their lands. ¹⁹ They have thrown their gods into the fire and destroyed them, for they were not gods but only wood and stone, fashioned by human hands. ²⁰ Now, Lord our God, deliver us from his hand, so that all the kingdoms of the earth may know that you, Lord, are the only God. ”
-
-**_Sennacherib’s Fall_**
-
-²¹ Then Isaiah son of Amoz sent a message to Hezekiah: “This is what the Lord, the God of Israel, says: Because you have prayed to me concerning Sennacherib king of Assyria, ²² this is the word the Lord has spoken against him:
-
+²² Hezekiah had asked, “What will be the sign that I will go up to the temple of the Lord?”
 “Virgin Daughter Zion
 <br>&nbsp;&nbsp;despises and mocks you.
 <br>Daughter Jerusalem
