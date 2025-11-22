@@ -4,10 +4,10 @@ order: 1
 ---
 
 ## 9:30am
-1. How Great is Our God
-2. Ancient of Days
-3. You Alone
-4. God is Our Strength and Refuge
+1. Holy Forever
+2. Trust & Obey (CXMMXNS) 
+3. No Other Name
+4. Psalm 90
 
 **Scroll below for 9:30am song lyrics**
 
@@ -20,7 +20,7 @@ order: 1
 
 
 ### 9:30am Song Lyrics
-<br><br>**1. How Great is Our God**<br><br>
+<br><br>**1. Holy Forever**<br><br>
 <br>The splendour of a King, clothed in majesty
 <br>Let all the Earth rejoice
 <br>All the Earth rejoice
