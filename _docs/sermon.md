@@ -87,6 +87,7 @@ Dear God, thank you for letting us know you. Please help us learn from your word
 ²² Hezekiah had asked, “What will be the sign that I will go up to the temple of the Lord?”
 
 **_Envoys From Babylon_**
+
 ³⁹ At that time Marduk-Baladan son of Baladan king of Babylon sent Hezekiah letters and a gift, because he had heard of his illness and recovery. ² Hezekiah received the envoys gladly and showed them what was in his storehouses—the silver, the gold, the spices, the fine olive oil—his entire armory and everything found among his treasures. There was nothing in his palace or in all his kingdom that Hezekiah did not show them.
 
 ³ Then Isaiah the prophet went to King Hezekiah and asked, “What did those men say, and where did they come from?”
