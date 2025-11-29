@@ -33,7 +33,6 @@ Dear God, thank you for letting us know you. Please help us learn from your word
 <br>that her sin has been paid for,
 <br>that she has received from the Lord’s hand
 <br>double for all her sins.
-
 <br><br>³ A voice of one calling:
 <br>“In the wilderness prepare
 <br>the way for the Lord ;
@@ -46,10 +45,8 @@ Dear God, thank you for letting us know you. Please help us learn from your word
 <br>⁵ And the glory of the Lord will be revealed,
 <br>and all people will see it together.
 <br>For the mouth of the Lord has spoken.”
-
 <br><br>⁶ A voice says, “Cry out.”
 <br>And I said, “What shall I cry?”
-
 <br><br>“All people are like grass,
 <br>and all their faithfulness is like the flowers of the field.
 <br>⁷ The grass withers and the flowers fall,
@@ -57,7 +54,6 @@ Dear God, thank you for letting us know you. Please help us learn from your word
 <br>Surely the people are grass.
 <br>⁸ The grass withers and the flowers fall,
 <br>but the word of our God endures forever.”
-
 <br><br>⁹ You who bring good news to Zion,
 <br>go up on a high mountain.
 <br>You who bring good news to Jerusalem, 
@@ -73,7 +69,6 @@ Dear God, thank you for letting us know you. Please help us learn from your word
 <br>He gathers the lambs in his arms
 <br>and carries them close to his heart;
 <br>he gently leads those that have young.
-
 <br><br>¹² Who has measured the waters in the hollow of his hand,
 <br>or with the breadth of his hand marked off the heavens?
 <br>Who has held the dust of the earth in a basket,
@@ -85,7 +80,6 @@ Dear God, thank you for letting us know you. Please help us learn from your word
 <br>and who taught him the right way?
 <br>Who was it that taught him knowledge,
 <br>or showed him the path of understanding?
-
 <br><br>¹⁵ Surely the nations are like a drop in a bucket;
 <br>they are regarded as dust on the scales;
 <br>he weighs the islands as though they were fine dust.
@@ -94,7 +88,6 @@ Dear God, thank you for letting us know you. Please help us learn from your word
 <br>¹⁷ Before him all the nations are as nothing;
 <br>they are regarded by him as worthless
 <br>and less than nothing.
-
 <br><br>¹⁸ With whom, then, will you compare God?
 <br>To what image will you liken him?
 <br>¹⁹ As for an idol, a metalworker casts it,
@@ -104,7 +97,6 @@ Dear God, thank you for letting us know you. Please help us learn from your word
 <br>selects wood that will not rot;
 <br>they look for a skilled worker
 <br>to set up an idol that will not topple.
-
 <br><br>²¹ Do you not know?
 <br>Have you not heard?
 <br>Has it not been told you from the beginning?
@@ -120,7 +112,6 @@ Dear God, thank you for letting us know you. Please help us learn from your word
 <br>no sooner do they take root in the ground,
 <br>than he blows on them and they wither,
 <br>and a whirlwind sweeps them away like chaff.
-
 <br>²⁵ “To whom will you compare me?
 <br>Or who is my equal?” says the Holy One.
 <br>²⁶ Lift up your eyes and look to the heavens:
@@ -129,7 +120,6 @@ Dear God, thank you for letting us know you. Please help us learn from your word
 <br>and calls forth each of them by name.
 <br>Because of his great power and mighty strength,
 <br>not one of them is missing.
-
 <br><br>²⁷ Why do you complain, Jacob?
 <br>Why do you say, Israel,
 <br>“My way is hidden from the Lord;
