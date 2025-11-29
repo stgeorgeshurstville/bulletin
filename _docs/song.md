@@ -211,7 +211,7 @@ Thank you for the cross, Lord
 <br>You are faithful, God, You are faithful
 <br>You are faithful, God, You are faithful
 <br>Your are, You are faithful, God, You are faithful
-<br>© 2011, Matt Redman, Thankyou Music Ltd.
+<br><br>© 2011, Matt Redman, Thankyou Music Ltd.
 <br>CCLI 62951 (main copyright licence)
 <br>CCLI 174113 (streaming licence)
 
