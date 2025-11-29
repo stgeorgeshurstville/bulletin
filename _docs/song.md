@@ -114,7 +114,7 @@ Thank you for the cross, Lord
 <br>Your word endures forever
 <br>Your word endures forever
 <br>Your word endures forever
-<br>© 2020 Emu Music, Alanna Jane Glover, Philip Gordon Percival, Olivia Chapman
+<br><br>© 2020 Emu Music, Alanna Jane Glover, Philip Gordon Percival, Olivia Chapman
 <br>CCLI 62951 (main copyright licence)
 <br>CCLI 174113 (streaming licence)
 
@@ -163,7 +163,7 @@ Thank you for the cross, Lord
 <br>Come, let us adore him
 <br>Behold our king, nothing can compare
 <br>Come, let us adore him
-<br>© 2011, Sovereign Grace Worship, Sovereign Grace Praise
+<br><br>© 2011, Sovereign Grace Worship, Sovereign Grace Praise
 <br>CCLI 62951 (main copyright licence)
 <br>CCLI 174113 (streaming licence)
 
