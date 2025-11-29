@@ -11,12 +11,11 @@ title: Welcome
 
 ## Isaiah - A Light Would Dawn
 
-### Trusting in Babylon
+### The Lord himself will come and save
 
 
-#### You are righteous, Lord, and right are your judgments. Deal with your servant according to your steadfast love. 
-##### Psalm 119.137,154
-
+#### Worthy is the Lamb who was slain to receive power and wealth and wisdom and might and honour and glory and blessing. To him be glory and dominion for ever and ever.
+##### Revelation 5.12;1.6
 
 ---
 - We are gathering in person! For people who can’t gather in person, you can watch online [here](https://stgeorgeshurstville.org.au/sunday-english-online)
