@@ -4,7 +4,7 @@ order: 1
 ---
 
 ## 9:30am
-1. Holy Forever
+1. Worthy is the Lamb
 2. Trust & Obey (CXMMXNS) 
 3. No Other Name
 4. Psalm 90
@@ -20,57 +20,62 @@ order: 1
 
 
 ### 9:30am Song Lyrics
-<br><br>**1. Holy Forever**<br><br>
-<br>A thousand generations falling down in worship
-<br>To sing the song of ages to the Lamb
-<br>And all who’ve gone before us and all who will believe
-<br>Will sing the song of ages to the Lamb
-<br><br>Your name is the highest
-<br>Your name is the greatest
-<br>Your name stands above them all
-<br>All thrones and dominions
-<br>All powers and positions
-<br>Your name stands above them all
-<br><br>And the angels cry, Holy
-<br>All creation cries, Holy
-<br>You are lifted high, Holy
-<br>Holy forever
-<br><br>If you’ve been forgiven and if you’ve been redeemed
-<br>Sing the song forever to the Lamb
-<br>If you walk in freedom and if you bear His name
-<br>Sing the song forever to the Lamb
-<br>We’ll sing the song forever and amen
-<br><br>And the angels cry, Holy
-<br>All creation cries, Holy
-<br>You are lifted high, Holy
-<br>Holy forever
-<br><br>Your name is the highest
-<br>Your name is the greatest
-<br>Your name stands above them all
-<br>All thrones and dominions
-<br>All powers and positions
-<br>Your name stands above them all
-<br><br>Jesus, Your name is the highest
-<br>Your name is the greatest
-<br>Your name stands above them all
-<br>All thrones and dominions
-<br>All powers and positions
-<br>Your name stands above them all
-<br><br>And the angels cry, Holy
-<br>All creation cries, Holy
-<br>You are lifted high, Holy
-<br>Holy forever
-<br>Hear your people sing, Holy
-<br>To the King of Kings, Holy
-<br><br>You will always be, Holy
-<br>Holy forever
+<br><br>**1. Worthy is the Lamb**<br><br>
+Thank you for the cross, Lord
+<br>Thank you for the price You paid
+<br>Bearing all my sin and shame
+<br>In love You came
+<br>And gave amazing grace
+<br><br>Thank you for this love, Lord
+<br>Thank you for the nail pierced hands
+<br>Washed me in Your cleansing flow
+<br>Now all I know
+<br>Your forgiveness and embrace
+<br><br>Worthy is the Lamb
+<br>Seated on the throne
+<br>Crown You now with many crowns
+<br>You reign victorious
+<br><br>High and lifted up
+<br>Jesus Son of God
+<br>The Darling of Heaven crucified
+<br>Worthy is the Lamb
+<br>Worthy is the Lamb
+<br><br>Thank you for the cross, Lord
+<br>Thank you for the price You paid
+<br>Bearing all my sin and shame
+<br>In love You came
+<br>And gave amazing grace
+<br><br>Thank you for this love, Lord
+<br>Thank you for the nail pierced hands
+<br>Washed me in Your cleansing flow
+<br>Now all I know
+<br>Your forgiveness and embrace
+<br><br>Worthy is the Lamb
+<br>Seated on the throne
+<br>Crown You now with many crowns
+<br>You reign victorious
+<br><br>High and lifted up
+<br>Jesus Son of God
+<br>The Darling of Heaven crucified
+<br>Worthy is the Lamb
+<br>Worthy is the Lamb
+<br>Worthy is the Lamb
+<br>Worthy is the Lamb
+<br><br>Worthy is the Lamb
+<br>Seated on the throne
+<br>Crown You now with many crowns
+<br>You reign victorious
+<br><br>High and lifted up
+<br>Jesus Son of God
+<br>The Darling of Heaven crucified
+<br>Worthy is the Lamb
+<br>Worthy is the Lamb
+<br>Worthy is the Lamb
 
-You will always be, Holy
-<br>Holy forever
+<br><br>© 2001, Hillsong worship, Integrity Music Inc.
+CCLI 62951 (main copyright licence)
+CCLI 174113 (streaming licence)
 
-<br>_© 2004 Christ Tomlin, Capitol CMG Publishing, Music Services, Reservoir Media Management, Inc
-<br>CCLI 62951 (main copyright licence)
-<br>CCLI 174113 (streaming licence)_
 
 
 
