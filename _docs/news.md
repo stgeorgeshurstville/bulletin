@@ -45,20 +45,6 @@ If you have further questions, please contact the appropriate person for your se
 - 4:00 PM Mandarin: Esther Wu
 - Other Inquiries: Your Congregation Minister
 
-### Inner Lawn Turf (Phase 1) at Church is Finished!
-
-We're thrilled to announce that the first phase of the artificial turf replacement on the inner lawn of the main church site is now complete! 
-A tremendous thank you once again to the dedicated volunteers who worked hard and efficiently last week. Your service made this upgrade possible! The new turf looks fantastic and provides a beautiful space for our community to use.
-The momentum continues! Our next major project is the replacement of the hall flooring. This essential work will significantly improve the function of our hall gathering space. We know many of you cherish our community spaces, and these projects rely entirely on your generosity. 
-Please prayerfully consider continuing your giving towards the Church Building Fund to ensure we can continue improvements and maintenance for our entire site. Thank you for investing in the future of our church home!
-
-### Change in parking conditions
-
-Please note that the parking conditions have changed on the Avenue. 
-
-<img width="291" height="512" alt="image" src="https://github.com/user-attachments/assets/7f5f6037-f2a2-49b9-9a76-fcaa489c9b20" />
-
-
 ### A New Year of Serving Together!
 
 As the new year rapidly approaches, we'd love for you to consider how you would like to continue serving our church. Everyone’s contribution is greatly appreciated as we seek to love people both inside and outside of our church community. 
@@ -72,16 +58,6 @@ _Please note: Indicating a new area does not automatically mean you will be serv
 Also this form is not the means for discontinuing a ministry in the new year. If you'd like to step down from a current team, then we'd like to direct you to have that conversation with the ministry leader of that team._ 
 
 [The link to the form can be found here](https://docs.google.com/forms/d/e/1FAIpQLSeljZR3t7boD-xQVUP9U-tOTjnZkxkEjBjPX8Qf2yyCJ54_pA/viewform)
-
-### Domestic abuse
-Synod, in response to the ongoing concern of domestic abuse –
- 
-1. Acknowledges that domestic abuse remains a significant social issue, both within the church and in the wider community,
-2. Affirms the ongoing work of many parishes in supporting those experiencing domestic abuse, as well as their efforts in teaching and training around this issue,
-3. Commends the use of the Diocesan Domestic Abuse and Good Practice Guidelines, along with other Safe Ministry resources, in equipping church leaders and members to understand, support and care for those experiencing abuse,
-4. notes that the Anglican Church of Australia designated the first Sunday in May 2025 as Domestic Violence (DV) Sunday,
-5. Recognises that for several years, parishes in Sydney have observed the International Day for the Elimination of Violence Against Women held annually in November, and;
-6. Encourages local churches to engage with and utilise the resources being developed by the Diocesan Domestic Abuse Monitoring Committee for use in church services on 23 or 30 November this year to ensure this critical issue continues to be addressed in our congregations.’
 
 
 ### Growing in Our Welcoming:
