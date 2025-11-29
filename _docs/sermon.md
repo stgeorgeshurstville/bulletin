@@ -20,20 +20,136 @@ order: 2
 ### Prayer
 Dear God, thank you for letting us know you. Please help us learn from your word. Help us to serve and praise you. **Amen!**
 
-### Isaiah 38-39 (NIV)
+### Isaiah 40 (NIV)
 
 
-**_Hezekiah's Illness_** (Ch. 38)
+**_Comfort for God's People_** 
 
-³⁸ In those days Hezekiah became ill and was at the point of death. The prophet Isaiah son of Amoz went to him and said, “This is what the Lord says: Put your house in order, because you are going to die; you will not recover.”
+⁴⁰ Comfort, comfort my people,
+<br>says your God.
+<br>² Speak tenderly to Jerusalem,
+<br>and proclaim to her
+<br>that her hard service has been completed,
+<br>that her sin has been paid for,
+<br>that she has received from the Lord’s hand
+<br>double for all her sins.
 
-² Hezekiah turned his face to the wall and prayed to the Lord, ³ “Remember, Lord, how I have walked before you faithfully and with wholehearted devotion and have done what is good in your eyes.” And Hezekiah wept bitterly.
+<br><br>³ A voice of one calling:
+<br>“In the wilderness prepare
+<br>the way for the Lord ;
+<br>make straight in the desert
+<br>a highway for our God. 
+<br>⁴ Every valley shall be raised up,
+<br>every mountain and hill made low;
+<br>the rough ground shall become level,
+<br>the rugged places a plain.
+<br>⁵ And the glory of the Lord will be revealed,
+<br>and all people will see it together.
+<br>For the mouth of the Lord has spoken.”
 
-⁴ Then the word of the Lord came to Isaiah: ⁵ “Go and tell Hezekiah, ‘This is what the Lord, the God of your father David, says: I have heard your prayer and seen your tears; I will add fifteen years to your life. ⁶ And I will deliver you and this city from the hand of the king of Assyria. I will defend this city.
+<br><br>⁶ A voice says, “Cry out.”
+<br>And I said, “What shall I cry?”
 
-⁷ “‘This is the Lord’s sign to you that the Lord will do what he has promised: ⁸ I will make the shadow cast by the sun go back the ten steps it has gone down on the stairway of Ahaz.’” So the sunlight went back the ten steps it had gone down.
+<br><br>“All people are like grass,
+<br>and all their faithfulness is like the flowers of the field.
+<br>⁷ The grass withers and the flowers fall,
+<br>because the breath of the Lord blows on them.
+<br>Surely the people are grass.
+<br>⁸ The grass withers and the flowers fall,
+<br>but the word of our God endures forever.”
 
-⁹ A writing of Hezekiah king of Judah after his illness and recovery:
+<br><br>⁹ You who bring good news to Zion,
+<br>go up on a high mountain.
+<br>You who bring good news to Jerusalem, 
+<br>lift up your voice with a shout,
+<br>lift it up, do not be afraid;
+<br>say to the towns of Judah,
+<br>“Here is your God!”
+<br>¹⁰ See, the Sovereign Lord comes with power,
+<br>and he rules with a mighty arm.
+<br>See, his reward is with him,
+<br>and his recompense accompanies him.
+<br>¹¹ He tends his flock like a shepherd:
+<br>He gathers the lambs in his arms
+<br>and carries them close to his heart;
+<br>he gently leads those that have young.
+
+<br><br>¹² Who has measured the waters in the hollow of his hand,
+<br>or with the breadth of his hand marked off the heavens?
+<br>Who has held the dust of the earth in a basket,
+<br>or weighed the mountains on the scales
+<br>and the hills in a balance?
+<br>¹³ Who can fathom the Spirit of the Lord,
+<br>or instruct the Lord as his counselor?
+<br>¹⁴ Whom did the Lord consult to enlighten him,
+<br>and who taught him the right way?
+<br>Who was it that taught him knowledge,
+<br>or showed him the path of understanding?
+
+<br><br>¹⁵ Surely the nations are like a drop in a bucket;
+<br>they are regarded as dust on the scales;
+<br>he weighs the islands as though they were fine dust.
+<br>¹⁶ Lebanon is not sufficient for altar fires,
+<br>nor its animals enough for burnt offerings.
+<br>¹⁷ Before him all the nations are as nothing;
+<br>they are regarded by him as worthless
+<br>and less than nothing.
+
+<br><br>¹⁸ With whom, then, will you compare God?
+<br>To what image will you liken him?
+<br>¹⁹ As for an idol, a metalworker casts it,
+<br>and a goldsmith overlays it with gold
+<br>and fashions silver chains for it.
+<br>²⁰ A person too poor to present such an offering
+<br>selects wood that will not rot;
+<br>they look for a skilled worker
+<br>to set up an idol that will not topple.
+
+<br><br>²¹ Do you not know?
+<br>Have you not heard?
+<br>Has it not been told you from the beginning?
+<br>Have you not understood since the earth was founded?
+<br>²² He sits enthroned above the circle of the earth,
+<br>and its people are like grasshoppers.
+<br>He stretches out the heavens like a canopy,
+<br>and spreads them out like a tent to live in.
+<br>²³ He brings princes to naught
+<br>and reduces the rulers of this world to nothing.
+<br>²⁴ No sooner are they planted,
+<br>no sooner are they sown,
+<br>no sooner do they take root in the ground,
+<br>than he blows on them and they wither,
+<br>and a whirlwind sweeps them away like chaff.
+
+<br>²⁵ “To whom will you compare me?
+<br>Or who is my equal?” says the Holy One.
+<br>²⁶ Lift up your eyes and look to the heavens:
+<br>Who created all these?
+<br>He who brings out the starry host one by one
+<br>and calls forth each of them by name.
+<br>Because of his great power and mighty strength,
+<br>not one of them is missing.
+
+<br><br>²⁷ Why do you complain, Jacob?
+<br>Why do you say, Israel,
+<br>“My way is hidden from the Lord;
+<br>my cause is disregarded by my God”?
+<br>²⁸ Do you not know?
+<br>Have you not heard?
+<br>The Lord is the everlasting God,
+<br>the Creator of the ends of the earth.
+<br>He will not grow tired or weary,
+<br>and his understanding no one can fathom.
+<br>²⁹ He gives strength to the weary
+<br>and increases the power of the weak.
+<br>³⁰ Even youths grow tired and weary,
+<br>and young men stumble and fall;
+<br>³¹ but those who hope in the Lord
+<br>will renew their strength.
+<br>They will soar on wings like eagles;
+<br>they will run and not grow weary,
+<br>they will walk and not be faint.
+
 <br><br>¹⁰ I said, “In the prime of my life
 <br>&nbsp;&nbsp;must I go through the gates of death
 <br>&nbsp;&nbsp;and be robbed of the rest of my years?”
@@ -105,10 +221,12 @@ Dear God, thank you for letting us know you. Please help us learn from your word
 
 ## Sermon Outline
 
-- “Like a red tulip in a field of yellow tulips.”
-- Why Isaiah 36-39 is unusual
-- The events themselves
-- Take-aways 
+- What is comfort?
+- The Ministry of Comfort
+- The Power of His Word
+- The Power of His Arm
+- He gives power to the Weary 
+
 
 
 
