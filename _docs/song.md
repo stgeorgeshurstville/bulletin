@@ -18,7 +18,9 @@ order: 1
 4. Hark! The Herald Angels Sing
 
 
-### 9:30am Song Lyrics
+### 9:30am Song Lyrics<br><br>
+
+**1. Hallelujah to The King of Kings**
 Hallelujah To The Kings of Kings<br>
 Maker of the heavens and earth<br>
 Exalted by the roar of a multitude<br>
@@ -57,44 +59,44 @@ The people of the Lord are ready to see their king,<br>
 Jesus! Jesus!<br>
 Jesus! Jesus!<br>
 
-CCLI Song # 4512716 © 2003 Mark Peterson
-CCLI 62951 (main copyright licence)
-CCLI 174113 (streaming licence)
+CCLI Song # 4512716 © 2003 Mark Peterson<br>
+CCLI 62951 (main copyright licence)<br>
+CCLI 174113 (streaming licence)<br>
 
 
 
 
 
 
-<br><br>**2. Your Word**<br><br>
-Come, thou long expected Jesus,
-Born to set thy people free;
-From our fears and sins release us,
-Let us find our rest in thee.
-Israel's strength and consolation,
-Hope of all the earth thou art;
-Dear desire of every nation,
-Joy of every longing heart.
-Born thy people to deliver,
-Born a child and yet a King,
-Born to reign in us forever,
-Now thy gracious kingdom bring.
-By thine own eternal spirit
-Rule in all our hearts alone;
-By thine all sufficient merit,
-Raise us to thy glorious throne.
+**2. Your Word**
+Come, thou long expected Jesus,<br>
+Born to set thy people free;<br>
+From our fears and sins release us,<br>
+Let us find our rest in thee.<br>
+Israel's strength and consolation,<br>
+Hope of all the earth thou art;<br>
+Dear desire of every nation,<br>
+Joy of every longing heart.<br>
+Born thy people to deliver,<br>
+Born a child and yet a King,<br>
+Born to reign in us forever,<br>
+Now thy gracious kingdom bring.<br>
+By thine own eternal spirit<br>
+Rule in all our hearts alone;<br>
+By thine all sufficient merit,<br>
+Raise us to thy glorious throne.<br>
 
-Joy to those who long to see thee
-Dayspring from on high appear
-Come, thou promised Rod of Jesse
-Of thy birth we long to hear
-O’er the hills the angels singing
-News glad tidings of a birth
-Go to Him your praises bringing
-Christ the Lord has come to earth
-@ 1744, Charles Wesley, Public domain
-CCLI 62951 (main copyright licence)
-CCLI 174113 (streaming licence)
+Joy to those who long to see thee<br>
+Dayspring from on high appear<br>
+Come, thou promised Rod of Jesse<br>
+Of thy birth we long to hear<br>
+O’er the hills the angels singing<br>
+News glad tidings of a birth<br>
+Go to Him your praises bringing<br>
+Christ the Lord has come to earth<br>
+@ 1744, Charles Wesley, Public domain<br>
+CCLI 62951 (main copyright licence)<br>
+CCLI 174113 (streaming licence)<br>
 
 
 
