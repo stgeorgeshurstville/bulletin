@@ -34,6 +34,22 @@ How You Can Participate:
 - Invite: Bring your family and friends to enjoy the market atmosphere.
 - Support: Contribute to the charity fundraising initiatives.
 
+For More Information
+If you have further questions, please contact the appropriate person for your service:
+- 9:30 AM Cantonese: Kevin Lee
+- 4:00 PM Mandarin: Esther Wu
+- Other Inquiries: Your Congregation Minister
+
+### Prayer for our Christmas Mission!
+
+As we prepare for our mission this Christmas season, we invite you to join us for a week of dedicated online prayer to lift up this vital work.
+This is a wonderful opportunity to unite as a church family and intercede for those who need to hear the good news of Christ whether that be a family member, classmate, or a work colleague.
+
+## When and How to Join:
+When: Every day this week, Monday to Friday.
+Time: Lunchtime at 12:30 PM (for 15-20 minutes).
+Where: Join the online meeting via this link:
+[Meeting Link Here](http://meet.google.com/zui-kqeq-fmb)
 
 ### Opportunity to Serve: Billeting Our Students
 
@@ -57,6 +73,23 @@ Two areas in particular that we'd love for you to consider in our December and J
 
 _Please note: Indicating a new area does not automatically mean you will be serving there. It will simply be the basis for a friendly conversation with one of our staff members. Together, we can consider what might be the best fit for you and our church.
 Also this form is not the means for discontinuing a ministry in the new year. If you'd like to step down from a current team, then we'd like to direct you to have that conversation with the ministry leader of that team._ 
+
+### Special Christmas Morning Tea
+Next week Join us on Sunday, 14th December, immediately following the regular Sunday service, for a wonderful Christmas fellowship event.
+This morning tea is generously provided by both Darren and Jimmy and Johnson's Dgroups. we’ll also will be having our NTE students join us for this event. 
+
+So please ensure that you can hang around afterwards. 
+
+### St George's Hurstville Anglican Church Christmas Services
+Join us this December as we celebrate the joyous arrival of our Saviour, Jesus Christ! Come and hear the wonderful news that Jesus, who was from the beginning, came into our world so that we can live in his light.
+We have four main Christmas services planned across our different language groups. Please choose the service that suits you best and bring along your friends, family, and neighbours to celebrate with us.
+Our Christmas Service Schedule
+Nepali Service: Sunday, 20th December at 5:00 PM
+Mandarin Service (Christmas Eve): Thursday, 24th December at 7:30 PM
+English Service (Christmas Day): Friday, 25th December at 9:30 AM
+Cantonese Service (Christmas Day): Friday, 25th December at 11:00 AM
+We look forward to celebrating with you!
+
 
 [The link to the form can be found here](https://docs.google.com/forms/d/e/1FAIpQLSeljZR3t7boD-xQVUP9U-tOTjnZkxkEjBjPX8Qf2yyCJ54_pA/viewform)
 
