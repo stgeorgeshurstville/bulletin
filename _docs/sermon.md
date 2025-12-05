@@ -97,11 +97,12 @@ will be turned back in utter shame.<br><br>
 
 ## Sermon Outline
 
-- What is comfort?
-- The Ministry of Comfort
-- The Power of His Word
-- The Power of His Arm
-- He gives power to the Weary 
+Summoned by the Lord 
+- The Lord’s case 
+- The Lord’s declaration 
+- Jesus, the Servant of the Lord 
+- Conclusions 
+
 
 
 
