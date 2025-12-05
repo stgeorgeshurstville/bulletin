@@ -83,11 +83,11 @@ So please ensure that you can hang around afterwards.
 ### St George's Hurstville Anglican Church Christmas Services
 Join us this December as we celebrate the joyous arrival of our Saviour, Jesus Christ! Come and hear the wonderful news that Jesus, who was from the beginning, came into our world so that we can live in his light.
 We have four main Christmas services planned across our different language groups. Please choose the service that suits you best and bring along your friends, family, and neighbours to celebrate with us.
-Our Christmas Service Schedule
-Nepali Service: Sunday, 20th December at 5:00 PM
-Mandarin Service (Christmas Eve): Thursday, 24th December at 7:30 PM
-English Service (Christmas Day): Friday, 25th December at 9:30 AM
-Cantonese Service (Christmas Day): Friday, 25th December at 11:00 AM
+## Our Christmas Service Schedule
+- Nepali Service: Sunday, 20th December at 5:00 PM
+- Mandarin Service (Christmas Eve): Thursday, 24th December at 7:30 PM
+- English Service (Christmas Day): Friday, 25th December at 9:30 AM
+- Cantonese Service (Christmas Day): Friday, 25th December at 11:00 AM
 We look forward to celebrating with you!
 
 
