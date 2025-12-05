@@ -45,7 +45,7 @@ If you have further questions, please contact the appropriate person for your se
 As we prepare for our mission this Christmas season, we invite you to join us for a week of dedicated online prayer to lift up this vital work.
 This is a wonderful opportunity to unite as a church family and intercede for those who need to hear the good news of Christ whether that be a family member, classmate, or a work colleague.
 
-## When and How to Join:
+**When and How to Join:**
 When: Every day this week, Monday to Friday.
 Time: Lunchtime at 12:30 PM (for 15-20 minutes).
 Where: Join the online meeting via this link:
