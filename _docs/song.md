@@ -25,12 +25,12 @@ Hallelujah To The Kings of Kings<br>
 Maker of the heavens and earth<br>
 Exalted by the roar of a multitude<br>
 “Salvation and glory and power<br>
-belong to our God”.<br><br>
+belong to our God”.<br>
 
 The cry of hallelujah resounds<br>
 The fullness of time shows his victory<br>
 Justice and truth are revealed<br>
-his wisdom adored<br><br>
+his wisdom adored<br>
 
 Hallelujah to the King of Kings!<br>
 Hallelujah the Almighty reigns!<br>
@@ -38,7 +38,7 @@ Let us all rejoice and give him all our praise, our praise.<br>
 Hallelujah to the Lord of Lords!<br>
 Hallelujah to the God of power!<br>
 The people of the Lord are ready to see their king,<br>
-Jesus! Jesus!<br><br>
+Jesus! Jesus!<br>
 
 Praise the Lord you Servants of God<br>
 All who fear him come, whether small or great.<br>
@@ -48,7 +48,7 @@ And worship him<br>
 Blessed are those who will feast<br>
 The glorious banquet of God himself<br>
 The wedding of the Lamb has come,<br>
-His bride is now here.<br><br>
+His bride is now here.<br>
 
 Hallelujah to the King of Kings!<br>
 Hallelujah the Almighty reigns!<br>
