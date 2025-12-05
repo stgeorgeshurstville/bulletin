@@ -25,6 +25,7 @@ One of the key events during this season is our annual Christmas Market. This is
 Event Details:
 - Date: Saturday, December 13th, 2025
 - Time: 4:30 PM – 8:30 PM
+
 How You Can Participate:
 - Host a Stall: Register to host a Car Boot or Food Stall to engage with the community and raise funds.
     - [Car Boot Sale Registration](https://forms.gle/k8hq4FJZeZMv77sX9)
