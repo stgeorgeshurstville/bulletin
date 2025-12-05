@@ -20,7 +20,7 @@ order: 1
 
 ### 9:30am Song Lyrics<br><br>
 
-##**1. Hallelujah to The King of Kings**##
+### 1. Hallelujah to The King of Kings
 Hallelujah To The Kings of Kings<br>
 Maker of the heavens and earth<br>
 Exalted by the roar of a multitude<br>
@@ -68,7 +68,7 @@ CCLI 174113 (streaming licence)<br>
 
 
 
-##**2. Come Thou Long Expected Jesus**<br>##
+### 2. Come Thou Long Expected Jesus<br>
 Come, thou long expected Jesus,<br>
 Born to set thy people free;<br>
 From our fears and sins release us,<br>
@@ -102,7 +102,7 @@ CCLI 174113 (streaming licence)<br>
 
 
 
-##**3. O Come O Come Emmanuel** <br>##
+### 3. O Come O Come Emmanuel<br>
 O come, O come, Emmanuel<br>
 And ransom captive Israel<br>
 That mourns in lonely exile here<br>
@@ -150,7 +150,7 @@ CCLI 174113 (streaming licence)<br>
 
 
 
-##<br><br> **4. Never Once** <br><br>##
+### 4. Never Once <br><br>
 <br>Standing on this mountaintop
 <br>Looking just how far we've come
 <br>Knowing that for every step
