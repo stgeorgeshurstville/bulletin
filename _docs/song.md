@@ -4,119 +4,97 @@ order: 1
 ---
 
 ## 9:30am
-1. Worthy is the Lamb
-2. Your Word
+1. Hallelujah To The Kings of Kings
+2. Come Thou Long Expected Jesus
 3. Behold our God 
 4. Never Once
 
 **Scroll below for 9:30am song lyrics**
 
 ## 4:00pm
-1. Your Word
-2. Holy Forever
-3. Only a Holy God
-4. Holy Forever
+1. Holy Forever
+2. How great thou art
+3. O Come O Come Emmanuel
+4. Hark! The Herald Angels Sing
 
 
 ### 9:30am Song Lyrics
-<br><br>**1. Worthy is the Lamb**<br><br>
-Thank you for the cross, Lord
-<br>Thank you for the price You paid
-<br>Bearing all my sin and shame
-<br>In love You came
-<br>And gave amazing grace
-<br><br>Thank you for this love, Lord
-<br>Thank you for the nail pierced hands
-<br>Washed me in Your cleansing flow
-<br>Now all I know
-<br>Your forgiveness and embrace
-<br><br>Worthy is the Lamb
-<br>Seated on the throne
-<br>Crown You now with many crowns
-<br>You reign victorious
-<br><br>High and lifted up
-<br>Jesus Son of God
-<br>The Darling of Heaven crucified
-<br>Worthy is the Lamb
-<br>Worthy is the Lamb
-<br><br>Thank you for the cross, Lord
-<br>Thank you for the price You paid
-<br>Bearing all my sin and shame
-<br>In love You came
-<br>And gave amazing grace
-<br><br>Thank you for this love, Lord
-<br>Thank you for the nail pierced hands
-<br>Washed me in Your cleansing flow
-<br>Now all I know
-<br>Your forgiveness and embrace
-<br><br>Worthy is the Lamb
-<br>Seated on the throne
-<br>Crown You now with many crowns
-<br>You reign victorious
-<br><br>High and lifted up
-<br>Jesus Son of God
-<br>The Darling of Heaven crucified
-<br>Worthy is the Lamb
-<br>Worthy is the Lamb
-<br>Worthy is the Lamb
-<br>Worthy is the Lamb
-<br><br>Worthy is the Lamb
-<br>Seated on the throne
-<br>Crown You now with many crowns
-<br>You reign victorious
-<br><br>High and lifted up
-<br>Jesus Son of God
-<br>The Darling of Heaven crucified
-<br>Worthy is the Lamb
-<br>Worthy is the Lamb
-<br>Worthy is the Lamb
+Hallelujah To The Kings of Kings<br>
+Maker of the heavens and earth<br>
+Exalted by the roar of a multitude<br>
+“Salvation and glory and power<br>
+belong to our God”.<br><br>
 
-<br><br>© 2001, Hillsong worship, Integrity Music Inc.
-<br>CCLI 62951 (main copyright licence)
-<br>CCLI 174113 (streaming licence)
+The cry of hallelujah resounds<br>
+The fullness of time shows his victory<br>
+Justice and truth are revealed<br>
+his wisdom adored<br><br>
+
+Hallelujah to the King of Kings!<br>
+Hallelujah the Almighty reigns!<br>
+Let us all rejoice and give him all our praise, our praise.<br>
+Hallelujah to the Lord of Lords!<br>
+Hallelujah to the God of power!<br>
+The people of the Lord are ready to see their king,<br>
+Jesus! Jesus!<br><br>
+
+Praise the Lord you Servants of God<br>
+All who fear him come, whether small or great.<br>
+Fall before his throne in awe<br>
+And worship him<br>
+
+Blessed are those who will feast<br>
+The glorious banquet of God himself<br>
+The wedding of the Lamb has come,<br>
+His bride is now here.<br><br>
+
+Hallelujah to the King of Kings!<br>
+Hallelujah the Almighty reigns!<br>
+Let us all rejoice and give him all our praise, our praise.<br>
+Hallelujah to the Lord of Lords!<br>
+Hallelujah to the God of power!<br>
+The people of the Lord are ready to see their king,<br>
+Jesus! Jesus!<br>
+Jesus! Jesus!<br>
+
+CCLI Song # 4512716 © 2003 Mark Peterson
+CCLI 62951 (main copyright licence)
+CCLI 174113 (streaming licence)
+
 
 
 
 
 
 <br><br>**2. Your Word**<br><br>
-<br>Your word is good, it′s ever faithful
-<br>Worth more than gold, the heart's delight
-<br>Your word gives life to all who hear and obey
-<br>Your word endures forever
-<br><br>Your word is true, it never changes
-<br>It formed the earth; sustains it still
-<br>Your word defends, providing refuge and strength
-<br>Your word endures forever
-<br><br>Your word is a lamp unto my feet
-<br>Your word is a light unto my path
-<br>For your word is my hope, it′s my joy and my song
-<br>Your word endures forever
-<br><br>Your word transforms, it lifts the humble
-<br>Rebukes the proud, protects the poor
-<br>Your word discerns the mind and spirit of all
-<br>Your word endures forever
-<br><br>Your word is a lamp unto my feet
-<br>Your word is a light unto my path
-<br>For your word is my hope, it's my joy and my song
-<br>Your word endures forever
-<br><br>Your word is more than just letters on pages
-<br>It's life and it′s love and it′s freedom for us
-<br>Your word is more than just wisdom of ages;
-<br>Its treasures are endless, it's always enough
-<br>Your word is more than just stories of old;
-<br>It′s the truth and the way and the story of love
-<br>Your word is more than just breath into dust;
-<br>It's your Son, as a man, come to dwell here with us
-<br><br>Your word is a lamp unto my feet
-<br>Your word is a light unto my path
-<br>For your word is my hope, it′s my joy and my song
-<br>Your word endures forever
-<br>Your word endures forever
-<br>Your word endures forever
-<br><br>© 2020 Emu Music, Alanna Jane Glover, Philip Gordon Percival, Olivia Chapman
-<br>CCLI 62951 (main copyright licence)
-<br>CCLI 174113 (streaming licence)
+Come, thou long expected Jesus,
+Born to set thy people free;
+From our fears and sins release us,
+Let us find our rest in thee.
+Israel's strength and consolation,
+Hope of all the earth thou art;
+Dear desire of every nation,
+Joy of every longing heart.
+Born thy people to deliver,
+Born a child and yet a King,
+Born to reign in us forever,
+Now thy gracious kingdom bring.
+By thine own eternal spirit
+Rule in all our hearts alone;
+By thine all sufficient merit,
+Raise us to thy glorious throne.
+
+Joy to those who long to see thee
+Dayspring from on high appear
+Come, thou promised Rod of Jesse
+Of thy birth we long to hear
+O’er the hills the angels singing
+News glad tidings of a birth
+Go to Him your praises bringing
+Christ the Lord has come to earth
+@ 1744, Charles Wesley, Public domain
+CCLI 62951 (main copyright licence)
+CCLI 174113 (streaming licence)
 
 
 
