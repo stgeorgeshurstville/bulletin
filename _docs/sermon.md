@@ -25,74 +25,74 @@ Dear God, thank you for letting us know you. Please help us learn from your word
 
 **The Servant of the Lord** 
 
-¹ “Here is my servant, whom I uphold,
-my chosen one in whom I delight;
-I will put my Spirit on him,
-and he will bring justice to the nations.
-² He will not shout or cry out,
-or raise his voice in the streets.
-³ A bruised reed he will not break,
-and a smoldering wick he will not snuff out.
-In faithfulness he will bring forth justice;
-⁴ he will not falter or be discouraged
-till he establishes justice on earth.
-In his teaching the islands will put their hope.”
+¹ “Here is my servant, whom I uphold,<br>
+my chosen one in whom I delight;<br>
+I will put my Spirit on him,<br>
+and he will bring justice to the nations.<br>
+² He will not shout or cry out,<br>
+or raise his voice in the streets.<br>
+³ A bruised reed he will not break,<br>
+and a smoldering wick he will not snuff out.<br>
+In faithfulness he will bring forth justice;<br>
+⁴ he will not falter or be discouraged<br>
+till he establishes justice on earth.<br>
+In his teaching the islands will put their hope.”<br><br>
 
-⁵ This is what God the Lord says—
-the Creator of the heavens, who stretches them out,
-who spreads out the earth with all that springs from it,
-who gives breath to its people,
-and life to those who walk on it:
-⁶ “I, the Lord, have called you in righteousness;
-I will take hold of your hand.
-I will keep you and will make you
-to be a covenant for the people
-and a light for the Gentiles,
-⁷ to open eyes that are blind,
-to free captives from prison
-and to release from the dungeon those who sit in darkness.
+⁵ This is what God the Lord says—<br>
+the Creator of the heavens, who stretches them out,<br>
+who spreads out the earth with all that springs from it,<br>
+who gives breath to its people,<br>
+and life to those who walk on it:<br>
+⁶ “I, the Lord, have called you in righteousness;<br>
+I will take hold of your hand.<br>
+I will keep you and will make you<br>
+to be a covenant for the people<br>
+and a light for the Gentiles,<br>
+⁷ to open eyes that are blind,<br>
+to free captives from prison<br>
+and to release from the dungeon those who sit in darkness.<br><br>
 
-⁸ “I am the Lord; that is my name!
-I will not yield my glory to another
-or my praise to idols.
-⁹ See, the former things have taken place,
-and new things I declare;
-before they spring into being
-I announce them to you.”
+⁸ “I am the Lord; that is my name!<br>
+I will not yield my glory to another<br>
+or my praise to idols.<br>
+⁹ See, the former things have taken place,<br>
+and new things I declare;<br>
+before they spring into being<br>
+I announce them to you.”<br><br>
 
-Song of Praise to the Lord
-¹⁰ Sing to the Lord a new song,
-his praise from the ends of the earth,
-you who go down to the sea, and all that is in it,
-you islands, and all who live in them.
-¹¹ Let the wilderness and its towns raise their voices;
-let the settlements where Kedar lives rejoice.
-Let the people of Sela sing for joy;
-let them shout from the mountaintops.
-¹² Let them give glory to the Lord
-and proclaim his praise in the islands.
-¹³ The Lord will march out like a champion,
-like a warrior he will stir up his zeal;
-with a shout he will raise the battle cry
-and will triumph over his enemies.
+Song of Praise to the Lord<br>
+¹⁰ Sing to the Lord a new song,<br>
+his praise from the ends of the earth,<br>
+you who go down to the sea, and all that is in it,<br>
+you islands, and all who live in them.<br>
+¹¹ Let the wilderness and its towns raise their voices;<br>
+let the settlements where Kedar lives rejoice.<br>
+Let the people of Sela sing for joy;<br>
+let them shout from the mountaintops.<br>
+¹² Let them give glory to the Lord<br>
+and proclaim his praise in the islands.<br>
+¹³ The Lord will march out like a champion,<br>
+like a warrior he will stir up his zeal;<br>
+with a shout he will raise the battle cry<br>
+and will triumph over his enemies.<br><br>
 
-¹⁴ “For a long time I have kept silent,
-I have been quiet and held myself back.
-But now, like a woman in childbirth,
-I cry out, I gasp and pant.
-¹⁵ I will lay waste the mountains and hills
-and dry up all their vegetation;
-I will turn rivers into islands
-and dry up the pools.
-¹⁶ I will lead the blind by ways they have not known,
-along unfamiliar paths I will guide them;
-I will turn the darkness into light before them
-and make the rough places smooth.
-These are the things I will do;
-I will not forsake them.
-¹⁷ But those who trust in idols,
-who say to images, ‘You are our gods,’
-will be turned back in utter shame.
+¹⁴ “For a long time I have kept silent,<br>
+I have been quiet and held myself back.<br>
+But now, like a woman in childbirth,<br>
+I cry out, I gasp and pant.<br>
+¹⁵ I will lay waste the mountains and hills<br>
+and dry up all their vegetation;<br>
+I will turn rivers into islands<br>
+and dry up the pools.<br>
+¹⁶ I will lead the blind by ways they have not known,<br>
+along unfamiliar paths I will guide them;<br>
+I will turn the darkness into light before them<br>
+and make the rough places smooth.<br>
+These are the things I will do;<br>
+I will not forsake them.<br>
+¹⁷ But those who trust in idols,<br>
+who say to images, ‘You are our gods,’<br>
+will be turned back in utter shame.<br><br>
 
 
 ## Sermon Outline
