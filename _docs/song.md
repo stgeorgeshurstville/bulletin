@@ -6,7 +6,7 @@ order: 1
 ## 9:30am
 1. Hallelujah To The Kings of Kings
 2. Come Thou Long Expected Jesus
-3. Behold our God 
+3. O Come O Come Emmanuel
 4. Never Once
 
 **Scroll below for 9:30am song lyrics**
@@ -68,7 +68,7 @@ CCLI 174113 (streaming licence)<br>
 
 
 
-**2. Your Word**
+**2. Come Thou Long Expected Jesus**<br>
 Come, thou long expected Jesus,<br>
 Born to set thy people free;<br>
 From our fears and sins release us,<br>
@@ -102,50 +102,50 @@ CCLI 174113 (streaming licence)<br>
 
 
 
-<br><br> **3. Behold Our God** <br><br>
-<br>Who has held the oceans in his hands?
-<br>Who has numbered every grain of sand?
-<br>Kings and nations tremble at his voice
-<br>All creation rises to rejoice
-<br><br>Behold our God, seated on his throne
-<br>Come, let us adore him
-<br>Behold our king, nothing can compare
-<br>Come, let us adore him
-<br><br>Who has given counsel to the Lord?
-<br>Who can question any of his words?
-<br>Who can teach, the one who knows all things?
-<br>Who can fathom all his wondrous deeds?
-<br><br>Behold our God, seated on his throne
-<br>Come, let us adore him
-<br>Behold our king, nothing can compare
-<br>Come, let us adore him
-<br><br>Who has felt the nails upon his hands?
-<br>Bearing all the guilt of sinful man
-<br>God eternal, humbled to the grave
-<br>Jesus, Savior, risen now to reign
-<br><br>Behold our God, seated on his throne
-<br>Come, let us adore him
-<br>Behold our king, nothing can compare
-<br>Come, let us adore him
-<br>You will reign forever (let Your glory fill the Earth)
-<br>You will reign forever (let Your glory fill the Earth)
-<br>You will reign forever (let Your glory fill the Earth)
-<br>You will reign forever (let Your glory fill the Earth)
-<br><br>You will reign forever (let Your glory fill the Earth)
-<br>You will reign forever (let Your glory fill the Earth)
-<br>You will reign forever (let Your glory fill the Earth)
-<br>You will reign forever (let Your glory fill the Earth)
-<br><br>Behold our God, seated on his throne
-<br>Come, let us adore him
-<br>Behold our king, nothing can compare
-<br>Come, let us adore
-<br><br>Behold our God, seated on his throne
-<br>Come, let us adore him
-<br>Behold our king, nothing can compare
-<br>Come, let us adore him
-<br><br>© 2011, Sovereign Grace Worship, Sovereign Grace Praise
-<br>CCLI 62951 (main copyright licence)
-<br>CCLI 174113 (streaming licence)
+**3. O Come O Come Emmanuel** <br>
+O come, O come, Emmanuel<br>
+And ransom captive Israel<br>
+That mourns in lonely exile here<br>
+Until the Son of God appear<br>
+
+O come, Thou, Dayspring from on high<br>
+And cause Thy light on us to rise<br>
+Disperse the gloomy clouds of night<br>
+And death’s dark shadow put to flight<br>
+
+Rejoice! Rejoice! Emmanuel<br>
+Shall come to thee, O Israel<br>
+
+O come, O come, true prophet of the Lord<br>
+And turn the key to heaven’s door<br>
+Be Thou our comforter and guide<br>
+And lead us to the Father’s side<br>
+
+Rejoice! Rejoice! Emmanuel<br>
+Shall by His word our darkness dispel<br>
+
+O come, our great High Priest, and intercede<br>
+Thy sacrifice, our only plea<br>
+The judgment we no longer fear<br>
+Thy precious blood has brought us near<br>
+
+Rejoice! Rejoice! Emmanuel<br>
+Has banished every fear of hell<br>
+
+O Come, Thou King of nations bring<br>
+An end to all our suffering<br>
+Bid every pain and sorrow cease<br>
+And reign now as our Prince of Peace<br>
+
+Rejoice! Rejoice! Emmanuel<br>
+Shall come again with us to dwell<br>
+Rejoice! Rejoice! Emmanuel<br>
+Shall come again with us to dwell<br>
+
+Original words (v. 1-2) translated by John M. Neale (1851). Music, VENI EMMANUEL. Alt. and add. words (v. 3-5) by Steve Cook and Bob Kauflin. © 2014 Sovereign Grace Praise/BMI, Sovereign Grace Worship/ASCAP CCLI #7031873
+CCLI 62951 (main copyright licence)<br>
+CCLI 174113 (streaming licence)<br>
+
 
 
 
