@@ -18,7 +18,7 @@ order: 1
 4. Hark! The Herald Angels Sing
 
 
-### 9:30am Song Lyrics<br><br>
+### 9:30am Song Lyrics<br>
 
 ### 1. Hallelujah to The King of Kings
 Hallelujah To The Kings of Kings<br>
@@ -150,7 +150,7 @@ CCLI 174113 (streaming licence)<br>
 
 
 
-### 4. Never Once <br><br>
+### 4. Never Once <br>
 <br>Standing on this mountaintop
 <br>Looking just how far we've come
 <br>Knowing that for every step
