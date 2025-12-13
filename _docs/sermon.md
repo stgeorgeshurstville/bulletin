@@ -20,88 +20,50 @@ order: 2
 ### Prayer
 Dear God, thank you for letting us know you. Please help us learn from your word. Help us to serve and praise you. **Amen!**
 
-### Isaiah 41:2-17 (NIV)
-
+### Isaiah 49:1-6 (NIV)
 
 **The Servant of the Lord** 
 
-¹ “Here is my servant, whom I uphold,<br>
-my chosen one in whom I delight;<br>
-I will put my Spirit on him,<br>
-and he will bring justice to the nations.<br>
-² He will not shout or cry out,<br>
-or raise his voice in the streets.<br>
-³ A bruised reed he will not break,<br>
-and a smoldering wick he will not snuff out.<br>
-In faithfulness he will bring forth justice;<br>
-⁴ he will not falter or be discouraged<br>
-till he establishes justice on earth.<br>
-In his teaching the islands will put their hope.”<br><br>
+¹ Listen to me, you islands;<br><br> 
+hear this, you distant nations:<br><br>
+Before I was born the Lord called me;<br><br>
+from my mother’s womb he has spoken my name.<br><br>
+² He made my mouth like a sharpened sword,<br><br>
+in the shadow of his hand he hid me;<br><br>
+he made me into a polished arrow<br><br>
+and concealed me in his quiver.<br><br>
+³ He said to me, “You are my servant,<br><br>
+Israel, in whom I will display my splendor.”<br><br>
+⁴ But I said, “I have labored in vain;<br><br>
+I have spent my strength for nothing at all.<br><br>
+Yet what is due me is in the Lord’s hand,<br><br>
+and my reward is with my God.”<br><br>
 
-⁵ This is what God the Lord says—<br>
-the Creator of the heavens, who stretches them out,<br>
-who spreads out the earth with all that springs from it,<br>
-who gives breath to its people,<br>
-and life to those who walk on it:<br>
-⁶ “I, the Lord, have called you in righteousness;<br>
-I will take hold of your hand.<br>
-I will keep you and will make you<br>
-to be a covenant for the people<br>
-and a light for the Gentiles,<br>
-⁷ to open eyes that are blind,<br>
-to free captives from prison<br>
-and to release from the dungeon those who sit in darkness.<br><br>
-
-⁸ “I am the Lord; that is my name!<br>
-I will not yield my glory to another<br>
-or my praise to idols.<br>
-⁹ See, the former things have taken place,<br>
-and new things I declare;<br>
-before they spring into being<br>
-I announce them to you.”<br><br>
-
-Song of Praise to the Lord<br>
-¹⁰ Sing to the Lord a new song,<br>
-his praise from the ends of the earth,<br>
-you who go down to the sea, and all that is in it,<br>
-you islands, and all who live in them.<br>
-¹¹ Let the wilderness and its towns raise their voices;<br>
-let the settlements where Kedar lives rejoice.<br>
-Let the people of Sela sing for joy;<br>
-let them shout from the mountaintops.<br>
-¹² Let them give glory to the Lord<br>
-and proclaim his praise in the islands.<br>
-¹³ The Lord will march out like a champion,<br>
-like a warrior he will stir up his zeal;<br>
-with a shout he will raise the battle cry<br>
-and will triumph over his enemies.<br><br>
-
-¹⁴ “For a long time I have kept silent,<br>
-I have been quiet and held myself back.<br>
-But now, like a woman in childbirth,<br>
-I cry out, I gasp and pant.<br>
-¹⁵ I will lay waste the mountains and hills<br>
-and dry up all their vegetation;<br>
-I will turn rivers into islands<br>
-and dry up the pools.<br>
-¹⁶ I will lead the blind by ways they have not known,<br>
-along unfamiliar paths I will guide them;<br>
-I will turn the darkness into light before them<br>
-and make the rough places smooth.<br>
-These are the things I will do;<br>
-I will not forsake them.<br>
-¹⁷ But those who trust in idols,<br>
-who say to images, ‘You are our gods,’<br>
-will be turned back in utter shame.<br><br>
+⁵ And now the Lord says—<br><br>
+he who formed me in the womb to be his servant<br><br>
+to bring Jacob back to him<br><br>
+and gather Israel to himself,<br><br>
+for I am honored in the eyes of the Lord<br><br>
+and my God has been my strength—<br><br>
+⁶ he says:<br><br>
+“It is too small a thing for you to be my servant<br><br>
+to restore the tribes of Jacob<br><br>
+and bring back those of Israel I have kept.<br><br>
+I will also make you a light for the Gentiles,<br><br>
+that my salvation may reach to the ends of the earth.”<br><br>
 
 
-## Sermon Outline
+## Sermon Outline<br><br>
 
-Summoned by the Lord 
-- The Lord’s case 
-- The Lord’s declaration 
-- Jesus, the Servant of the Lord 
-- Conclusions 
+1) The Lord’s Servant is...<br><br>
+- Called by God (v1) <br><br>
+- To speak his penetrating words (v2-3)<br><br>
+- Despite it feeling futile. (v4)<br><br>
+
+2) The Servant’s mission is...<br><br> 
+- Through Jacob’s descendants (v6)<br><br>
+- To the Nations.  (v7)<br><br>
+
 
 
 
