@@ -180,54 +180,55 @@ Shall come again with us to dwell<br>
 Rejoice! Rejoice! Emmanuel<br>
 Shall come again with us to dwell<br>
 
-Original words (v. 1-2) translated by John M. Neale (1851). Music, VENI EMMANUEL. Alt. and add. words (v. 3-5) by Steve Cook and Bob Kauflin. © 2014 Sovereign Grace Praise/BMI, Sovereign Grace Worship/ASCAP CCLI #7031873
+Original words (v. 1-2) translated by John M. Neale (1851). Music, VENI EMMANUEL. Alt. and add. words (v. 3-5) by Steve Cook and Bob Kauflin. © 2014 Sovereign Grace Praise/BMI, Sovereign Grace Worship/ASCAP CCLI #7031873<br>
 CCLI 62951 (main copyright licence)<br>
 CCLI 174113 (streaming licence)<br><br>
 
+### 4. Love of the Father<br>
+Lift up your voices and lift up your praise<br>
+Join with the heavens declaring the wonders<br>
+Of His faithfulness forever<br><br>
 
-<br>Standing on this mountaintop
-<br>Looking just how far we've come
-<br>Knowing that for every step
-<br>You were with us
-<br><br>Kneeling on this battle ground
-<br>Seeing just how much You've done
-<br>Knowing every victory
-<br>Was Your power in us
-<br><br>Scars and struggles on the way
-<br>But with joy our hearts can say
-<br>Yes, our hearts can say
-<br><br>Never once did we ever walk alone
-<br>Never once did You leave us on our own
-<br>You are faithful, God, You are faithful
-<br><br>Kneeling on this battle ground
-<br>Seeing just how much You've done
-<br>Knowing every victory
-<br>Was Your power in us
-<br><br>Scars and struggles on the way
-<br>But with joy our hearts can say
-<br>Yes, our hearts can say
-<br><br>Never once did we ever walk alone
-<br>Never once did You leave us on our own
-<br>You are faithful, God, You are faithful
-<br>You are faithful, God, You are faithful
-<br><br>Scars and struggles on the way
-<br>But with joy our hearts can say
-<br>Never once did we ever walk alone
-<br>Carried by Your constant grace
-<br>Held within Your perfect peace
-<br>Never once, no, we never walk alone
-<br><br>Never once did we ever walk alone
-<br>Never once did You leave us on our own
-<br>You are faithful, God, You are faithful
-<br>Every step we are breathing in Your grace
-<br>Evermore we'll be breathing out Your praise
-<br><br>You are faithful, God, You are faithful
-<br>You are faithful, God, You are faithful
-<br>You are faithful, God, You are faithful
-<br>Your are, You are faithful, God, You are faithful
-<br><br>© 2011, Matt Redman, Thankyou Music Ltd.
-<br>CCLI 62951 (main copyright licence)
-<br>CCLI 174113 (streaming licence)
+Sing of the victory, the hope of the world<br>
+The Saviour has risen, the Spirit has come to<br>
+Bring us into love forever<br><br>
 
+Oh, we are the people of God<br>
+With the freedom of hope in our hearts<br>
+How great is the love of the Father<br>
+
+Lifted from darkness and into the light<br>
+The sons and the daughters are loved at a price<br>
+Our God has made us His forever<br><br>
+
+Oh, we are the people of God<br>
+With the freedom of hope in our hearts<br>
+How great is the love of the Father<br><br>
+
+Oh, we are the people of God<br>
+With the freedom of hope in our hearts<br>
+How great is the love of the Father<br><br>
+
+This is the song of the redeemed<br>
+The ransomed and the free<br>
+Given life at such a price<br>
+This is love, this is love<br>
+And when the Father calls us home<br>
+And we see Him on the throne<br>
+Hear the voices sing as one<br>
+This is love, this is love<br><br>
+
+Oh, we are the people of God<br>
+With the freedom of hope in our hearts<br>
+How great is the love of the Father<br><br>
+
+Oh, we are the people of God<br>
+With the freedom of hope in our hearts<br>
+How great is the love of the Father<br><br>
+
+
+CCLI: 6635756; James Ferguson & Rich Thompson; CityAlight Music 2015<br>
+CCLI 62951 (main copyright licence)<br>
+CCLI 174113 (streaming licence)<br>
 
 
