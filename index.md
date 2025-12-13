@@ -11,11 +11,11 @@ title: Welcome
 
 ## Isaiah - A Light Would Dawn
 
-### The Servant of the Lord 
+### The Servant's word 
 
 
-#### To you, O Lord, I lift my soul, O my God, in your I trust, let me not be put to shame; let not my enemies exult over me; let none that wait for you nbe put to shame. 
-##### Psalm 25.1-3a
+#### [Hear the words of the prophet Isaiah:] Shake yourself from the dust, says the Lord, arise, O captive Jersualem; loose the bonds from your neck, O captive daughter of Zion.
+#####  Isaiah 52:2
 
 ---
 - We are gathering in person! For people who can’t gather in person, you can watch online [here](https://stgeorgeshurstville.org.au/sunday-english-online)
