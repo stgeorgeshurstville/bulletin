@@ -4,102 +4,140 @@ order: 1
 ---
 
 ## 9:30am
-1. Hallelujah To The Kings of Kings
-2. Come Thou Long Expected Jesus
+1. You Alone
+2. Holy Forever (Christmas)
 3. O Come O Come Emmanuel
-4. Never Once
+4. Love of the Father
 
 **Scroll below for 9:30am song lyrics**
 
 ## 4:00pm
-1. Holy Forever
-2. How great thou art
-3. O Come O Come Emmanuel
-4. Hark! The Herald Angels Sing
-
+1. Ancient of Days
+2. O Holy Night
+3. In Christ Alone
+4. Creation Awaits
 
 ### 9:30am Song Lyrics<br>
 
-### 1. Hallelujah to The King of Kings
-Hallelujah To The Kings of Kings<br>
-Maker of the heavens and earth<br>
-Exalted by the roar of a multitude<br>
-“Salvation and glory and power<br>
-belong to our God”.<br>
+### 1. You Alone<br>
+You alone could light the heavens<br>
+Speak, and form the universe<br>
+Every grain and galaxy<br>
+Abiding by Your word<br><br>
 
-The cry of hallelujah resounds<br>
-The fullness of time shows his victory<br>
-Justice and truth are revealed<br>
-his wisdom adored<br>
+You alone deserve all glory<br>
+In one anthem, joyfully raised<br>
+Every language, every tongue<br>
+Resounding in Your praise<br><br>
 
-Hallelujah to the King of Kings!<br>
-Hallelujah the Almighty reigns!<br>
-Let us all rejoice and give him all our praise, our praise.<br>
-Hallelujah to the Lord of Lords!<br>
-Hallelujah to the God of power!<br>
-The people of the Lord are ready to see their king,<br>
-Jesus! Jesus!<br>
+Every nation needs to know<br>
+There's salvation in Your name alone<br>
+For Your kingdom we must go<br>
+To all of the earth, all of the earth<br><br>
 
-Praise the Lord you Servants of God<br>
-All who fear him come, whether small or great.<br>
-Fall before his throne in awe<br>
-And worship him<br>
+You alone could ransom sinners<br>
+No one else could pay such price<br>
+Give for love Your perfect life<br>
+In humble sacrifice<br><br>
 
-Blessed are those who will feast<br>
-The glorious banquet of God himself<br>
-The wedding of the Lamb has come,<br>
-His bride is now here.<br>
+You alone have conquered darkness<br>
+Death no longer wields its sting<br>
+Raised in power to reign forever<br>
+Jesus, King of Kings<br><br>
 
-Hallelujah to the King of Kings!<br>
-Hallelujah the Almighty reigns!<br>
-Let us all rejoice and give him all our praise, our praise.<br>
-Hallelujah to the Lord of Lords!<br>
-Hallelujah to the God of power!<br>
-The people of the Lord are ready to see their king,<br>
-Jesus! Jesus!<br>
-Jesus! Jesus!<br>
+Every nation needs to know<br>
+There's salvation in Your name alone<br>
+For Your kingdom we must go<br>
+To all of the earth, all of the earth<br><br>
 
-CCLI Song # 4512716 © 2003 Mark Peterson<br>
+You alone restore the broken<br>
+Through the weak display Your power<br>
+Strengthen us to persevere<br>
+Equip us for this hour<br>
+Christ alone our ceaseless message<br>
+Grace and peace our overflow<br>
+Surely You are always with us<br>
+Jesus, we will go<br><br>
+
+Every nation needs to know<br>
+There's salvation in Your name alone<br>
+For Your kingdom we must go<br>
+To all of the earth, all of the earth<br><br>
+
+
+Trevor Hodge ‧ 2019<br>
 CCLI 62951 (main copyright licence)<br>
-CCLI 174113 (streaming licence)<br>
+CCLI 174113 (streaming licence)<br><br>
 
 
+### 2. Holy Forever (Christmas)<br>
+Held within a manger<br>
+The Son of God arrived<br>
+The One who would be called Emmanuel<br>
+The promise was delivered<br>
+Unto a virgin bride<br>
+The One who would be called Emmanuel<br><br>
 
+Your name is the highest<br>
+Your name is the greatest<br>
+Your name stands above them all<br>
+All thrones and dominions<br>
+All powers and positions<br>
+Your name stands above them all<br><br>
 
+And the angels cry, "Holy"<br>
+All creation cries, "Holy"<br>
+You are lifted high, holy<br>
+Holy forever<br><br>
 
+In the humble town of David<br>
+A Savior born today<br>
+The One who would be called Emmanuel<br>
+Behold the host of Heaven<br>
+With holy roar, proclaim<br>
+The One who would be called Emmanuel<br>
+The Messiah, our God, is with us now<br><br>
 
-### 2. Come Thou Long Expected Jesus<br>
-Come, thou long expected Jesus,<br>
-Born to set thy people free;<br>
-From our fears and sins release us,<br>
-Let us find our rest in thee.<br>
-Israel's strength and consolation,<br>
-Hope of all the earth thou art;<br>
-Dear desire of every nation,<br>
-Joy of every longing heart.<br>
-Born thy people to deliver,<br>
-Born a child and yet a King,<br>
-Born to reign in us forever,<br>
-Now thy gracious kingdom bring.<br>
-By thine own eternal spirit<br>
-Rule in all our hearts alone;<br>
-By thine all sufficient merit,<br>
-Raise us to thy glorious throne.<br>
+And the angels cry, "Holy"<br>
+All creation cries, "Holy"<br>
+You are lifted high, holy<br>
+Holy forever<br><br>
 
-Joy to those who long to see thee<br>
-Dayspring from on high appear<br>
-Come, thou promised Rod of Jesse<br>
-Of thy birth we long to hear<br>
-O’er the hills the angels singing<br>
-News glad tidings of a birth<br>
-Go to Him your praises bringing<br>
-Christ the Lord has come to earth<br>
-@ 1744, Charles Wesley, Public domain<br>
+Hear Your people sing, "Holy"<br>
+To the King of Kings, "Holy"<br>
+You will always be holy<br>
+Holy forever<br><br>
+
+Your name is the highest<br>
+Your name is the greatest<br>
+Your name stands above them all<br>
+All thrones and dominions<br>
+All powers and positions<br>
+Your name stands above them all<br><br>
+
+Jesus, Your name is the highest<br>
+Your name is the greatest<br>
+Your name stands above them all<br>
+All thrones and dominions<br>
+All powers and positions<br>
+Your name stands above them all<br><br>
+
+And the angels cry, "Holy"<br>
+All creation cries, "Holy"<br>
+You are lifted high, holy<br>
+Holy forever<br><br>
+
+Hear Your people sing, "Holy"<br>
+To the King of Kings, "Holy"<br>
+You will always be holy<br>
+Holy forever<br><br>
+
+You will always be holy<br>
+Holy forever<br><br>
+
+CCLI: 7249209; Chris Tomlin 2024<br>
 CCLI 62951 (main copyright licence)<br>
-CCLI 174113 (streaming licence)<br>
-
-
-
+CCLI 174113 (streaming licence)<br><br>
 
 
 ### 3. O Come O Come Emmanuel<br>
@@ -144,13 +182,9 @@ Shall come again with us to dwell<br>
 
 Original words (v. 1-2) translated by John M. Neale (1851). Music, VENI EMMANUEL. Alt. and add. words (v. 3-5) by Steve Cook and Bob Kauflin. © 2014 Sovereign Grace Praise/BMI, Sovereign Grace Worship/ASCAP CCLI #7031873
 CCLI 62951 (main copyright licence)<br>
-CCLI 174113 (streaming licence)<br>
+CCLI 174113 (streaming licence)<br><br>
 
 
-
-
-
-### 4. Never Once <br>
 <br>Standing on this mountaintop
 <br>Looking just how far we've come
 <br>Knowing that for every step
