@@ -24,46 +24,45 @@ Dear God, thank you for letting us know you. Please help us learn from your word
 
 **The Servant of the Lord** 
 
-¹ Listen to me, you islands;<br><br> 
-hear this, you distant nations:<br><br>
+¹ Listen to me, you islands;<br>
+hear this, you distant nations:<br>
 Before I was born the Lord called me;<br><br>
-from my mother’s womb he has spoken my name.<br><br>
-² He made my mouth like a sharpened sword,<br><br>
-in the shadow of his hand he hid me;<br><br>
-he made me into a polished arrow<br><br>
-and concealed me in his quiver.<br><br>
-³ He said to me, “You are my servant,<br><br>
-Israel, in whom I will display my splendor.”<br><br>
-⁴ But I said, “I have labored in vain;<br><br>
-I have spent my strength for nothing at all.<br><br>
-Yet what is due me is in the Lord’s hand,<br><br>
-and my reward is with my God.”<br><br>
+from my mother’s womb he has spoken my name.<br>
+² He made my mouth like a sharpened sword,<br>
+in the shadow of his hand he hid me;<br>
+he made me into a polished arrow<br>
+and concealed me in his quiver.<br>
+³ He said to me, “You are my servant,<br>
+Israel, in whom I will display my splendor.”<br>
+⁴ But I said, “I have labored in vain;<br>
+I have spent my strength for nothing at all.<br>
+Yet what is due me is in the Lord’s hand,<br>
+and my reward is with my God.”<br>
 
-⁵ And now the Lord says—<br><br>
-he who formed me in the womb to be his servant<br><br>
-to bring Jacob back to him<br><br>
-and gather Israel to himself,<br><br>
-for I am honored in the eyes of the Lord<br><br>
-and my God has been my strength—<br><br>
-⁶ he says:<br><br>
-“It is too small a thing for you to be my servant<br><br>
-to restore the tribes of Jacob<br><br>
-and bring back those of Israel I have kept.<br><br>
+⁵ And now the Lord says—<br>
+he who formed me in the womb to be his servant<br>
+to bring Jacob back to him<br>
+and gather Israel to himself,<br>
+for I am honored in the eyes of the Lord<br>
+and my God has been my strength—<br>
+⁶ he says:<br>
+“It is too small a thing for you to be my servant<br>
+to restore the tribes of Jacob<br>
+and bring back those of Israel I have kept.<br>
 I will also make you a light for the Gentiles,<br><br>
-that my salvation may reach to the ends of the earth.”<br><br>
+that my salvation may reach to the ends of the earth.”<br>
 
 
-## Sermon Outline<br><br>
+## Sermon Outline<br>
 
-1) The Lord’s Servant is...<br><br>
-- Called by God (v1) <br><br>
-- To speak his penetrating words (v2-3)<br><br>
-- Despite it feeling futile. (v4)<br><br>
+1) The Lord’s Servant is...<br>
+- Called by God (v1) <br>
+- To speak his penetrating words (v2-3)<br>
+- Despite it feeling futile. (v4)<br>
 
-2) The Servant’s mission is...<br><br> 
-- Through Jacob’s descendants (v6)<br><br>
-- To the Nations.  (v7)<br><br>
-
+2) The Servant’s mission is...<br>
+- Through Jacob’s descendants (v6)<br>
+- To the Nations.  (v7)<br>
 
 
 
