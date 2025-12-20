@@ -4,187 +4,178 @@ order: 1
 ---
 
 ## 9:30am
-1. You Alone
-2. Holy Forever (Christmas)
-3. O Come O Come Emmanuel
-4. Love of the Father
+1. Come Thou Long Expected Jesus
+2. Jerusalem
+3. Man of Sorrow
+4. Arise, Shine (Darkness like a Shroud)
 
 **Scroll below for 9:30am song lyrics**
 
 ## 4:00pm
-1. Ancient of Days
-2. O Holy Night
-3. In Christ Alone
-4. Creation Awaits
+1. Christ Our Hope in Life and Death
+2. Holy Forever
+3. The Power of the Cross
+4. The Servant King
 
 ### 9:30am Song Lyrics<br>
 
-### 1. You Alone<br>
-You alone could light the heavens<br>
-Speak, and form the universe<br>
-Every grain and galaxy<br>
-Abiding by Your word<br><br>
+### 1. Come Thou Long Expected Jesus<br>
+Come, thou long expected Jesus,<br>
+born to set thy people free;<br>
+from our fears and sins release us,<br>
+let us find our rest in thee.<br>
+Israel's strength and consolation,<br>
+hope of all the earth thou art;<br>
+dear desire of every nation,<br>
+joy of every longing heart.<br><br>
+ 
+Born thy people to deliver,<br>
+born a child and yet a King,<br>
+born to reign in us forever,<br>
+now thy gracious kingdom bring.<br>
+By thine own eternal spirit<br>
+rule in all our hearts alone;<br>
+by thine all sufficient merit,<br>
+raise us to thy glorious throne.<br><br>
+ 
+Joy to those who long to see thee<br>
+Dayspring from on high appear<br>
+Come, thou promised Rod of Jesse<br>
+Of thy birth we long to hear<br>
+O’er the hills the angels singing<br>
+News glad tidings of a birth<br>
+Go to Him your praises bringing<br>
+Christ the Lord has come to earth<br><br>
 
-You alone deserve all glory<br>
-In one anthem, joyfully raised<br>
-Every language, every tongue<br>
-Resounding in Your praise<br><br>
-
-Every nation needs to know<br>
-There's salvation in Your name alone<br>
-For Your kingdom we must go<br>
-To all of the earth, all of the earth<br><br>
-
-You alone could ransom sinners<br>
-No one else could pay such price<br>
-Give for love Your perfect life<br>
-In humble sacrifice<br><br>
-
-You alone have conquered darkness<br>
-Death no longer wields its sting<br>
-Raised in power to reign forever<br>
-Jesus, King of Kings<br><br>
-
-Every nation needs to know<br>
-There's salvation in Your name alone<br>
-For Your kingdom we must go<br>
-To all of the earth, all of the earth<br><br>
-
-You alone restore the broken<br>
-Through the weak display Your power<br>
-Strengthen us to persevere<br>
-Equip us for this hour<br>
-Christ alone our ceaseless message<br>
-Grace and peace our overflow<br>
-Surely You are always with us<br>
-Jesus, we will go<br><br>
-
-Every nation needs to know<br>
-There's salvation in Your name alone<br>
-For Your kingdom we must go<br>
-To all of the earth, all of the earth<br><br>
-
-
-Trevor Hodge ‧ 2019<br>
+@1744, Charles Wesley, The English Hymnal, 1906<br>
 CCLI 62951 (main copyright licence)<br>
 CCLI 174113 (streaming licence)<br><br>
 
 
-### 2. Holy Forever (Christmas)<br>
-Held within a manger<br>
-The Son of God arrived<br>
-The One who would be called Emmanuel<br>
-The promise was delivered<br>
-Unto a virgin bride<br>
-The One who would be called Emmanuel<br><br>
+### 2. Jerusalem<br>
+See Him in Jerusalem
+Walking where the crowds are
+Once these streets had sung to Him
+Now they cry for murder
 
-Your name is the highest<br>
-Your name is the greatest<br>
-Your name stands above them all<br>
-All thrones and dominions<br>
-All powers and positions<br>
-Your name stands above them all<br><br>
+Such a frail and lonely Man
+Holding up the heavy cross
+See Him walking in Jerusalem
+On the road to save us
+See Him there upon the hill
+Hear the scorn and laughter
+Silent as a lamb He waits
+Praying to the Father
 
-And the angels cry, "Holy"<br>
-All creation cries, "Holy"<br>
-You are lifted high, holy<br>
-Holy forever<br><br>
+See the King who made the sun
+And the moon and shining stars
+Let the soldiers hold and nail Him down
+So that He could save them
 
-In the humble town of David<br>
-A Savior born today<br>
-The One who would be called Emmanuel<br>
-Behold the host of Heaven<br>
-With holy roar, proclaim<br>
-The One who would be called Emmanuel<br>
-The Messiah, our God, is with us now<br><br>
+See Him there upon the cross
+Now no longer breathing
+Dust that formed the watching crowds
+Takes the blood of Jesus
 
-And the angels cry, "Holy"<br>
-All creation cries, "Holy"<br>
-You are lifted high, holy<br>
-Holy forever<br><br>
+Feel the earth is shaking now
+See the veil is split in two
+And He stood before the wrath of God
+Shielding sinners with His blood
 
-Hear Your people sing, "Holy"<br>
-To the King of Kings, "Holy"<br>
-You will always be holy<br>
-Holy forever<br><br>
+See the empty tomb today
+Death could not contain Him
+Once the Servant of the world
+Now in victory reigning
 
-Your name is the highest<br>
-Your name is the greatest<br>
-Your name stands above them all<br>
-All thrones and dominions<br>
-All powers and positions<br>
-Your name stands above them all<br><br>
+Lift your voices to the One
+Who is seated on the throne
+See Him in the New Jerusalem
+Praise the One who saved us
 
-Jesus, Your name is the highest<br>
-Your name is the greatest<br>
-Your name stands above them all<br>
-All thrones and dominions<br>
-All powers and positions<br>
-Your name stands above them all<br><br>
+Lift your voices to the One
+Who is seated on the throne
+See Him in the New Jerusalem
+Praise the One who saved us
+Praise the One who saved us
 
-And the angels cry, "Holy"<br>
-All creation cries, "Holy"<br>
-You are lifted high, holy<br>
-Holy forever<br><br>
-
-Hear Your people sing, "Holy"<br>
-To the King of Kings, "Holy"<br>
-You will always be holy<br>
-Holy forever<br><br>
-
-You will always be holy<br>
-Holy forever<br><br>
-
-CCLI: 7249209; Chris Tomlin 2024<br>
+CCLI #7003218 © 2014 CityAlight Music<br> 
 CCLI 62951 (main copyright licence)<br>
 CCLI 174113 (streaming licence)<br><br>
 
 
-### 3. O Come O Come Emmanuel<br>
-O come, O come, Emmanuel<br>
-And ransom captive Israel<br>
-That mourns in lonely exile here<br>
-Until the Son of God appear<br>
+### 3. Man of Sorrow<br>
+Man of sorrows, Lamb of God
+By His own betrayed
+The sin of man and wrath of God
+Has been on Jesus laid<br><br>
 
-O come, Thou, Dayspring from on high<br>
-And cause Thy light on us to rise<br>
-Disperse the gloomy clouds of night<br>
-And death’s dark shadow put to flight<br>
+Silent as He stood accused
+Beaten, mocked, and scorned
+Bowing to the Father's will
+He took a crown of thorns<br><br>
 
-Rejoice! Rejoice! Emmanuel<br>
-Shall come to thee, O Israel<br>
+Oh, that rugged cross my salvation
+Where Your love poured out over me
+And now my soul cries out hallelujah
+Praise and honour unto Thee<br><br>
 
-O come, O come, true prophet of the Lord<br>
-And turn the key to heaven’s door<br>
-Be Thou our comforter and guide<br>
-And lead us to the Father’s side<br>
+Sent of heaven God's own Son
+To purchase and redeem
+And reconcile the very ones
+Who nailed Him to that tree<br><br>
 
-Rejoice! Rejoice! Emmanuel<br>
-Shall by His word our darkness dispel<br>
+Oh, that rugged cross my salvation
+Where Your love poured out over me
+Now my soul cries out hallelujah
+Praise and honour unto Thee<br><br>
 
-O come, our great High Priest, and intercede<br>
-Thy sacrifice, our only plea<br>
-The judgment we no longer fear<br>
-Thy precious blood has brought us near<br>
+Now my debt is paid
+It is paid in full
+By the precious blood
+That my Jesus spilled<br><br>
 
-Rejoice! Rejoice! Emmanuel<br>
-Has banished every fear of hell<br>
+Now the curse of sin
+Has no hold on me
+Whom the Son sets free
+Oh, is free indeed<br><br>
 
-O Come, Thou King of nations bring<br>
-An end to all our suffering<br>
-Bid every pain and sorrow cease<br>
-And reign now as our Prince of Peace<br>
+Now my debt is paid
+It is paid in full
+By the precious blood
+That my Jesus spilled<br><br>
 
-Rejoice! Rejoice! Emmanuel<br>
-Shall come again with us to dwell<br>
-Rejoice! Rejoice! Emmanuel<br>
-Shall come again with us to dwell<br>
+Now the curse of sin
+Has no hold on me
+Whom the Son sets free
+Oh, is free indeed<br><br>
 
-Original words (v. 1-2) translated by John M. Neale (1851). Music, VENI EMMANUEL. Alt. and add. words (v. 3-5) by Steve Cook and Bob Kauflin. © 2014 Sovereign Grace Praise/BMI, Sovereign Grace Worship/ASCAP CCLI #7031873<br>
-CCLI 62951 (main copyright licence)<br>
-CCLI 174113 (streaming licence)<br><br>
+Oh, that rugged cross my salvation
+Where Your love poured out over me
+Now my soul cries out hallelujah
+Praise and honour unto Thee<br><br>
 
-### 4. Love of the Father<br>
+See the stone is rolled away
+Behold the empty tomb
+Hallelujah, God be praised
+He's risen from the grave<br><br>
+
+Oh, that rugged cross my salvation
+Where Your love poured out over me
+Now my soul cries out hallelujah
+Praise and honour unto Thee<br><br>
+
+Oh, that rugged cross my salvation
+Where Your love poured out over me
+Now my soul cries out hallelujah
+Praise and honour unto Thee
+Praise and honour unto Thee<br><br>
+
+CCLI Song # 6476063 © 2012 Jadwin Gillies, Hillsong Worship
+CCLI 62951 (main copyright licence)
+CCLI 174113 (streaming licence)
+
+
+### 4. Arise, Shine (Darkness like a Shroud)<br>
 Lift up your voices and lift up your praise<br>
 Join with the heavens declaring the wonders<br>
 Of His faithfulness forever<br><br>
