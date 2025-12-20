@@ -11,11 +11,11 @@ title: Welcome
 
 ## Isaiah - A Light Would Dawn
 
-### The Servant's word 
+### The Servant's Suffering 
 
 
-#### [Hear the words of the prophet Isaiah:] Shake yourself from the dust, says the Lord, arise, O captive Jersualem; loose the bonds from your neck, O captive daughter of Zion.
-#####  Isaiah 52:2
+#### O people in Zion who dwell iat Jersualem; you shall weep no more. The Lord will surely be gracious to you at the sound of your cry; he will cause his majestic voice to be heard.
+#####  Isaiah 30:19a, 30b
 
 ---
 - We are gathering in person! For people who can’t gather in person, you can watch online [here](https://stgeorgeshurstville.org.au/sunday-english-online)
