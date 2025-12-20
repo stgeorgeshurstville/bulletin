@@ -53,50 +53,50 @@ CCLI 174113 (streaming licence)<br><br>
 
 
 ### 2. Jerusalem<br>
-See Him in Jerusalem
-Walking where the crowds are
-Once these streets had sung to Him
-Now they cry for murder
+See Him in Jerusalem<br>
+Walking where the crowds are<br>
+Once these streets had sung to Him<br>
+Now they cry for murder<br><br>
 
-Such a frail and lonely Man
-Holding up the heavy cross
-See Him walking in Jerusalem
-On the road to save us
-See Him there upon the hill
-Hear the scorn and laughter
-Silent as a lamb He waits
-Praying to the Father
+Such a frail and lonely Man<br>
+Holding up the heavy cross<br>
+See Him walking in Jerusalem<br>
+On the road to save us<br>
+See Him there upon the hill<br>
+Hear the scorn and laughter<br>
+Silent as a lamb He waits<br>
+Praying to the Father<br><br>
 
-See the King who made the sun
-And the moon and shining stars
-Let the soldiers hold and nail Him down
-So that He could save them
+See the King who made the sun<br>
+And the moon and shining stars<br>
+Let the soldiers hold and nail Him down<br>
+So that He could save them<br><br>
 
-See Him there upon the cross
-Now no longer breathing
-Dust that formed the watching crowds
-Takes the blood of Jesus
+See Him there upon the cross<br>
+Now no longer breathing<br>
+Dust that formed the watching crowds<br>
+Takes the blood of Jesus<br><br>
 
-Feel the earth is shaking now
-See the veil is split in two
-And He stood before the wrath of God
-Shielding sinners with His blood
+Feel the earth is shaking now<br>
+See the veil is split in two<br>
+And He stood before the wrath of God<br>
+Shielding sinners with His blood<br><br>
 
-See the empty tomb today
-Death could not contain Him
-Once the Servant of the world
-Now in victory reigning
+See the empty tomb today<br>
+Death could not contain Him<br>
+Once the Servant of the world<br>
+Now in victory reigning<br><br>
 
-Lift your voices to the One
-Who is seated on the throne
-See Him in the New Jerusalem
-Praise the One who saved us
+Lift your voices to the One<br>
+Who is seated on the throne<br>
+See Him in the New Jerusalem<br>
+Praise the One who saved us<br><br>
 
-Lift your voices to the One
-Who is seated on the throne
-See Him in the New Jerusalem
-Praise the One who saved us
-Praise the One who saved us
+Lift your voices to the One<br>
+Who is seated on the throne<br>
+See Him in the New Jerusalem<br>
+Praise the One who saved us<br>
+Praise the One who saved us<br><br>
 
 CCLI #7003218 © 2014 CityAlight Music<br> 
 CCLI 62951 (main copyright licence)<br>
