@@ -104,122 +104,125 @@ CCLI 174113 (streaming licence)<br><br>
 
 
 ### 3. Man of Sorrow<br>
-Man of sorrows, Lamb of God
-By His own betrayed
-The sin of man and wrath of God
+Man of sorrows, Lamb of God<br>
+By His own betrayed<br>
+The sin of man and wrath of God<br>
 Has been on Jesus laid<br><br>
 
-Silent as He stood accused
-Beaten, mocked, and scorned
-Bowing to the Father's will
+Silent as He stood accused<br>
+Beaten, mocked, and scorned<br>
+Bowing to the Father's will<br>
 He took a crown of thorns<br><br>
 
-Oh, that rugged cross my salvation
-Where Your love poured out over me
-And now my soul cries out hallelujah
+Oh, that rugged cross my salvation<br>
+Where Your love poured out over me<br>
+And now my soul cries out hallelujah<br>
 Praise and honour unto Thee<br><br>
 
-Sent of heaven God's own Son
-To purchase and redeem
-And reconcile the very ones
+Sent of heaven God's own Son<br>
+To purchase and redeem<br>
+And reconcile the very ones<br>
 Who nailed Him to that tree<br><br>
 
-Oh, that rugged cross my salvation
-Where Your love poured out over me
-Now my soul cries out hallelujah
+Oh, that rugged cross my salvation<br>
+Where Your love poured out over me<br>
+Now my soul cries out hallelujah<br>
 Praise and honour unto Thee<br><br>
 
-Now my debt is paid
-It is paid in full
-By the precious blood
+Now my debt is paid<br>
+It is paid in full<br>
+By the precious blood<br>
 That my Jesus spilled<br><br>
 
-Now the curse of sin
-Has no hold on me
-Whom the Son sets free
+Now the curse of sin<br>
+Has no hold on me<br>
+Whom the Son sets free<br>
 Oh, is free indeed<br><br>
 
-Now my debt is paid
-It is paid in full
-By the precious blood
+Now my debt is paid<br>
+It is paid in full<br>
+By the precious blood<br>
 That my Jesus spilled<br><br>
 
-Now the curse of sin
-Has no hold on me
-Whom the Son sets free
+Now the curse of sin<br>
+Has no hold on me<br>
+Whom the Son sets free<br>
 Oh, is free indeed<br><br>
 
-Oh, that rugged cross my salvation
-Where Your love poured out over me
-Now my soul cries out hallelujah
+Oh, that rugged cross my salvation<br>
+Where Your love poured out over me<br>
+Now my soul cries out hallelujah<br>
 Praise and honour unto Thee<br><br>
 
-See the stone is rolled away
-Behold the empty tomb
-Hallelujah, God be praised
+See the stone is rolled away<br>
+Behold the empty tomb<br>
+Hallelujah, God be praised<br>
 He's risen from the grave<br><br>
 
-Oh, that rugged cross my salvation
-Where Your love poured out over me
-Now my soul cries out hallelujah
+Oh, that rugged cross my salvation<br>
+Where Your love poured out over me<br>
+Now my soul cries out hallelujah<br>
 Praise and honour unto Thee<br><br>
 
-Oh, that rugged cross my salvation
-Where Your love poured out over me
-Now my soul cries out hallelujah
-Praise and honour unto Thee
+Oh, that rugged cross my salvation<br>
+Where Your love poured out over me<br>
+Now my soul cries out hallelujah<br>
+Praise and honour unto Thee<br>
 Praise and honour unto Thee<br><br>
 
-CCLI Song # 6476063 © 2012 Jadwin Gillies, Hillsong Worship
-CCLI 62951 (main copyright licence)
-CCLI 174113 (streaming licence)
+CCLI Song # 6476063 © 2012 Jadwin Gillies, Hillsong Worship<br>
+CCLI 62951 (main copyright licence)<br>
+CCLI 174113 (streaming licence)<br><br>
 
 
 ### 4. Arise, Shine (Darkness like a Shroud)<br>
-Lift up your voices and lift up your praise<br>
-Join with the heavens declaring the wonders<br>
-Of His faithfulness forever<br><br>
+Darkness like a shroud covers the earth;<br>
+Evil like a cloud covers the people.<br>
+But the Lord will rise upon you,<br>
+And His glory will appear on you-<br>
+Nations will come to your light.<br><br>
 
-Sing of the victory, the hope of the world<br>
-The Saviour has risen, the Spirit has come to<br>
-Bring us into love forever<br><br>
+Arise, shine, your light has come,<br>
+The glory of the Lord has risen on you!<br>
+Arise, shine, your light has come,<br>
+Jesus the Light of the world has come.<br><br>
 
-Oh, we are the people of God<br>
-With the freedom of hope in our hearts<br>
-How great is the love of the Father<br>
+Children of the light, be clean and pure.<br>
+Rise, you sleepers, Christ will shine on you.<br>
+Take the Spirit’s flashing two-edged sword<br>
+And with faith declare God’s mighty word;<br>
+Stand up and in His strength be strong.<br><br>
 
-Lifted from darkness and into the light<br>
-The sons and the daughters are loved at a price<br>
-Our God has made us His forever<br><br>
+Arise, shine, your light has come,<br>
+The glory of the Lord has risen on you!<br>
+Arise, shine, your light has come,<br>
+Jesus the Light of the world has come.<br><br>
 
-Oh, we are the people of God<br>
-With the freedom of hope in our hearts<br>
-How great is the love of the Father<br><br>
+Here among us now, Christ the light<br>
+Kindles brighter flames in our trembling hearts.<br>
+Living Word, our l, come guide our feet<br>
+As we walk as one in light and peace,<br>
+Till justice and truth shine like the sun.<br><br>
 
-Oh, we are the people of God<br>
-With the freedom of hope in our hearts<br>
-How great is the love of the Father<br><br>
+Arise, shine, your light has come,<br>
+The glory of the Lord has risen on you!<br>
+Arise, shine, your light has come,<br>
+Jesus the Light of the world has come.<br><br>
 
-This is the song of the redeemed<br>
-The ransomed and the free<br>
-Given life at such a price<br>
-This is love, this is love<br>
-And when the Father calls us home<br>
-And we see Him on the throne<br>
-Hear the voices sing as one<br>
-This is love, this is love<br><br>
+Like a city bright so let us blaze;<br>
+Lights in every street turning night to day.<br>
+And the darkness shall not overcome<br>
+Till the fulness of Christ’s kingdom comes,<br>
+Dawning to God’s eternal day.<br><br>
 
-Oh, we are the people of God<br>
-With the freedom of hope in our hearts<br>
-How great is the love of the Father<br><br>
-
-Oh, we are the people of God<br>
-With the freedom of hope in our hearts<br>
-How great is the love of the Father<br><br>
+Arise, shine, your light has come,<br>
+The glory of the Lord has risen on you!<br>
+Arise, shine, your light has come,<br>
+Jesus the Light of the world<br>
+Jesus the Light of the world<br>
+Jesus the Light of the world has come.<br><br>
 
 
-CCLI: 6635756; James Ferguson & Rich Thompson; CityAlight Music 2015<br>
+© 1985, Graham Kendrick, Thankyou Music<br>
 CCLI 62951 (main copyright licence)<br>
-CCLI 174113 (streaming licence)<br>
-
-
+CCLI 174113 (streaming licence)
