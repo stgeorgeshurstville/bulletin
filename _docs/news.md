@@ -7,23 +7,18 @@ order: 5
 
 | Date | Event | Time |
 | ---- | ---- | ---- |
-| 20 - 25 December | Christmas Services | Various times, see below |
+| 28th December - 4th January | All Gen Services | Various times |
 
 ## General
-## Christmas Mission Season 2025: Sharing the Good News
-### St George's Hurstville Anglican Church Christmas Services
-Join us this December as we celebrate the joyous arrival of our Saviour, Jesus Christ! Come and hear the wonderful news that Jesus, who was from the beginning, came into our world so that we can live in his light.
-We have four main Christmas services planned across our different language groups. Please choose the service that suits you best and bring along your friends, family, and neighbours to celebrate with us.
 
-Our Christmas Service Schedule
-- **Nepali Service:** Sunday, 20th December at 5:00 PM
-- **Mandarin Service (Christmas Eve):** Thursday, 24th December at 7:30 PM
-- **English Service (Christmas Day):** Friday, 25th December at 9:30 AM
-- **Cantonese Service (Christmas Day):** Friday, 25th December at 11:00 AM
-We look forward to celebrating with you!
+### An Invitation to Invest: January Children’s Ministry
+For this Sunday and next (January 4th), we will gather as one body for our "All Gen" services. These mornings are a beautiful opportunity to worship and learn together as a complete church family, recognizing that we are one body of believers regardless of age. Following these two weeks, our children will transition into their New Gen program for the remainder of January (11th, 18th, and 25th of January) . This transition presents a vital opportunity for those who are not currently involved in children’s ministry to step in and serve. 
 
+### A Call to Disciple
+One of our core values as a church is a commitment to teaching the next generation what it means to follow Jesus. We are called not just to be disciples, but to make disciples. This three-week period is a perfect time to live out that calling and gain insight into this life-changing ministry.
 
-[The link to the form can be found here](https://docs.google.com/forms/d/e/1FAIpQLSeljZR3t7boD-xQVUP9U-tOTjnZkxkEjBjPX8Qf2yyCJ54_pA/viewform)
+### The Need
+**To make this program viable for our families, we are currently looking for 6  more helpers.** If you feel a sense of conviction to invest in our children and help facilitate these sessions, we encourage you to act on that prompting. Please speak with your congregational pastor today to see how you can help.
 
 
 ### Growing in Our Welcoming:
