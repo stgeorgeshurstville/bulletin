@@ -20,78 +20,71 @@ order: 2
 ### Prayer
 Dear God, thank you for letting us know you. Please help us learn from your word. Help us to serve and praise you. **Amen!**
 
-### Isaiah 52:13 - 53:12 (NIV)
 
-**The Suffering and Glory of the Servant**
 
-¹³ See, my servant will act wisely ;
-he will be raised and lifted up and highly exalted.
-¹⁴ Just as there were many who were appalled at him —
-his appearance was so disfigured beyond that of any human being
-and his form marred beyond human likeness—
-¹⁵ so he will sprinkle many nations, 
-and kings will shut their mouths because of him.
-For what they were not told, they will see,
-and what they have not heard, they will understand.
+### Isaiah 55 (NIV)
 
-¹ Who has believed our message
-and to whom has the arm of the Lord been revealed?
-² He grew up before him like a tender shoot,
-and like a root out of dry ground.
-He had no beauty or majesty to attract us to him,
-nothing in his appearance that we should desire him.
-³ He was despised and rejected by mankind,
-a man of suffering, and familiar with pain.
-Like one from whom people hide their faces
-he was despised, and we held him in low esteem.
-⁴ Surely he took up our pain
-and bore our suffering,
-yet we considered him punished by God,
-stricken by him, and afflicted.
-⁵ But he was pierced for our transgressions,
-he was crushed for our iniquities;
-the punishment that brought us peace was on him,
-and by his wounds we are healed.
-⁶ We all, like sheep, have gone astray,
-each of us has turned to our own way;
-and the Lord has laid on him
-the iniquity of us all.
-⁷ He was oppressed and afflicted,
-yet he did not open his mouth;
-he was led like a lamb to the slaughter,
-and as a sheep before its shearers is silent,
-so he did not open his mouth.
-⁸ By oppression and judgment he was taken away.
-Yet who of his generation protested?
-For he was cut off from the land of the living;
-for the transgression of my people he was punished. 
-⁹ He was assigned a grave with the wicked,
-and with the rich in his death,
-though he had done no violence,
-nor was any deceit in his mouth.
-¹⁰ Yet it was the Lord’s will to crush him and cause him to suffer,
-and though the Lord makes his life an offering for sin,
-he will see his offspring and prolong his days,
-and the will of the Lord will prosper in his hand.
-¹¹ After he has suffered,
-he will see the light of life and be satisfied ;
-by his knowledge my righteous servant will justify many,
-and he will bear their iniquities.
-¹² Therefore I will give him a portion among the great, 
-and he will divide the spoils with the strong, 
-because he poured out his life unto death,
-and was numbered with the transgressors.
-For he bore the sin of many,
-and made intercession for the transgressors.
+“Come, all you who are thirsty,
+come to the waters;
+and you who have no money,
+come, buy and eat!
+Come, buy wine and milk
+without money and without cost.
+² Why spend money on what is not bread,
+and your labor on what does not satisfy?
+Listen, listen to me, and eat what is good,
+and you will delight in the richest of fare.
+³ Give ear and come to me;
+listen, that you may live.
+I will make an everlasting covenant with you,
+my faithful love promised to David.
+⁴ See, I have made him a witness to the peoples,
+a ruler and commander of the peoples.
+⁵ Surely you will summon nations you know not,
+and nations you do not know will come running to you,
+because of the Lord your God,
+the Holy One of Israel,
+for he has endowed you with splendor.”
+
+⁶ Seek the Lord while he may be found;
+call on him while he is near.
+⁷ Let the wicked forsake their ways
+and the unrighteous their thoughts.
+Let them turn to the Lord, and he will have mercy on them,
+and to our God, for he will freely pardon.
+
+⁸ “For my thoughts are not your thoughts,
+neither are your ways my ways,”
+declares the Lord.
+⁹ “As the heavens are higher than the earth,
+so are my ways higher than your ways
+and my thoughts than your thoughts.
+¹⁰ As the rain and the snow
+come down from heaven,
+and do not return to it
+without watering the earth
+and making it bud and flourish,
+so that it yields seed for the sower and bread for the eater,
+¹¹ so is my word that goes out from my mouth:
+It will not return to me empty,
+but will accomplish what I desire
+and achieve the purpose for which I sent it.
+¹² You will go out in joy
+and be led forth in peace;
+the mountains and hills
+will burst into song before you,
+and all the trees of the field
+will clap their hands.
+¹³ Instead of the thornbush will grow the juniper,
+and instead of briers the myrtle will grow.
+This will be for the Lord’s renown,
+for an everlasting sign,
+that will endure forever.”
+
+
 
 
 ## Sermon Outline<br>
-
-1. Christmas 2025
-2. God speaks
-3. The Saved speaks
-4. The Servant and our Christmas
-
 
 
 
