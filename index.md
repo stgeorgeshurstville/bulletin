@@ -14,8 +14,8 @@ title: Welcome
 ### The Servant's Suffering 
 
 
-#### O people in Zion who dwell iat Jersualem; you shall weep no more. The Lord will surely be gracious to you at the sound of your cry; he will cause his majestic voice to be heard.
-#####  Isaiah 30:19a, 30b
+#### The shepherds went in haste and found Mary and Joseph, and the baby lying in a manger.
+#####  Luke 2:16
 
 ---
 - We are gathering in person! For people who can’t gather in person, you can watch online [here](https://stgeorgeshurstville.org.au/sunday-english-online)
