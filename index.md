@@ -11,7 +11,7 @@ title: Welcome
 
 ## Isaiah - A Light Would Dawn
 
-### The Servant's Suffering 
+### 
 
 
 #### The shepherds went in haste and found Mary and Joseph, and the baby lying in a manger.
