@@ -16,7 +16,7 @@ order: 1
 1. How Great Thou Art
 2. Crown Him with Many Crowns
 3. Amazing grace
-4. ----
+4. N/A
 
 
 ### 9:30am Song Lyrics<br>
