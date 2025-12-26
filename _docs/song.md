@@ -4,225 +4,161 @@ order: 1
 ---
 
 ## 9:30am
-1. Come Thou Long Expected Jesus
-2. Jerusalem
-3. Man of Sorrow
-4. Arise, Shine (Darkness like a Shroud)
+1. Away in a Manger
+2. All Heaven Declares
+3. O Come, All You Unfaithful
+4. Look to the Skies (Worship the King)
+
 
 **Scroll below for 9:30am song lyrics**
 
 ## 4:00pm
-1. Christ Our Hope in Life and Death
-2. Holy Forever
-3. The Power of the Cross
-4. The Servant King
+1. How Great Thou Art
+2. Crown Him with Many Crowns
+3. Amazing grace
+4. ----
+
 
 ### 9:30am Song Lyrics<br>
 
-### 1. Come Thou Long Expected Jesus<br>
-Come, thou long expected Jesus,<br>
-born to set thy people free;<br>
-from our fears and sins release us,<br>
-let us find our rest in thee.<br>
-Israel's strength and consolation,<br>
-hope of all the earth thou art;<br>
-dear desire of every nation,<br>
-joy of every longing heart.<br><br>
+### 1. Away in a Manger<br>
+Away in a manger, no crib for a bed,<br>
+the little Lord Jesus laid down His sweet head;<br>
+the stars in the heavens looked down where He lay,<br>
+the little Lord Jesus asleep on the hay.<br>
+The cattle are lowing, the Baby awakes,<br>
+but little Lord Jesus, no crying He makes.<br>
+I love Thee, Lord Jesus, look down from the sky<br>
+and stay by my side until morning is nigh.<br>
+Be near me, Lord Jesus; I ask Thee to stay<br>
+close by me forever, and love me, I pray.<br>
+Bless all the dear children in Thy tender care,<br>
+and fit us for heaven, to live with Thee there.<br>
+
+© 1980 by Rosalee Elser, William J. Kirkpatrick. Public domain<br>
+CCLI 62951 (main copyright licence)<br>
+CCLI 174113 (streaming licence)<br><br>
+
+
+### 2. All Heaven Declares<br>
+All heaven declares the glory of the risen Lord<br>
+Who can compare with the beauty of the Lord?<br>
+Forever He will be the Lamb upon the throne<br>
+I gladly bow my knee and worship Him alone<br>
+
+I will proclaim the glory of the risen Lord<br>
+Who once was slain to reconcile man to God<br>
+Forever You will be the Lamb upon the throne<br>
+I gladly bow my knee and worship You alone<br>
  
-Born thy people to deliver,<br>
-born a child and yet a King,<br>
-born to reign in us forever,<br>
-now thy gracious kingdom bring.<br>
-By thine own eternal spirit<br>
-rule in all our hearts alone;<br>
-by thine all sufficient merit,<br>
-raise us to thy glorious throne.<br><br>
+I will proclaim the glory of the risen Lord<br>
+Who once was slain to reconcile man to God<br>
+Forever You will be the Lamb upon the throne<br>
+I gladly bow my knee and worship You alone<br>
  
-Joy to those who long to see thee<br>
-Dayspring from on high appear<br>
-Come, thou promised Rod of Jesse<br>
-Of thy birth we long to hear<br>
-O’er the hills the angels singing<br>
-News glad tidings of a birth<br>
-Go to Him your praises bringing<br>
-Christ the Lord has come to earth<br><br>
+Forever You will be<br>
+The Lamb upon the throne<br>
+I gladly bow my knee<br>
+And worship You alone<br>
+ 
+Forever You will be<br>
+The Lamb upon the throne<br>
+I gladly bow my knee<br>
+And worship You alone<br>
 
-@1744, Charles Wesley, The English Hymnal, 1906<br>
+© copyright 1987 Kingsway’s Thankyou Music | Noel and Tricia Richards<br>
 CCLI 62951 (main copyright licence)<br>
 CCLI 174113 (streaming licence)<br><br>
 
 
-### 2. Jerusalem<br>
-See Him in Jerusalem<br>
-Walking where the crowds are<br>
-Once these streets had sung to Him<br>
-Now they cry for murder<br><br>
+### 3. O Come, All You Unfaithful<br>
+O come, all you unfaithful<br>
+Come, weak and unstable<br>
+Come, know you are not alone<br>
 
-Such a frail and lonely Man<br>
-Holding up the heavy cross<br>
-See Him walking in Jerusalem<br>
-On the road to save us<br>
-See Him there upon the hill<br>
-Hear the scorn and laughter<br>
-Silent as a lamb He waits<br>
-Praying to the Father<br><br>
+O come, barren and waiting ones<br>
+Weary of praying, come<br>
+See what your God has done<br>
+ 
+Christ is born, Christ is born<br>
+Christ is born for you<br>
 
-See the King who made the sun<br>
-And the moon and shining stars<br>
-Let the soldiers hold and nail Him down<br>
-So that He could save them<br><br>
+O come, bitter and broken<br>
+Come with fears unspoken<br>
+Come, taste of His perfect love<br>
 
-See Him there upon the cross<br>
-Now no longer breathing<br>
-Dust that formed the watching crowds<br>
-Takes the blood of Jesus<br><br>
+O come, guilty and hiding ones<br>
+There is no need to run<br>
+See what your God has done<br>
 
-Feel the earth is shaking now<br>
-See the veil is split in two<br>
-And He stood before the wrath of God<br>
-Shielding sinners with His blood<br><br>
+Christ is born, Christ is born<br>
+Christ is born for you<br>
+Christ is born, Christ is born<br>
+Christ is born for you<br>
 
-See the empty tomb today<br>
-Death could not contain Him<br>
-Once the Servant of the world<br>
-Now in victory reigning<br><br>
+He’s the Lamb who was given<br>
+Slain for our pardon<br>
+His promise is peace<br>
+For those who believe<br>
 
-Lift your voices to the One<br>
-Who is seated on the throne<br>
-See Him in the New Jerusalem<br>
-Praise the One who saved us<br><br>
+He’s the Lamb who was given<br>
+Slain for our pardon<br>
+His promise is peace<br>
+For those who believe<br>
 
-Lift your voices to the One<br>
-Who is seated on the throne<br>
-See Him in the New Jerusalem<br>
-Praise the One who saved us<br>
-Praise the One who saved us<br><br>
+So come, though you have nothing<br>
+Come, He is the offering<br>
+Come, see what your God has done<br>
 
-CCLI #7003218 © 2014 CityAlight Music<br> 
+Christ is born, Christ is born<br>
+Christ is born for you<br>
+Christ is born, Christ is born<br>
+Christ is born for you<br>
+
+CLI Song # 7160115. Bob Kauflin | Lisa Clow | © 2020 Sovereign Grace Praise<br> 
 CCLI 62951 (main copyright licence)<br>
 CCLI 174113 (streaming licence)<br><br>
 
 
-### 3. Man of Sorrow<br>
-Man of sorrows, Lamb of God<br>
-By His own betrayed<br>
-The sin of man and wrath of God<br>
-Has been on Jesus laid<br><br>
+### 4. Look to the Skies (Worship the King)<br>
+Look to the skies, there’s a celebration<br>
+Lift up your heads, join the angel song<br>
+For our Creator becomes our Saviour<br>
+As a baby born!<br>
+Angels, amazed, bow in adoration<br>
+‘Glory to God in the highest heaven!’<br>
+Send the good news out to every nation<br>
+For our hope has come<br>
+Worship the King – come, see His brightness<br>
+Worship the King, His wonders tell<br>
+Jesus our King is born today<br>
+We welcome You, Emmanuel<br>
+Wonderful Counsellor, Mighty God<br>
+Father for ever, the Prince of Peace<br>
+There’ll be no end to Your rule of justice<br>
+For it shall increase<br>
+Light of Your face, come to pierce our darkness<br>
+Joy of Your heart come to chase our gloom<br>
+Star of the morning, a new day dawning<br>
+Make our hearts Your home<br>
+Worship the King – come, see His brightness<br>
+Worship the King, His wonders tell<br>
+Jesus our King is born today<br>
+We welcome You, Emmanuel<br>
+Quietly He came as a helpless baby<br>
+One day in power He will come again<br>
+Swift through the skies He will burst with splendour<br>
+On the earth to reign<br>
+Jesus, I bow at Your manger lowly<br>
+Now in my life let Your will be done<br>
+Live in my flesh by Your Spirit holy<br>
+Till Your kingdom comes<br>
+Worship the King – come, see His brightness<br>
+Worship the King, His wonders tell<br>
+Jesus our King is born today<br>
+We welcome You, Emmanuel<br>
+Emmanuel<br>
 
-Silent as He stood accused<br>
-Beaten, mocked, and scorned<br>
-Bowing to the Father's will<br>
-He took a crown of thorns<br><br>
-
-Oh, that rugged cross my salvation<br>
-Where Your love poured out over me<br>
-And now my soul cries out hallelujah<br>
-Praise and honour unto Thee<br><br>
-
-Sent of heaven God's own Son<br>
-To purchase and redeem<br>
-And reconcile the very ones<br>
-Who nailed Him to that tree<br><br>
-
-Oh, that rugged cross my salvation<br>
-Where Your love poured out over me<br>
-Now my soul cries out hallelujah<br>
-Praise and honour unto Thee<br><br>
-
-Now my debt is paid<br>
-It is paid in full<br>
-By the precious blood<br>
-That my Jesus spilled<br><br>
-
-Now the curse of sin<br>
-Has no hold on me<br>
-Whom the Son sets free<br>
-Oh, is free indeed<br><br>
-
-Now my debt is paid<br>
-It is paid in full<br>
-By the precious blood<br>
-That my Jesus spilled<br><br>
-
-Now the curse of sin<br>
-Has no hold on me<br>
-Whom the Son sets free<br>
-Oh, is free indeed<br><br>
-
-Oh, that rugged cross my salvation<br>
-Where Your love poured out over me<br>
-Now my soul cries out hallelujah<br>
-Praise and honour unto Thee<br><br>
-
-See the stone is rolled away<br>
-Behold the empty tomb<br>
-Hallelujah, God be praised<br>
-He's risen from the grave<br><br>
-
-Oh, that rugged cross my salvation<br>
-Where Your love poured out over me<br>
-Now my soul cries out hallelujah<br>
-Praise and honour unto Thee<br><br>
-
-Oh, that rugged cross my salvation<br>
-Where Your love poured out over me<br>
-Now my soul cries out hallelujah<br>
-Praise and honour unto Thee<br>
-Praise and honour unto Thee<br><br>
-
-CCLI Song # 6476063 © 2012 Jadwin Gillies, Hillsong Worship<br>
+© 1983, Graham Kendrick. Thankyou Music<br>
 CCLI 62951 (main copyright licence)<br>
 CCLI 174113 (streaming licence)<br><br>
-
-
-### 4. Arise, Shine (Darkness like a Shroud)<br>
-Darkness like a shroud covers the earth;<br>
-Evil like a cloud covers the people.<br>
-But the Lord will rise upon you,<br>
-And His glory will appear on you-<br>
-Nations will come to your light.<br><br>
-
-Arise, shine, your light has come,<br>
-The glory of the Lord has risen on you!<br>
-Arise, shine, your light has come,<br>
-Jesus the Light of the world has come.<br><br>
-
-Children of the light, be clean and pure.<br>
-Rise, you sleepers, Christ will shine on you.<br>
-Take the Spirit’s flashing two-edged sword<br>
-And with faith declare God’s mighty word;<br>
-Stand up and in His strength be strong.<br><br>
-
-Arise, shine, your light has come,<br>
-The glory of the Lord has risen on you!<br>
-Arise, shine, your light has come,<br>
-Jesus the Light of the world has come.<br><br>
-
-Here among us now, Christ the light<br>
-Kindles brighter flames in our trembling hearts.<br>
-Living Word, our l, come guide our feet<br>
-As we walk as one in light and peace,<br>
-Till justice and truth shine like the sun.<br><br>
-
-Arise, shine, your light has come,<br>
-The glory of the Lord has risen on you!<br>
-Arise, shine, your light has come,<br>
-Jesus the Light of the world has come.<br><br>
-
-Like a city bright so let us blaze;<br>
-Lights in every street turning night to day.<br>
-And the darkness shall not overcome<br>
-Till the fulness of Christ’s kingdom comes,<br>
-Dawning to God’s eternal day.<br><br>
-
-Arise, shine, your light has come,<br>
-The glory of the Lord has risen on you!<br>
-Arise, shine, your light has come,<br>
-Jesus the Light of the world<br>
-Jesus the Light of the world<br>
-Jesus the Light of the world has come.<br><br>
-
-
-© 1985, Graham Kendrick, Thankyou Music<br>
-CCLI 62951 (main copyright licence)<br>
-CCLI 174113 (streaming licence)
