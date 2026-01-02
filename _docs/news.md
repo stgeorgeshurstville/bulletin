@@ -11,14 +11,16 @@ order: 5
 
 ## General
 
-### An Invitation to Invest: January Children’s Ministry
-For this Sunday and next (January 4th), we will gather as one body for our "All Gen" services. These mornings are a beautiful opportunity to worship and learn together as a complete church family, recognizing that we are one body of believers regardless of age. Following these two weeks, our children will transition into their New Gen program for the remainder of January (11th, 18th, and 25th of January) . This transition presents a vital opportunity for those who are not currently involved in children’s ministry to step in and serve. 
+### Our Children’s programs in January. 
 
-### A Call to Disciple
-One of our core values as a church is a commitment to teaching the next generation what it means to follow Jesus. We are called not just to be disciples, but to make disciples. This three-week period is a perfect time to live out that calling and gain insight into this life-changing ministry.
+🎉 New Gen is Back! From next week, our primary-aged children will return to their age-appropriate programs to learn more about God. A huge thank you to the volunteers who have committed to serving over the next few weeks!
 
-### The Need
-**To make this program viable for our families, we are currently looking for 6  more helpers.** If you feel a sense of conviction to invest in our children and help facilitate these sessions, we encourage you to act on that prompting. Please speak with your congregational pastor today to see how you can help.
+🍼 Crèche Summer Break Please note that the Crèche will be on holiday over the summer. Children aged 0–5 are warmly invited to stay in the service with us during this time.
+
+### Staff Update: Brian on Leave
+Please note that Brian will be away on leave from January 8th – 25th. We wish him a restful time off!
+If you require any assistance or have urgent matters during this period, please don't hesitate to reach out to Ben or Sunny, who will be happy to help.
+
 
 
 ### Growing in Our Welcoming:
