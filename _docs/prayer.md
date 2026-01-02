@@ -15,7 +15,7 @@ Almighty Father, whose blessed Son was revealed so that he might destroy the wor
 | **Global and Nation** | *Please reflect on your own prayer* |
 | **Mission Partners** | *Please reflect on your own prayer* |
 | **Church Ministries** |**EAL/D** <br><br>Heavenly Father, we thank You for the gift of language and the way it allows us to welcome the stranger and build a Christ-centered community.<br><br> -*Thanksgiving for Teachers:* We give You great thanks for our dedicated EAL/D teachers who serve week in and week out. We specifically thank You for Amy, Tom, Catherine, and Chi-Wa. Bless them for their faithfulness, patience, and the love they show to their students every term.<br><br>-*For Future Planning:* As the team gathers to think through the year ahead, grant them clarity and unity. Help them as they plan their curriculum and activities to be wise stewards of their time and resources.<br><br>-*For the Mission to Students:* Above all, Lord, we ask that You would use this ministry to make the name of Jesus known. May every student who enters the classroom understand this truth. Open their hearts to the Gospel as they learn, and may our teachers be bold and gentle witnesses of Your grace to them in Jesus. **Amen**<br><br>**Redevelopment**<br><br>The HAFF funding application will be open around Feb/March 2026. Please pray for the prepration on the application. Please pray for our church to be ready by being on the mission that God has called us to.|
-| **Groups in Church** | *People with disabilities*<br><br> *Please reflect on your own prayer*|
+| **Groups in Church** | **People with disabilities**<br><br> *Please reflect on your own prayer*|
 | **Special Items and Events** |*N/A*|
 
 
