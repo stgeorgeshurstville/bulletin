@@ -14,8 +14,8 @@ title: Welcome
 ### 
 
 
-#### The shepherds went in haste and found Mary and Joseph, and the baby lying in a manger.
-#####  Luke 2:16
+#### The people that walked in darkness have seen a great light. For to us a child is born, to us a son is given; and his name will be called 'Everlasting Father, Prince of Peace.'
+#####  Isaiah 9:2a
 
 ---
 - We are gathering in person! For people who can’t gather in person, you can watch online [here](https://stgeorgeshurstville.org.au/sunday-english-online)
