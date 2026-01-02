@@ -5,18 +5,18 @@ order: 1
 
 ## 9:30am
 1. Hark the Herald Angels Sing
-2. All Heaven Declares
-3. O Come, All You Unfaithful
-4. Look to the Skies (Worship the King)
+2.Lord I Lift Your Name On High
+3. Man of Sorrows
+4. Highest Place
 
 
 **Scroll below for 9:30am song lyrics**
 
 ## 4:00pm
-1. How Great Thou Art
-2. Crown Him with Many Crowns
-3. Amazing grace
-4. N/A
+1. Rise with the Sun
+2. My God is So Big
+3.Rise with the Sun
+4. Let your Kingdom Come
 
 
 ### 9:30am Song Lyrics<br>
@@ -62,125 +62,155 @@ CCLI 174113 (streaming licence)
 
 
 
-### 2. All Heaven Declares<br>
-All heaven declares the glory of the risen Lord<br>
-Who can compare with the beauty of the Lord?<br>
-Forever He will be the Lamb upon the throne<br>
-I gladly bow my knee and worship Him alone<br>
+### 2. Lord I Lift Your Name On High<br>
+Lord, I lift Your name on high  
+Lord, I love to sing Your praises  
+I'm so glad You're in my life  
+I'm so glad You came to save us  
 
-I will proclaim the glory of the risen Lord<br>
-Who once was slain to reconcile man to God<br>
-Forever You will be the Lamb upon the throne<br>
-I gladly bow my knee and worship You alone<br>
- 
-I will proclaim the glory of the risen Lord<br>
-Who once was slain to reconcile man to God<br>
-Forever You will be the Lamb upon the throne<br>
-I gladly bow my knee and worship You alone<br>
- 
-Forever You will be<br>
-The Lamb upon the throne<br>
-I gladly bow my knee<br>
-And worship You alone<br>
- 
-Forever You will be<br>
-The Lamb upon the throne<br>
-I gladly bow my knee<br>
-And worship You alone<br>
+You came from heaven to earth  
+To show the way  
+From the earth to the cross  
+My debt to pay  
+From the cross to the grave  
+From the grave to the sky  
+Lord, I lift Your name on high  
 
-© copyright 1987 Kingsway’s Thankyou Music | Noel and Tricia Richards<br>
-CCLI 62951 (main copyright licence)<br>
-CCLI 174113 (streaming licence)<br><br>
+Lord, I lift Your name on high  
+Lord, I love to sing Your praises  
+I'm so glad You're in my life    
+I'm so glad You came to save us  
 
+You came from heaven to earth  
+To show the way  
+From the earth to the cross  
+My debt to pay  
+From the cross to the grave  
+From the grave to the sky  
+Lord, I lift Your name on high  
 
-### 3. O Come, All You Unfaithful<br>
-O come, all you unfaithful<br>
-Come, weak and unstable<br>
-Come, know you are not alone<br>
+You came from heaven to earth  
+To show the way  
+From the earth to the cross  
+My debt to pay  
+From the cross to the grave  
+From the grave to the sky  
+Lord, I lift Your name on high  
 
-O come, barren and waiting ones<br>
-Weary of praying, come<br>
-See what your God has done<br>
- 
-Christ is born, Christ is born<br>
-Christ is born for you<br>
+Lord, I lift Your name on high  
 
-O come, bitter and broken<br>
-Come with fears unspoken<br>
-Come, taste of His perfect love<br>
-
-O come, guilty and hiding ones<br>
-There is no need to run<br>
-See what your God has done<br>
-
-Christ is born, Christ is born<br>
-Christ is born for you<br>
-Christ is born, Christ is born<br>
-Christ is born for you<br>
-
-He’s the Lamb who was given<br>
-Slain for our pardon<br>
-His promise is peace<br>
-For those who believe<br>
-
-He’s the Lamb who was given<br>
-Slain for our pardon<br>
-His promise is peace<br>
-For those who believe<br>
-
-So come, though you have nothing<br>
-Come, He is the offering<br>
-Come, see what your God has done<br>
-
-Christ is born, Christ is born<br>
-Christ is born for you<br>
-Christ is born, Christ is born<br>
-Christ is born for you<br>
-
-CLI Song # 7160115. Bob Kauflin | Lisa Clow | © 2020 Sovereign Grace Praise<br> 
-CCLI 62951 (main copyright licence)<br>
-CCLI 174113 (streaming licence)<br><br>
+Copyright © 1989 Maranatha Praise  
+CCLI 62951 (main copyright licence)  
+CCLI 174113 (streaming licence)  
 
 
-### 4. Look to the Skies (Worship the King)<br>
-Look to the skies, there’s a celebration<br>
-Lift up your heads, join the angel song<br>
-For our Creator becomes our Saviour<br>
-As a baby born!<br>
-Angels, amazed, bow in adoration<br>
-‘Glory to God in the highest heaven!’<br>
-Send the good news out to every nation<br>
-For our hope has come<br>
-Worship the King – come, see His brightness<br>
-Worship the King, His wonders tell<br>
-Jesus our King is born today<br>
-We welcome You, Emmanuel<br>
-Wonderful Counsellor, Mighty God<br>
-Father for ever, the Prince of Peace<br>
-There’ll be no end to Your rule of justice<br>
-For it shall increase<br>
-Light of Your face, come to pierce our darkness<br>
-Joy of Your heart come to chase our gloom<br>
-Star of the morning, a new day dawning<br>
-Make our hearts Your home<br>
-Worship the King – come, see His brightness<br>
-Worship the King, His wonders tell<br>
-Jesus our King is born today<br>
-We welcome You, Emmanuel<br>
-Quietly He came as a helpless baby<br>
-One day in power He will come again<br>
-Swift through the skies He will burst with splendour<br>
-On the earth to reign<br>
-Jesus, I bow at Your manger lowly<br>
-Now in my life let Your will be done<br>
-Live in my flesh by Your Spirit holy<br>
-Till Your kingdom comes<br>
-Worship the King – come, see His brightness<br>
-Worship the King, His wonders tell<br>
-Jesus our King is born today<br>
-We welcome You, Emmanuel<br>
-Emmanuel<br>
 
-© 1983, Graham Kendrick. Thankyou Music<br>
-CCLI 62951 (main copyright licence)<br>
-CCLI 174113 (streaming licence)<br><br>
+### 3. Man of Sorrows<br>
+Man of Sorrows, Lamb of God  
+By His own betrayed  
+The sin of men and wrath of God  
+Has been on Jesus laid  
+
+Silent as He stood accused  
+Beaten, mocked, and scorned  
+Bowing to the Father's will  
+He took a crown of thorns  
+
+And oh that rugged cross, my salvation  
+Where Your love poured out over me  
+Now my soul cries out "Hallelujah!"  
+Praise and honour unto Thee  
+
+Sent of heaven, God's own Son  
+To purchase and redeem  
+And reconcile the very ones  
+Who nailed Him to that tree  
+
+Oh that rugged cross, my salvation  
+Where Your love poured out over me  
+Now my soul cries out "Hallelujah!"  
+Praise and honour unto Thee  
+
+Now my debt is paid, it is paid in full  
+By the precious blood that my Jesus spilled  
+Now the curse of sin has no hold on me  
+Whom the Son sets free, oh is free indeed!  
+Now my debt is paid, it is paid in full  
+By the precious blood that my Jesus spilled  
+Now the curse of sin has no hold on me  
+Whom the Son sets free, oh is free indeed!  
+
+
+Oh that rugged cross, my salvation  
+Where Your love poured out over me  
+Now my soul cries out "Hallelujah!"  
+Praise and honour unto Thee  
+
+See, the stone is rolled away  
+Behold the empty tomb  
+Hallelujah, God be praised  
+He's risen from the grave!  
+
+Oh that rugged cross, my salvation  
+Where Your love poured out over me  
+Now my soul cries out "Hallelujah!"  
+Praise and honour unto Thee  
+
+Praise and honour unto Thee  
+
+CCLI #:6476063; Brooke Ligertwood, Matt Crocker; Hillsong Worship; 2013  
+CCLI 62951 (main copyright licence)  
+CCLI 174113 (streaming licence)  
+
+
+
+### 4. Highest Place<br>
+Jesus Christ, in very nature God  
+Did not grasp hold of His place on the throne  
+But took on the nature of a servant  
+Made himself nothing, born as a man  
+Being found in appearance as a man  
+He was obedient to death on a cross  
+There he died, God the Son, the maker  
+A humble servant, showing the way  
+
+Therefore God exalted him  
+to the highest place  
+And gave him the name above all names,  
+So that at the name of Jesus  
+every knee should bow,  
+In heaven and on earth  
+and under the earth,  
+And every tongue confess  
+That Jesus is Lord,  
+To the glory of God the Father  
+
+Jesus Christ, in very nature God  
+Did not grasp hold of His place on the throne  
+But took on the nature of a servant  
+Made himself nothing, born as a man  
+Being found in appearance as a man  
+He was obedient to death on a cross  
+There he died, God the Son, the maker  
+A humble servant, showing the way  
+
+Therefore God exalted him  
+to the highest place  
+And gave him the name above all names,  
+So that at the name of Jesus  
+every knee should bow,  
+In heaven and on earth  
+and under the earth,  
+And every tongue confess  
+That Jesus is Lord,  
+To the glory of God the Father  
+
+And every tongue confess  
+That Jesus is Lord,  
+To the glory of God the Father  
+
+
+CCLI Song # 2697891 | © 1998 Mark Peterson  
+CCLI 62951 (main copyright licence)  
+CCLI 174113 (streaming licence)  
+
