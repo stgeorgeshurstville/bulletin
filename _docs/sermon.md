@@ -22,70 +22,59 @@ Dear God, thank you for letting us know you. Please help us learn from your word
 
 
 
-### Isaiah 55 (NIV)
+### Isaiah 56:1-8 (NIV)
 
-“Come, all you who are thirsty,
-come to the waters;
-and you who have no money,
-come, buy and eat!
-Come, buy wine and milk
-without money and without cost.
-² Why spend money on what is not bread,
-and your labor on what does not satisfy?
-Listen, listen to me, and eat what is good,
-and you will delight in the richest of fare.
-³ Give ear and come to me;
-listen, that you may live.
-I will make an everlasting covenant with you,
-my faithful love promised to David.
-⁴ See, I have made him a witness to the peoples,
-a ruler and commander of the peoples.
-⁵ Surely you will summon nations you know not,
-and nations you do not know will come running to you,
-because of the Lord your God,
-the Holy One of Israel,
-for he has endowed you with splendor.”
+**Salvation for Others**
 
-⁶ Seek the Lord while he may be found;
-call on him while he is near.
-⁷ Let the wicked forsake their ways
-and the unrighteous their thoughts.
-Let them turn to the Lord, and he will have mercy on them,
-and to our God, for he will freely pardon.
+¹ This is what the Lord says:  
 
-⁸ “For my thoughts are not your thoughts,
-neither are your ways my ways,”
-declares the Lord.
-⁹ “As the heavens are higher than the earth,
-so are my ways higher than your ways
-and my thoughts than your thoughts.
-¹⁰ As the rain and the snow
-come down from heaven,
-and do not return to it
-without watering the earth
-and making it bud and flourish,
-so that it yields seed for the sower and bread for the eater,
-¹¹ so is my word that goes out from my mouth:
-It will not return to me empty,
-but will accomplish what I desire
-and achieve the purpose for which I sent it.
-¹² You will go out in joy
-and be led forth in peace;
-the mountains and hills
-will burst into song before you,
-and all the trees of the field
-will clap their hands.
-¹³ Instead of the thornbush will grow the juniper,
-and instead of briers the myrtle will grow.
-This will be for the Lord’s renown,
-for an everlasting sign,
-that will endure forever.”
+“Maintain justice  
+and do what is right,  
+for my salvation is close at hand  
+and my righteousness will soon be revealed.  
+² Blessed is the one who does this—  
+the person who holds it fast,  
+who keeps the Sabbath without desecrating it,  
+and keeps their hands from doing any evil.”  
+³ Let no foreigner who is bound to the Lord say,  
+“The Lord will surely exclude me from his people.”  
+And let no eunuch complain,  
+“I am only a dry tree.”  
+⁴ For this is what the Lord says:  
 
-
+“To the eunuchs who keep my Sabbaths,  
+who choose what pleases me  
+and hold fast to my covenant—  
+⁵ to them I will give within my temple and its walls  
+a memorial and a name  
+better than sons and daughters;  
+I will give them an everlasting name  
+that will endure forever.  
+⁶ And foreigners who bind themselves to the Lord  
+to minister to him,  
+to love the name of the Lord,  
+and to be his servants,  
+all who keep the Sabbath without desecrating it  
+and who hold fast to my covenant—  
+⁷ these I will bring to my holy mountain  
+and give them joy in my house of prayer.  
+Their burnt offerings and sacrifices  
+will be accepted on my altar;  
+for my house will be called  
+a house of prayer for all nations.”  
+⁸ The Sovereign Lord declares—  
+he who gathers the exiles of Israel:  
+“I will gather still others to them  
+besides those already gathered.”  
 
 
 ## Sermon Outline<br>
 
+- The greatest Holiday
+- Lucky vs Unlucky
+- What changed
+- The Future now
+- Conclusions 
 
 
 
