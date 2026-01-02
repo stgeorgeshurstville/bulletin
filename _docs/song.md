@@ -5,7 +5,7 @@ order: 1
 
 ## 9:30am
 1. Hark the Herald Angels Sing
-2.Lord I Lift Your Name On High
+2. Lord I Lift Your Name On High
 3. Man of Sorrows
 4. Highest Place
 
@@ -15,7 +15,7 @@ order: 1
 ## 4:00pm
 1. Rise with the Sun
 2. My God is So Big
-3.Rise with the Sun
+3. Rise with the Sun
 4. Let your Kingdom Come
 
 
