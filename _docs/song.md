@@ -4,7 +4,7 @@ order: 1
 ---
 
 ## 9:30am
-1. Away in a Manger
+1. Hark the Herald Angels Sing
 2. All Heaven Declares
 3. O Come, All You Unfaithful
 4. Look to the Skies (Worship the King)
@@ -21,23 +21,45 @@ order: 1
 
 ### 9:30am Song Lyrics<br>
 
-### 1. Away in a Manger<br>
-Away in a manger, no crib for a bed,<br>
-the little Lord Jesus laid down His sweet head;<br>
-the stars in the heavens looked down where He lay,<br>
-the little Lord Jesus asleep on the hay.<br>
-The cattle are lowing, the Baby awakes,<br>
-but little Lord Jesus, no crying He makes.<br>
-I love Thee, Lord Jesus, look down from the sky<br>
-and stay by my side until morning is nigh.<br>
-Be near me, Lord Jesus; I ask Thee to stay<br>
-close by me forever, and love me, I pray.<br>
-Bless all the dear children in Thy tender care,<br>
-and fit us for heaven, to live with Thee there.<br>
+### 1. Hark the Herald Angels Sing<br>
+Hark! the herald angels sing  
+“Glory to the newborn King  
+Peace on earth, and mercy mild  
+God and sinners reconciled!”  
+Joyful, all ye nations, rise  
+Join the triumph of the skies  
+With angelic host proclaim  
+“Christ is born in Bethlehem!”  
+Hark! the herald angels sing  
+“Glory to the newborn King!”  
 
-© 1980 by Rosalee Elser, William J. Kirkpatrick. Public domain<br>
-CCLI 62951 (main copyright licence)<br>
-CCLI 174113 (streaming licence)<br><br>
+Christ, by highest Heav’n adored  
+Christ the everlasting Lord  
+Late in time, behold Him come  
+Offspring of a virgin’s womb  
+Veiled in flesh the Godhead see  
+Hail th’incarnate Deity  
+Pleased as man with man to dwell  
+Jesus, our Emmanuel  
+Hark! the herald angels sing  
+“Glory to the newborn King!”  
+
+Hail the heav'n-born Prince of Peace!  
+Hail the Sun of Righteousness!  
+Light and life to all He brings  
+Ris’n with healing in His wings  
+Mild, He lays His glory by  
+Born that man no more may die  
+Born to raise the sons of earth  
+Born to give them second birth  
+Hark! the herald angels sing  
+“Glory to the newborn King!”  
+
+
+Words by Charles Wesley (1739). Music: Felix Mendelssohn  
+CCLI 62951 (main copyright licence)  
+CCLI 174113 (streaming licence)  
+
 
 
 ### 2. All Heaven Declares<br>
