@@ -66,9 +66,9 @@ For my God is the Ancient of Days
 
 For my God is the Ancient of Days
 
-CCLI Song # 7121851 © 2018 CityAlight Music, CityAlight Publishing 
-CCLI 62951 (main copyright licence)
-CCLI 174113 (streaming licence)
+Copyright © 1989 Maranatha Praise  
+CCLI 62951 (main copyright licence)  
+CCLI 174113 (streaming licence)  
 
 
 ### 2. Lord I Lift Your Name On High<br>
