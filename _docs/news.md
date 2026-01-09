@@ -28,8 +28,6 @@ While our groups are currently in recess for the month of January, we are prepar
 
 To help us place everyone in a group that fits their schedule, please fill out our [online form.](https://docs.google.com/forms/d/e/1FAIpQLSfXE4obODIdYkJuVEjM_f72rIKvcdW4yjre-ssMmP_LH3G6pQ/viewform?usp=sharing&ouid=116695261415859153895) This provides us with a "window" into your weekly availability so we can form groups effectively.
 
-https://docs.google.com/forms/d/e/1FAIpQLSfXE4obODIdYkJuVEjM_f72rIKvcdW4yjre-ssMmP_LH3G6pQ/viewform?usp=sharing&ouid=116695261415859153895
-
 ### Staff Update: Brian on Leave
 Please note that Brian will be away on leave from January 8th – 25th. We wish him a restful time off!
 If you require any assistance or have urgent matters during this period, please don't hesitate to reach out to Ben or Sunny, who will be happy to help.
