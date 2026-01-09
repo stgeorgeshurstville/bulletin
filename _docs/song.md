@@ -4,19 +4,19 @@ order: 1
 ---
 
 ## 9:30am
-1. Hark the Herald Angels Sing
-2. Lord I Lift Your Name On High
-3. Man of Sorrows
-4. Highest Place
+1. Ancient of Days
+2. Arise, Shine
+3. King of Kings
+4. You Alone
 
 
 **Scroll below for 9:30am song lyrics**
 
 ## 4:00pm
-1. Rise with the Sun
-2. My God is So Big
-3. Rise with the Sun
-4. Let your Kingdom Come
+1. His Mercy is More
+2. All Glory Be to Christ
+3. Great is Thy Faithfulness
+4. 
 
 
 ### 9:30am Song Lyrics<br>
