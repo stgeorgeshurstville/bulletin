@@ -4,9 +4,9 @@ order: 4
 ---
 
 ## Collect
-Almighty Father, whose blessed Son was revealed so that he might destroy the works of the devil and make us the children of God and heirs of eternal life: grant that having this hope we may purify ourselves as he is pure; that, when he shall appear again with power and great glory, we may be made like him in his eternal and glorious kingdom, where with you, Father, and with the Holy Spirit, he lives and reigns, one God, for evermore. Amen.
+Lord, mercifully receive the prayers of your people who call upon you; and grant that we may perceive and know what things we ought to do; and also may have grace and power faithfully to perform them; through Jesus Christ our Lord. Amen.
 
-## Week C
+## Week D
 
 | **Section** | **Content** |
 |--------------|-------------|
