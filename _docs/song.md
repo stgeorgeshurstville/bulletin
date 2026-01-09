@@ -18,9 +18,8 @@ order: 1
 3. Great is Thy Faithfulness
 4. 
 
----
 
-### 9:30am Song Lyrics<br>
+## 9:30am Song Lyrics<br>
 
 ### 1. Ancient of Days<br>
 Though the nations rage
@@ -68,7 +67,9 @@ For my God is the Ancient of Days
 For my God is the Ancient of Days
 
 CCLI Song # 7121851 © 2018 CityAlight Music | CityAlight Publishing 
+
 CCLI 62951 (main copyright licence)
+
 CCLI 174113 (streaming licence)
 
 
