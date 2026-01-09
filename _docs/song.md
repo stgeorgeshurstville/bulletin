@@ -72,154 +72,160 @@ CCLI 174113 (streaming licence)
 
 
 ### 2. Arise, Shine<br>
-Lord, I lift Your name on high  
-Lord, I love to sing Your praises  
-I'm so glad You're in my life  
-I'm so glad You came to save us  
+Darkness like a shroud covers the earth;
+Evil like a cloud covers the people.
+But the Lord will rise upon you,
+And His glory will appear on you,
+Nations will come to your light.
 
-You came from heaven to earth  
-To show the way  
-From the earth to the cross  
-My debt to pay  
-From the cross to the grave  
-From the grave to the sky  
-Lord, I lift Your name on high  
+Arise, shine, your light has come,
+The glory of the Lord has risen on you!
+Arise, shine, your light has come,
+Jesus the Light of the world has come.  
 
-Lord, I lift Your name on high  
-Lord, I love to sing Your praises  
-I'm so glad You're in my life    
-I'm so glad You came to save us  
+Here among us now, Christ the light
+Kindles brighter flames in our trembling hearts.
+Living Word, our lamp come guide our feet
+As we walk as one in light and peace,
+Till justice and truth shine like the sun.
 
-You came from heaven to earth  
-To show the way  
-From the earth to the cross  
-My debt to pay  
-From the cross to the grave  
-From the grave to the sky  
-Lord, I lift Your name on high  
+Arise, shine, your light has come,
+The glory of the Lord has risen on you!
+Arise, shine, your light has come,
+Jesus the Light of the world has come.
 
-You came from heaven to earth  
-To show the way  
-From the earth to the cross  
-My debt to pay  
-From the cross to the grave  
-From the grave to the sky  
-Lord, I lift Your name on high  
+Like a city bright so let us blaze;
+Lights in every street turning night to day.
+And the darkness shall not overcome
+Till the fulness of Christ’s kingdom comes,
+Dawning to God’s eternal day. 
 
-Lord, I lift Your name on high  
+Arise, shine, your light has come,
+The glory of the Lord has risen on you!
+Arise, shine, your light has come,
+Jesus the Light of the world
+Jesus the Light of the world
+Jesus the Light of the world  has come.
 
-Copyright © 1989 Maranatha Praise  
+Copyright © 1985 Graham Kendrick, Thankyou Music
 CCLI 62951 (main copyright licence)  
 CCLI 174113 (streaming licence)  
 
 
 
-### 3. Man of Sorrows<br>
-Man of Sorrows, Lamb of God  
-By His own betrayed  
-The sin of men and wrath of God  
-Has been on Jesus laid  
+### 3. King of Kings<br>
+In the darkness we were waiting
+Without hope, without light
+'Til from Heaven You came running
+There was mercy in Your eyes
+To fulfill the law and prophets
+To a virgin came the word
+From a throne of endless glory
+To a cradle in the dirt
 
-Silent as He stood accused  
-Beaten, mocked, and scorned  
-Bowing to the Father's will  
-He took a crown of thorns  
+Praise the Father, praise the Son
+Praise the Spirit, three in one
+God of glory, Majesty
+Praise forever to the King of Kings
 
-And oh that rugged cross, my salvation  
-Where Your love poured out over me  
-Now my soul cries out "Hallelujah!"  
-Praise and honour unto Thee  
+To reveal the kingdom coming
+And to reconcile the lost
+To redeem the whole creation
+You did not despise the cross
+For even in your suffering
+You saw to the other side
+Knowing this was our salvation
+Jesus for our sake you died 
 
-Sent of heaven, God's own Son  
-To purchase and redeem  
-And reconcile the very ones  
-Who nailed Him to that tree  
+Praise the Father, praise the Son
+Praise the Spirit, three in one
+God of glory, Majesty
+Praise forever to the King of Kings
 
-Oh that rugged cross, my salvation  
-Where Your love poured out over me  
-Now my soul cries out "Hallelujah!"  
-Praise and honour unto Thee  
+And the morning that You rose
+All of Heaven held its breath
+'Til that stone was moved for good
+For the Lamb had conquered death
+And the dead rose from their tombs
+And the angels stood in awe
+For the souls of all who'd come
+To the Father are restored 
 
-Now my debt is paid, it is paid in full  
-By the precious blood that my Jesus spilled  
-Now the curse of sin has no hold on me  
-Whom the Son sets free, oh is free indeed!  
-Now my debt is paid, it is paid in full  
-By the precious blood that my Jesus spilled  
-Now the curse of sin has no hold on me  
-Whom the Son sets free, oh is free indeed!  
+And the church of Christ was born
+Then the Spirit lit the flame
+Now this gospel truth of old
+Shall not kneel, shall not faint
+By His blood and in His name
+In His freedom I am free
+For the love of Jesus Christ
+Who has resurrected me 
 
+Praise the Father, praise the Son
+Praise the Spirit, three in one
+God of glory, Majesty
+Praise forever to the King of Kings
 
-Oh that rugged cross, my salvation  
-Where Your love poured out over me  
-Now my soul cries out "Hallelujah!"  
-Praise and honour unto Thee  
+Praise the Father, praise the Son
+Praise the Spirit, three in one
+God of glory, Majesty
+Praise forever to the King of Kings
+Praise forever to the King of Kings 
 
-See, the stone is rolled away  
-Behold the empty tomb  
-Hallelujah, God be praised  
-He's risen from the grave!  
-
-Oh that rugged cross, my salvation  
-Where Your love poured out over me  
-Now my soul cries out "Hallelujah!"  
-Praise and honour unto Thee  
-
-Praise and honour unto Thee  
-
-CCLI #:6476063; Brooke Ligertwood, Matt Crocker; Hillsong Worship; 2013  
+Hillsong Music Publishing Australia. Music Publishing Australia, Hillsong Mp Songs; 2019
 CCLI 62951 (main copyright licence)  
 CCLI 174113 (streaming licence)  
 
 
 
-### 4. Highest Place<br>
-Jesus Christ, in very nature God  
-Did not grasp hold of His place on the throne  
-But took on the nature of a servant  
-Made himself nothing, born as a man  
-Being found in appearance as a man  
-He was obedient to death on a cross  
-There he died, God the Son, the maker  
-A humble servant, showing the way  
+### 4. You Alone<br>
+You alone could light the heavens
+Speak, and form the universe
+Every grain and galaxy
+Abiding by Your word
+You alone deserve all glory
+In one anthem, joyfully raised
+Every language, every tongue
+Resounding in Your praise
 
-Therefore God exalted him  
-to the highest place  
-And gave him the name above all names,  
-So that at the name of Jesus  
-every knee should bow,  
-In heaven and on earth  
-and under the earth,  
-And every tongue confess  
-That Jesus is Lord,  
-To the glory of God the Father  
+Every nation needs to know
+There's salvation in Your name alone
+For Your kingdom we must go
+To all of the earth, all of the earth
+  
+You alone could ransom sinners
+No one else could pay such price
+Give for love Your perfect life
+In humble sacrifice
+You alone have conquered darkness
+Death no longer wields its sting
+Raised in power to reign forever
+Jesus, King of Kings
+  
+Every nation needs to know
+There's salvation in Your name alone
+For Your kingdom we must go
+To all of the earth, all of the earth
 
-Jesus Christ, in very nature God  
-Did not grasp hold of His place on the throne  
-But took on the nature of a servant  
-Made himself nothing, born as a man  
-Being found in appearance as a man  
-He was obedient to death on a cross  
-There he died, God the Son, the maker  
-A humble servant, showing the way  
+You alone restore the broken
+Through the weak display Your power
+Strengthen us to persevere
+Equip us for this hour
+Christ alone our ceaseless message
+Grace and peace our overflow
+Surely You are always with us
+Jesus, we will go
 
-Therefore God exalted him  
-to the highest place  
-And gave him the name above all names,  
-So that at the name of Jesus  
-every knee should bow,  
-In heaven and on earth  
-and under the earth,  
-And every tongue confess  
-That Jesus is Lord,  
-To the glory of God the Father  
+Every nation needs to know
+There's salvation in Your name alone
+For Your kingdom we must go
+To all of the earth, all of the earth
 
-And every tongue confess  
-That Jesus is Lord,  
-To the glory of God the Father  
+Every nation needs to know
+There's salvation in Your name alone
+For Your kingdom we must go
+To all of the earth, all of the earth
 
-
-CCLI Song # 2697891 | © 1998 Mark Peterson  
+CCLI Song # 7132161 | © 2019  Words and music Trevor Hodge 
 CCLI 62951 (main copyright licence)  
 CCLI 174113 (streaming licence)  
 
