@@ -7,15 +7,17 @@ order: 5
 
 | Date | Event | Time |
 | ---- | ---- | ---- |
-| 28th December - 4th January | All Gen Services | Various times |
+|  |  |  |
 
 ## General
 
-### Our Children’s programs in January. 
+### A new staffing for 2026
 
-🎉 New Gen is Back! From next week, our primary-aged children will return to their age-appropriate programs to learn more about God. A huge thank you to the volunteers who have committed to serving over the next few weeks!
+🎉We are pleased to announce that Pastor Carol Chiu has accepted my invitation to move from part-time to full-time ministry, with a revised role.
+From 1 January 2026, Carol will serve as the pastor responsible for Youth and Children at St George’s. This role is not simply an extension of her current responsibilities, but a new pastoral role that involves oversight, leadership, and the ongoing development and restructuring of our youth and children’s ministries.
+Carol has served as our NewGen Director since January 2020, during which time she has proven herself to be a faithful pastor and a capable leader. There is strong alignment between her experience and this new role, and we are confident that she is the right person to lead these ministries into their next season.
+We give thanks to the Lord for his gracious provision to our church. Please pray for Carol and her husband, Jaffe, as they enter this period of transition.
 
-🍼 Crèche Summer Break Please note that the Crèche will be on holiday over the summer. Children aged 0–5 are warmly invited to stay in the service with us during this time.
 
 ### Staff Update: Brian on Leave
 Please note that Brian will be away on leave from January 8th – 25th. We wish him a restful time off!
