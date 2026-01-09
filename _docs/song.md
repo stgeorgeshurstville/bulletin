@@ -18,6 +18,7 @@ order: 1
 3. Great is Thy Faithfulness
 4. 
 
+---
 
 ### 9:30am Song Lyrics<br>
 
