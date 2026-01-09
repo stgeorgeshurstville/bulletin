@@ -21,45 +21,54 @@ order: 1
 
 ### 9:30am Song Lyrics<br>
 
-### 1. Hark the Herald Angels Sing<br>
-Hark! the herald angels sing  
-“Glory to the newborn King  
-Peace on earth, and mercy mild  
-God and sinners reconciled!”  
-Joyful, all ye nations, rise  
-Join the triumph of the skies  
-With angelic host proclaim  
-“Christ is born in Bethlehem!”  
-Hark! the herald angels sing  
-“Glory to the newborn King!”  
+### 1. Ancient of Days<br>
+Though the nations rage
+Kingdoms rise and fall
+There is still one King
+Reigning over all
+So I will not fear for this truth remains:
+That my God is the Ancient of Days
 
-Christ, by highest Heav’n adored  
-Christ the everlasting Lord  
-Late in time, behold Him come  
-Offspring of a virgin’s womb  
-Veiled in flesh the Godhead see  
-Hail th’incarnate Deity  
-Pleased as man with man to dwell  
-Jesus, our Emmanuel  
-Hark! the herald angels sing  
-“Glory to the newborn King!”  
+None above Him, none before Him
+All of time in His hands
+For His throne it shall remain and ever stand
+All the power, all the glory
+I will trust in His name
+For my God is the Ancient of Days 
 
-Hail the heav'n-born Prince of Peace!  
-Hail the Sun of Righteousness!  
-Light and life to all He brings  
-Ris’n with healing in His wings  
-Mild, He lays His glory by  
-Born that man no more may die  
-Born to raise the sons of earth  
-Born to give them second birth  
-Hark! the herald angels sing  
-“Glory to the newborn King!”  
+Though the dread of night
+Overwhelms my soul
+He is here with me
+I am not alone
+O His love is sure and He knows my name
+For my God is the Ancient of Days
 
+None above Him, none before Him
+All of time in His hands
+For His throne it shall remain and ever stand
+All the power, all the glory
+I will trust in His name
+For my God is the Ancient of Days
 
-Words by Charles Wesley (1739). Music: Felix Mendelssohn  
-CCLI 62951 (main copyright licence)  
-CCLI 174113 (streaming licence)  
+Though I may not see
+What the future brings
+I will watch and wait
+For the Saviour King
+Then my joy complete standing face to face
+In the presence of the Ancient of Days
 
+None above Him, none before Him
+All of time in His hands
+For His throne it shall remain and ever stand
+All the power, all the glory
+I will trust in His name
+For my God is the Ancient of Days
+
+For my God is the Ancient of Days
+
+CCLI Song # 7121851 © 2018 CityAlight Music | CityAlight Publishing 
+CCLI 62951 (main copyright licence)
+CCLI 174113 (streaming licence)
 
 
 ### 2. Lord I Lift Your Name On High<br>
