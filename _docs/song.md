@@ -66,9 +66,9 @@ For my God is the Ancient of Days
 
 For my God is the Ancient of Days
 
-#### CCLI Song # 7121851 © 2018 CityAlight Music | CityAlight Publishing 
-#### CCLI 62951 (main copyright licence)  
-#### CCLI 174113 (streaming licence)  
+CCLI #:6476063; Brooke Ligertwood, Matt Crocker; Hillsong Worship; 2013  
+CCLI 62951 (main copyright licence)  
+CCLI 174113 (streaming licence)  
 
 
 ### 2. Arise, Shine<br>
