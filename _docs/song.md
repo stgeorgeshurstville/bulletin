@@ -226,7 +226,7 @@ For Your kingdom we must go
 To all of the earth, all of the earth
 
 CCLI Song # 7132161 | © 2019  Words and music Trevor Hodge 
-CCLI 62951 (main copyright licence)  
 
+CCLI 62951 (main copyright licence)  
 CCLI 174113 (streaming licence)  
 
