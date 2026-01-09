@@ -141,6 +141,7 @@ in its time I will do this swiftly.”
 **Introduction: Longing for a United World**
 
 *Context: The State of Humanity (Isaiah 59:1-15)*
+
 *The Divine Intervention (Isa 59:15-21)*
 
 1. This City will not be Conquered (Isaiah 60:1-3, 12, 14)
