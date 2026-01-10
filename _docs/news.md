@@ -21,12 +21,14 @@ Carol has served as our NewGen Director since January 2020, during which time sh
 
 We give thanks to the Lord for his gracious provision to our church. Please pray for Carol and her husband, Jaffe, as they enter this period of transition.
 
+<!-- 
 ### Growing Together: Discipleship Groups 2026
 As we settle into the new year, we want to share an exciting update regarding our Discipleship Groups.
 
 While our groups are currently in recess for the month of January, we are preparing to relaunch in early February! These groups are the heartbeat of our community—dedicated spaces for our regular members to grow together, study God’s Word, and encourage one another as we learn to better follow the Lord Jesus.
 
 To help us place everyone in a group that fits their schedule, please fill out our [online form.](https://docs.google.com/forms/d/e/1FAIpQLSfXE4obODIdYkJuVEjM_f72rIKvcdW4yjre-ssMmP_LH3G6pQ/viewform?usp=sharing&ouid=116695261415859153895) This provides us with a "window" into your weekly availability so we can form groups effectively.
+-->
 
 ### Staff Update: Brian on Leave
 Please note that Brian will be away on leave from January 8th – 25th. We wish him a restful time off!
