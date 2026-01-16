@@ -4,9 +4,9 @@ order: 4
 ---
 
 ## Collect
-Lord, mercifully receive the prayers of your people who call upon you; and grant that we may perceive and know what things we ought to do; and also may have grace and power faithfully to perform them; through Jesus Christ our Lord. Amen.
+Almighty and everlasting God, ruler of all things in heaven and earth, mercifully hear the supplications of your people, and grant us your peace all the days of our life; through Jesus Christ our Lord. Amen.
 
-## Week D
+## Week E
 
 | **Section** | **Content** |
 |--------------|-------------|
