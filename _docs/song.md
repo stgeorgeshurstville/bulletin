@@ -113,67 +113,77 @@ CCLI 174113 (streaming licence)
 
 
 
-### 3. King of Kings<br>
-In the darkness we were waiting
-Without hope, without light
-'Til from Heaven You came running
-There was mercy in Your eyes
-To fulfill the law and prophets
-To a virgin came the word
-From a throne of endless glory
-To a cradle in the dirt
+### 3. What a Beautiful Name<br>
+You were the Word at the beginning
+One with God the Lord Most High
+Your hidden glory in creation
+Now revealed in You our Christ
 
-Praise the Father, praise the Son
-Praise the Spirit, three in one
-God of glory, Majesty
-Praise forever to the King of Kings
+What a beautiful name it is
+What a beautiful name it is
+The name of Jesus Christ my King
 
-To reveal the kingdom coming
-And to reconcile the lost
-To redeem the whole creation
-You did not despise the cross
-For even in your suffering
-You saw to the other side
-Knowing this was our salvation
-Jesus for our sake you died 
+What a beautiful name it is
+Nothing compares to this
+What a beautiful name it is
+The name of Jesus
 
-Praise the Father, praise the Son
-Praise the Spirit, three in one
-God of glory, Majesty
-Praise forever to the King of Kings
+You didn't want heaven without us
+So Jesus, You brought heaven down
+My sin was great, Your love was greater
+What could separate us now
 
-And the morning that You rose
-All of Heaven held its breath
-'Til that stone was moved for good
-For the Lamb had conquered death
-And the dead rose from their tombs
-And the angels stood in awe
-For the souls of all who'd come
-To the Father are restored 
+What a wonderful name it is
+What a wonderful name it is
+The name of Jesus Christ my King
 
-And the church of Christ was born
-Then the Spirit lit the flame
-Now this gospel truth of old
-Shall not kneel, shall not faint
-By His blood and in His name
-In His freedom I am free
-For the love of Jesus Christ
-Who has resurrected me 
+What a wonderful name it is
+Nothing compares to this
+What a wonderful name it is
+The name of Jesus
 
-Praise the Father, praise the Son
-Praise the Spirit, three in one
-God of glory, Majesty
-Praise forever to the King of Kings
+Death could not hold You
+The veil tore before You
+You silenced the boast, of sin and grave
+The heavens are roaring the praise of Your glory
+For You are raised to life again
 
-Praise the Father, praise the Son
-Praise the Spirit, three in one
-God of glory, Majesty
-Praise forever to the King of Kings
-Praise forever to the King of Kings 
+You have no rival
+You have no equal
+Now and forever, God You reign
+Yours is the Kingdom
+Yours is the Glory
+Yours is the name, above all names
 
-Hillsong Music Publishing Australia. Music Publishing Australia, Hillsong Mp Songs; 2019
-CCLI 62951 (main copyright licence)  
-CCLI 174113 (streaming licence)  
+What a powerful name it is
+What a powerful name it is
+The name of Jesus Christ my King
+What a powerful name it is
+Nothing can stand against
+What a powerful name it is
+The name of Jesus 
+
+You have no rival
+You have no equal
+Now and forever, God You reign
+Yours is the Kingdom
+Yours is the Glory
+Yours is the name, above all names
+
+What a powerful name it is
+What a powerful name it is
+The name of Jesus Christ my King
+What a powerful name it is
+Nothing can stand against
+What a powerful name it is
+The name of Jesus 
+
+What a powerful name it is
+The name of Jesus
+What a powerful name it is
+The name of Jesus
+
+CCLI 7068424 |
 
 
 
@@ -229,5 +239,4 @@ Lord I’ll Worship Your holy Name
 
 
 CCLI Song # 6016351 | 
-CCLI 174113 (streaming licence)  
 
