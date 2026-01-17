@@ -71,45 +71,48 @@ CCLI 62951 (main copyright licence)
 CCLI 174113 (streaming licence)  
 
 
-### 2. Arise, Shine<br>
-Darkness like a shroud covers the earth;
-Evil like a cloud covers the people.
-But the Lord will rise upon you,
-And His glory will appear on you,
-Nations will come to your light.
+### 2. In Christ Alone<br>
+In Christ alone my hope is found
+He is my light, my strength, my song
+This Cornerstone, this solid Ground
+Firm through the fiercest drought and storm
 
-Arise, shine, your light has come,
-The glory of the Lord has risen on you!
-Arise, shine, your light has come,
-Jesus the Light of the world has come.  
+What heights of love, what depths of peace
+When fears are stilled, when strivings cease
+My Comforter, my All in All
+Here in the love of Christ I stand
 
-Here among us now, Christ the light
-Kindles brighter flames in our trembling hearts.
-Living Word, our lamp come guide our feet
-As we walk as one in light and peace,
-Till justice and truth shine like the sun.
+In Christ alone, who took on flesh
+Fullness of God in helpless babe
+This gift of love and righteousness
+Scorned by the ones He came to save
 
-Arise, shine, your light has come,
-The glory of the Lord has risen on you!
-Arise, shine, your light has come,
-Jesus the Light of the world has come.
+Till on that cross as Jesus died
+The wrath of God was satisfied
+For every sin on Him was laid
+Here in the death of Christ I live
 
-Like a city bright so let us blaze;
-Lights in every street turning night to day.
-And the darkness shall not overcome
-Till the fulness of Christ’s kingdom comes,
-Dawning to God’s eternal day. 
+There in the ground His body lay
+Light of the world by darkness slain
+Then bursting forth in glorious day
+Up from the grave He rose again
 
-Arise, shine, your light has come,
-The glory of the Lord has risen on you!
-Arise, shine, your light has come,
-Jesus the Light of the world
-Jesus the Light of the world
-Jesus the Light of the world  has come.
+And as He stands in victory
+Sin’s curse has lost its grip on me
+For I am His and He is mine 
+Bought with the precious blood of Christ
 
-Copyright © 1985 Graham Kendrick, Thankyou Music
-CCLI 62951 (main copyright licence)  
-CCLI 174113 (streaming licence)  
+No guilt in life, no fear in death
+This is the power of Christ in me
+From life’s first cry to final breath
+Jesus commands my destiny
+
+No power of hell, no scheme of man
+Can ever pluck me from His hand
+Till He returns or calls me home
+Here in the power of Christ I’ll stand
+
+CCLI 3350395 |
 
 
 
