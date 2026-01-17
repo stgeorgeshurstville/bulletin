@@ -138,15 +138,10 @@ in its time I will do this swiftly.”
 
 ## Sermon Outline<br>
 
-**Introduction: Longing for a United World**
+I. The Anointed One’s Mission 
+II. The Covenant’s Compensation 
+III. The Community’s Adoration
 
-*Context: The State of Humanity (Isaiah 59:1-15)*
-
-*The Divine Intervention (Isa 59:15-21)*
-
-1. This City will not be Conquered (Isaiah 60:1-3, 12, 14)
-2. This City will be Multicultural (Isaiah 60: 4-15)
-3. This City will be Permanent  (Isaiah 60: 16-22)
 
 
 
