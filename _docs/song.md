@@ -21,55 +21,41 @@ order: 1
 
 ## 9:30am Song Lyrics<br>
 
-### 1. Ancient of Days<br>
-Though the nations rage
-Kingdoms rise and fall
-There is still one King
-Reigning over all
-So I will not fear for this truth remains:
-That my God is the Ancient of Days
+### 1. Before The Throne of God Above<br>
+Before the throne of God above
+I have a strong and perfect plea
+A great High Priest whose name is love
+Who ever lives and pleads for me
 
-None above Him, none before Him
-All of time in His hands
-For His throne it shall remain and ever stand
-All the power, all the glory
-I will trust in His name
-For my God is the Ancient of Days 
+My name is graven on His hands
+My name is written on His heart
+I know that while in heav’n He stands
+No tongue can bid me thence depart
+No tongue can bid me thence depart
 
-Though the dread of night
-Overwhelms my soul
-He is here with me
-I am not alone
-O His love is sure and He knows my name
-For my God is the Ancient of Days
+When Satan tempts me to despair
+And tells me of the guilt within
+Upward I look and see Him there
+Who made an end to all my sin
 
-None above Him, none before Him
-All of time in His hands
-For His throne it shall remain and ever stand
-All the power, all the glory
-I will trust in His name
-For my God is the Ancient of Days
+Because the sinless Savior died
+My sinful soul is counted free
+For God the Just is satisfied
+To look on Him and pardon me
+To look on Him and pardon me
 
-Though I may not see
-What the future brings
-I will watch and wait
-For the Saviour King
-Then my joy complete standing face to face
-In the presence of the Ancient of Days
+Behold Him there, the risen Lamb
+My perfect, spotless Righteousness
+The great unchangeable I AM
+The King of glory and of grace
 
-None above Him, none before Him
-All of time in His hands
-For His throne it shall remain and ever stand
-All the power, all the glory
-I will trust in His name
-For my God is the Ancient of Days
+One with Himself, I cannot die
+My soul is purchased by His blood
+My life is hid with Christ on high
+With Christ my Savior and my God 
+With Christ my Savior and my God
 
-For my God is the Ancient of Days
-
-CCLI #:7121851; CityAlight Music; CityAlight Publishing 2018  
-CCLI 62951 (main copyright licence)  
-CCLI 174113 (streaming licence)  
-
+CCLI 2306412
 
 ### 2. In Christ Alone<br>
 In Christ alone my hope is found
@@ -112,7 +98,7 @@ Can ever pluck me from His hand
 Till He returns or calls me home
 Here in the power of Christ I’ll stand
 
-CCLI 3350395 |
+CCLI 3350395 
 
 
 
@@ -186,7 +172,7 @@ The name of Jesus
 What a powerful name it is
 The name of Jesus
 
-CCLI 7068424 |
+CCLI 7068424
 
 
 
@@ -241,5 +227,5 @@ Yes I’ll worship Your holy Name
 Lord I’ll Worship Your holy Name
 
 
-CCLI Song # 6016351 | 
+CCLI Song # 6016351 
 
