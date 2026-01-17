@@ -4,19 +4,19 @@ order: 1
 ---
 
 ## 9:30am
-1. Ancient of Days
-2. Arise, Shine
-3. King of Kings
+1. Before The Throne of God Above
+2. In Christ Alone
+3. What a Beautiful Name
 4. You Alone
 
 
 **Scroll below for 9:30am song lyrics**
 
 ## 4:00pm
-1. His Mercy is More
-2. All Glory Be to Christ
-3. Great is Thy Faithfulness
-4. 
+1. Rise with the Sun
+2. No Other Name
+3. Rejoice
+4. 10,000 Reasons
 
 
 ## 9:30am Song Lyrics<br>
@@ -177,55 +177,57 @@ CCLI 174113 (streaming licence)
 
 
 
-### 4. You Alone<br>
-You alone could light the heavens
-Speak, and form the universe
-Every grain and galaxy
-Abiding by Your word
-You alone deserve all glory
-In one anthem, joyfully raised
-Every language, every tongue
-Resounding in Your praise
+### 4. 10,000 Reasons<br>
+Bless the Lord, O my soul
+O my soul, worship His holy Name
+Sing like never before, O my soul
+I'll worship Your holy Name
 
-Every nation needs to know
-There's salvation in Your name alone
-For Your kingdom we must go
-To all of the earth, all of the earth
-  
-You alone could ransom sinners
-No one else could pay such price
-Give for love Your perfect life
-In humble sacrifice
-You alone have conquered darkness
-Death no longer wields its sting
-Raised in power to reign forever
-Jesus, King of Kings
-  
-Every nation needs to know
-There's salvation in Your name alone
-For Your kingdom we must go
-To all of the earth, all of the earth
 
-You alone restore the broken
-Through the weak display Your power
-Strengthen us to persevere
-Equip us for this hour
-Christ alone our ceaseless message
-Grace and peace our overflow
-Surely You are always with us
-Jesus, we will go
+The sun comes up, it's a new day dawning
+It's time to sing Your song again
+Whatever may pass and whatever lies before me
+Let me be singing when the evening comes
 
-Every nation needs to know
-There's salvation in Your name alone
-For Your kingdom we must go
-To all of the earth, all of the earth
 
-Every nation needs to know
-There's salvation in Your name alone
-For Your kingdom we must go
-To all of the earth, all of the earth
+Bless the Lord, O my soul
+O my soul, worship His holy Name
+Sing like never before, O my soul
+I'll worship Your holy Name
 
-CCLI Song # 7132161 | © 2019  Words and music Trevor Hodge.
-CCLI 62951 (main copyright licence)  
+
+You're rich in love and You're slow to anger
+Your Name is great and Your heart is kind
+For all Your goodness I will keep on singing
+Ten thousand reasons for my heart to find
+
+
+Bless the Lord, O my soul
+O my soul, worship His holy Name
+Sing like never before, O my soul
+I'll worship Your holy Name
+
+
+And on that day when my strength is failing,
+The end draws near and my time has come;
+Still my soul sings Your praise unending,
+Ten thousand years and then forevermore.
+
+
+Bless the Lord, O my soul
+O my soul, worship His holy Name
+Sing like never before, O my soul
+I'll worship Your holy Name 
+
+
+Bless the Lord, O my soul
+O my soul, worship His holy Name
+Sing like never before, O my soul
+I'll worship Your holy Name
+Yes I’ll worship Your holy Name
+Lord I’ll Worship Your holy Name
+
+
+CCLI Song # 6016351 | 
 CCLI 174113 (streaming licence)  
 
