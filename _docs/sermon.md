@@ -139,7 +139,9 @@ in its time I will do this swiftly.”
 ## Sermon Outline<br>
 
 I. The Anointed One’s Mission 
+
 II. The Covenant’s Compensation 
+
 III. The Community’s Adoration
 
 
