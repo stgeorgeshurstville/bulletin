@@ -22,87 +22,110 @@ Dear God, thank you for letting us know you. Please help us learn from your word
 
 
 
-### Isaiah 61 (NIV)
+### Isaiah 66 (NIV)
 
-**The Year of the Lord’s Favour**
+**Judgment and Hope**
 
-¹ The Spirit of the Sovereign Lord is on me,
-because the Lord has anointed me
-to proclaim good news to the poor.
-He has sent me to bind up the brokenhearted,
-to proclaim freedom for the captives
-and release from darkness for the prisoners, 
-² 
-to proclaim the year of the Lord’s favor
-and the day of vengeance of our God,
-to comfort all who mourn,
-³ 
-and provide for those who grieve in Zion—
-to bestow on them a crown of beauty
-instead of ashes,
-the oil of joy
-instead of mourning,
-and a garment of praise
-instead of a spirit of despair.
-They will be called oaks of righteousness,
-a planting of the Lord
-for the display of his splendor.
+¹This is what the Lord says:
 
-⁴ 
-They will rebuild the ancient ruins
-and restore the places long devastated;
-they will renew the ruined cities
-that have been devastated for generations.
-⁵ 
-Strangers will shepherd your flocks;
-foreigners will work your fields and vineyards.
-⁶ 
-And you will be called priests of the Lord,
-you will be named ministers of our God.
-You will feed on the wealth of nations,
-and in their riches you will boast.
+“Heaven is my throne,
+    and the earth is my footstool.
+Where is the house you will build for me?
+    Where will my resting place be?
+² Has not my hand made all these things,
+    and so they came into being?”
+declares the Lord.
 
-⁷ 
-Instead of your shame
-you will receive a double portion,
-and instead of disgrace
-you will rejoice in your inheritance.
-And so you will inherit a double portion in your land,
-and everlasting joy will be yours.
+“These are the ones I look on with favor:
+    those who are humble and contrite in spirit,
+    and who tremble at my word.
+³ But whoever sacrifices a bull
+    is like one who kills a person,
+and whoever offers a lamb
+    is like one who breaks a dog’s neck;
+whoever makes a grain offering
+    is like one who presents pig’s blood,
+and whoever burns memorial incense
+    is like one who worships an idol.
+They have chosen their own ways,
+    and they delight in their abominations;
+⁴ so I also will choose harsh treatment for them
+    and will bring on them what they dread.
+For when I called, no one answered,
+    when I spoke, no one listened.
+They did evil in my sight
+    and chose what displeases me.”
 
-⁸ 
-“For I, the Lord, love justice;
-I hate robbery and wrongdoing.
-In my faithfulness I will reward my people
-and make an everlasting covenant with them.
-⁹ 
-Their descendants will be known among the nations
-and their offspring among the peoples.
-All who see them will acknowledge
-that they are a people the Lord has blessed.”
+⁵ Hear the word of the Lord,
+    you who tremble at his word:
+“Your own people who hate you,
+    and exclude you because of my name, have said,
+‘Let the Lord be glorified,
+    that we may see your joy!’
+    Yet they will be put to shame.
+⁶ Hear that uproar from the city,
+    hear that noise from the temple!
+It is the sound of the Lord
+    repaying his enemies all they deserve.
 
-¹⁰ 
-I delight greatly in the Lord;
-my soul rejoices in my God.
-For he has clothed me with garments of salvation
-and arrayed me in a robe of his righteousness,
-as a bridegroom adorns his head like a priest,
-and as a bride adorns herself with her jewels.
-¹¹ 
-For as the soil makes the sprout come up
-and a garden causes seeds to grow,
-so the Sovereign Lord will make righteousness
-and praise spring up before all nations.
+⁷ “Before she goes into labor,
+    she gives birth;
+before the pains come upon her,
+    she delivers a son.
+⁸ Who has ever heard of such things?
+    Who has ever seen things like this?
+Can a country be born in a day
+    or a nation be brought forth in a moment?
+Yet no sooner is Zion in labor
+    than she gives birth to her children.
+⁹ Do I bring to the moment of birth
+    and not give delivery?” says the Lord.
+“Do I close up the womb
+    when I bring to delivery?” says your God.
+¹⁹ “Rejoice with Jerusalem and be glad for her,
+    all you who love her;
+rejoice greatly with her,
+    all you who mourn over her.
+¹¹ For you will nurse and be satisfied
+    at her comforting breasts;
+you will drink deeply
+    and delight in her overflowing abundance.”
+
+¹² For this is what the Lord says:
+
+“I will extend peace to her like a river,
+    and the wealth of nations like a flooding stream;
+you will nurse and be carried on her arm
+    and dandled on her knees.
+¹³ As a mother comforts her child,
+    so will I comfort you;
+    and you will be comforted over Jerusalem.”
+
+¹⁴ When you see this, your heart will rejoice
+    and you will flourish like grass;
+the hand of the Lord will be made known to his servants,
+    but his fury will be shown to his foes.
+¹⁵ See, the Lord is coming with fire,
+    and his chariots are like a whirlwind;
+he will bring down his anger with fury,
+    and his rebuke with flames of fire.
+¹⁶ For with fire and with his sword
+    the Lord will execute judgment on all people,
+    and many will be those slain by the Lord.
+
+¹⁷ “Those who consecrate and purify themselves to go into the gardens, following one who is among those who eat the flesh of pigs, rats and other unclean things—they will meet their end together with the one they follow,” declares the Lord.
+
+¹⁸ “And I, because of what they have planned and done, am about to come[a] and gather the people of all nations and languages, and they will come and see my glory.
+
+¹⁹ “I will set a sign among them, and I will send some of those who survive to the nations—to Tarshish, to the Libyans[b] and Lydians (famous as archers), to Tubal and Greece, and to the distant islands that have not heard of my fame or seen my glory. They will proclaim my glory among the nations. ²⁹ And they will bring all your people, from all the nations, to my holy mountain in Jerusalem as an offering to the Lord—on horses, in chariots and wagons, and on mules and camels,” says the Lord. “They will bring them, as the Israelites bring their grain offerings, to the temple of the Lord in ceremonially clean vessels. ²¹ And I will select some of them also to be priests and Levites,” says the Lord.
+
+²² “As the new heavens and the new earth that I make will endure before me,” declares the Lord, “so will your name and descendants endure. ²³ From one New Moon to another and from one Sabbath to another, all mankind will come and bow down before me,” says the Lord. ²⁴ “And they will go out and look on the dead bodies of those who rebelled against me; the worms that eat them will not die, the fire that burns them will not be quenched, and they will be loathsome to all mankind.”
 
 
 
 ## Sermon Outline<br>
 
-I. The Anointed One’s Mission 
-
-II. The Covenant’s Compensation 
-
-III. The Community’s Adoration
+//TODO
 
 
 
