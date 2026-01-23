@@ -28,33 +28,33 @@ Dear God, thank you for letting us know you. Please help us learn from your word
 
 ¹This is what the Lord says:
 
-“Heaven is my throne,
+“Heaven is my throne,<br><br>
     and the earth is my footstool.
-Where is the house you will build for me?
-    Where will my resting place be?
-² Has not my hand made all these things,
-    and so they came into being?”
-declares the Lord.
+Where is the house you will build for me?<br>
+    Where will my resting place be?<br>
+² Has not my hand made all these things,<br>
+    and so they came into being?”<br>
+declares the Lord.<br>
 
-“These are the ones I look on with favor:
-    those who are humble and contrite in spirit,
-    and who tremble at my word.
-³ But whoever sacrifices a bull
-    is like one who kills a person,
-and whoever offers a lamb
-    is like one who breaks a dog’s neck;
-whoever makes a grain offering
-    is like one who presents pig’s blood,
-and whoever burns memorial incense
-    is like one who worships an idol.
-They have chosen their own ways,
-    and they delight in their abominations;
-⁴ so I also will choose harsh treatment for them
-    and will bring on them what they dread.
-For when I called, no one answered,
-    when I spoke, no one listened.
-They did evil in my sight
-    and chose what displeases me.”
+“These are the ones I look on with favor:<br>
+    those who are humble and contrite in spirit,<br>
+    and who tremble at my word.<br>
+³ But whoever sacrifices a bull<br>
+    is like one who kills a person,<br>
+and whoever offers a lamb<br>
+    is like one who breaks a dog’s neck;<br>
+whoever makes a grain offering<br>
+    is like one who presents pig’s blood,<br>
+and whoever burns memorial incense<br>
+    is like one who worships an idol.<br>
+They have chosen their own ways,<br>
+    and they delight in their abominations;<br>
+⁴ so I also will choose harsh treatment for them<br>
+    and will bring on them what they dread.<br>
+For when I called, no one answered,<br>
+    when I spoke, no one listened.<br>
+They did evil in my sight<br>
+    and chose what displeases me.”<br>
 
 ⁵ Hear the word of the Lord,
     you who tremble at his word:
