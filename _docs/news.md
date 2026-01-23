@@ -19,8 +19,8 @@ As the school holidays draw to a close, we are thrilled to welcome everyone back
 - **Mentoring** Resuming **Sunday, 1st February**
 - **Youth** Resuming **Friday, 6th February**
 - **D-Groups** Resuming **Sunday, 8th February**
-- **ESL** Resuming **Wednesday, 11th February
-**
+- **ESL** Resuming **Wednesday, 11th February**
+
 **Kids Program Update**
 We are currently putting the finishing touches on our schedule for the **Kids programs**. We expect to launch on either **February 2nd** or **February 9th**. Stay tuned for a final confirmation early next week!
 _We are looking forward to a fantastic term ahead. If you have any questions regarding these dates or need more information about a specific program, please don't hesitate to reach out to our program coordinators._
