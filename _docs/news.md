@@ -11,15 +11,20 @@ order: 5
 
 ## General
 
-### A new staffing for 2026
+### 🎒 Term 1 Program Launch: Welcome Back!
 
-🎉We are pleased to announce that Pastor Carol Chiu has accepted my invitation to move from part-time to full-time ministry, with a revised role.
+As the school holidays draw to a close, we are thrilled to welcome everyone back for another year of growth, community, and connection. Our programs are ready to jump into action for Term 1—please take note of the following kick-off dates!
 
-From 1 January 2026, Carol will serve as the pastor responsible for Youth and Children at St George’s. This role is not simply an extension of her current responsibilities, but a new pastoral role that involves oversight, leadership, and the ongoing development and restructuring of our youth and children’s ministries.
+📅 Save the Dates
+- **Mentoring** Resuming **Sunday, 1st February**
+- **Youth** Resuming **Friday, 6th February**
+- **D-Groups** Resuming **Sunday, 8th February**
+- **ESL** Resuming **Wednesday, 11th February
+**
+**Kids Program Update**
+We are currently putting the finishing touches on our schedule for the **Kids programs**. We expect to launch on either **February 2nd** or **February 9th**. Stay tuned for a final confirmation early next week!
+_We are looking forward to a fantastic term ahead. If you have any questions regarding these dates or need more information about a specific program, please don't hesitate to reach out to our program coordinators._
 
-Carol has served as our NewGen Director since January 2020, during which time she has proven herself to be a faithful pastor and a capable leader. There is strong alignment between her experience and this new role, and we are confident that she is the right person to lead these ministries into their next season.
-
-We give thanks to the Lord for his gracious provision to our church. Please pray for Carol and her husband, Jaffe, as they enter this period of transition.
 
 ### Growing Together: Discipleship Groups 2026
 As we settle into the new year, we want to share an exciting update regarding our Discipleship Groups.
@@ -27,6 +32,8 @@ As we settle into the new year, we want to share an exciting update regarding ou
 While our groups are currently in recess for the month of January, we are preparing to relaunch in early February! These groups are the heartbeat of our community—dedicated spaces for our regular members to grow together, study God’s Word, and encourage one another as we learn to better follow the Lord Jesus.
 
 To help us place everyone in a group that fits their schedule, please fill out our [online form.](https://docs.google.com/forms/d/e/1FAIpQLSfXE4obODIdYkJuVEjM_f72rIKvcdW4yjre-ssMmP_LH3G6pQ/viewform?usp=sharing&ouid=116695261415859153895) This provides us with a "window" into your weekly availability so we can form groups effectively.
+
+Please note that your first preference may not be possible. As the group gets assembled we are hoping that each group has a good mix of people. So please be gracious  if you don’t get your first preference.
 
 ### Staff Update: Brian on Leave
 Please note that Brian will be away on leave from January 8th – 25th. We wish him a restful time off!
