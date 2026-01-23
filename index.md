@@ -9,13 +9,11 @@ title: Welcome
 [comment]: ##### "where the sentence came from, e.g. Psalm 1:1"  
 [comment]: ----------------------------------------------------  
 
-## Isaiah - A Light Would Dawn
-
-### 
+## Isaiah - A Light Would Dawn 
 
 
-#### All the earth worships you, O Lord most high; sings praises to you, and worships your holy Name.
-#####  Psalm 66:4
+#### We call upon you, Lord, for you answer us; incline your ear to us, hear our words. Keep us as the apple of the eye; hide us in the shadow of your wings.
+##### Psalm 17: 6,8
 
 ---
 - We are gathering in person! For people who can’t gather in person, you can watch online [here](https://stgeorgeshurstville.org.au/sunday-english-online)
