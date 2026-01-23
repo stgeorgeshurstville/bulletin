@@ -22,7 +22,9 @@ As the school holidays draw to a close, we are thrilled to welcome everyone back
 - **ESL** Resuming **Wednesday, 11th February**
 
 **Kids Program Update**
+
 We are currently putting the finishing touches on our schedule for the **Kids programs**. We expect to launch on either **February 2nd** or **February 9th**. Stay tuned for a final confirmation early next week!
+
 _We are looking forward to a fantastic term ahead. If you have any questions regarding these dates or need more information about a specific program, please don't hesitate to reach out to our program coordinators._
 
 
