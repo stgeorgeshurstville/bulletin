@@ -4,19 +4,19 @@ order: 1
 ---
 
 ## 9:30am
-1. Before The Throne of God Above
-2. In Christ Alone
-3. What a Beautiful Name
-4. You Alone
+1. How Great is our God
+2. O Praise the Name
+3. 
+4. 
 
 
 **Scroll below for 9:30am song lyrics**
 
 ## 4:00pm
-1. Rise with the Sun
-2. No Other Name
-3. Rejoice
-4. 10,000 Reasons
+1. All Creatures of our God and King
+2. Your Word
+3. You Alone
+4. Only a Holy God
 
 
 ## 9:30am Song Lyrics<br>
