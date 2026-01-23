@@ -4,7 +4,7 @@ order: 4
 ---
 
 ## Collect
-Almighty and everlasting God, ruler of all things in heaven and earth, mercifully hear the supplications of your people, and grant us your peace all the days of our life; through Jesus Christ our Lord. Amen.
+Almighty and everlasting God, mercifully look on our infirmities; and in all our dangers and necessities stretch out your right hand to help and defend us; through Jesus Christ our Lord. Amen.
 
 ## Week F
 
