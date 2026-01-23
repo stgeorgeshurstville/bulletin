@@ -6,8 +6,8 @@ order: 1
 ## 9:30am
 1. How Great is our God
 2. O Praise the Name
-3. 
-4. 
+3. //TODO
+4. //TODO
 
 
 **Scroll below for 9:30am song lyrics**
