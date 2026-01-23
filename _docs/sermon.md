@@ -28,90 +28,90 @@ Dear God, thank you for letting us know you. Please help us learn from your word
 
 ¹This is what the Lord says:
 
-“Heaven is my throne,<br><br>
-    and the earth is my footstool.
+“Heaven is my throne,<br>
+&nbsp;and the earth is my footstool.<br>
 Where is the house you will build for me?<br>
-    Where will my resting place be?<br>
+&nbsp;Where will my resting place be?<br>
 ² Has not my hand made all these things,<br>
-    and so they came into being?”<br>
+&nbsp;and so they came into being?”<br>
 declares the Lord.<br>
 
 “These are the ones I look on with favor:<br>
-    those who are humble and contrite in spirit,<br>
-    and who tremble at my word.<br>
+&nbsp;those who are humble and contrite in spirit,<br>
+&nbsp;and who tremble at my word.<br>
 ³ But whoever sacrifices a bull<br>
-    is like one who kills a person,<br>
+&nbsp;is like one who kills a person,<br>
 and whoever offers a lamb<br>
-    is like one who breaks a dog’s neck;<br>
+&nbsp;is like one who breaks a dog’s neck;<br>
 whoever makes a grain offering<br>
-    is like one who presents pig’s blood,<br>
+&nbsp;is like one who presents pig’s blood,<br>
 and whoever burns memorial incense<br>
-    is like one who worships an idol.<br>
+&nbsp;is like one who worships an idol.<br>
 They have chosen their own ways,<br>
-    and they delight in their abominations;<br>
+&nbsp;and they delight in their abominations;<br>
 ⁴ so I also will choose harsh treatment for them<br>
-    and will bring on them what they dread.<br>
+&nbsp;and will bring on them what they dread.<br>
 For when I called, no one answered,<br>
-    when I spoke, no one listened.<br>
+&nbsp;when I spoke, no one listened.<br>
 They did evil in my sight<br>
-    and chose what displeases me.”<br>
+&nbsp;and chose what displeases me.”<br>
 
-⁵ Hear the word of the Lord,
-    you who tremble at his word:
-“Your own people who hate you,
-    and exclude you because of my name, have said,
-‘Let the Lord be glorified,
-    that we may see your joy!’
-    Yet they will be put to shame.
-⁶ Hear that uproar from the city,
-    hear that noise from the temple!
-It is the sound of the Lord
-    repaying his enemies all they deserve.
+⁵ Hear the word of the Lord,<br>
+&nbsp;you who tremble at his word:<br>
+“Your own people who hate you,<br>
+&nbsp;and exclude you because of my name, have said,<br>
+‘Let the Lord be glorified,<br>
+&nbsp;that we may see your joy!’<br>
+&nbsp;Yet they will be put to shame.<br>
+⁶ Hear that uproar from the city,<br>
+&nbsp;hear that noise from the temple!<br>
+It is the sound of the Lord<br>
+&nbsp;repaying his enemies all they deserve.<br>
 
-⁷ “Before she goes into labor,
-    she gives birth;
-before the pains come upon her,
-    she delivers a son.
-⁸ Who has ever heard of such things?
-    Who has ever seen things like this?
-Can a country be born in a day
-    or a nation be brought forth in a moment?
-Yet no sooner is Zion in labor
-    than she gives birth to her children.
-⁹ Do I bring to the moment of birth
-    and not give delivery?” says the Lord.
-“Do I close up the womb
-    when I bring to delivery?” says your God.
-¹⁹ “Rejoice with Jerusalem and be glad for her,
-    all you who love her;
-rejoice greatly with her,
-    all you who mourn over her.
-¹¹ For you will nurse and be satisfied
-    at her comforting breasts;
-you will drink deeply
-    and delight in her overflowing abundance.”
+⁷ “Before she goes into labor,<br>
+&nbsp;she gives birth;<br>
+before the pains come upon her,<br>
+&nbsp;she delivers a son.<br>
+⁸ Who has ever heard of such things?<br>
+&nbsp;Who has ever seen things like this?<br>
+Can a country be born in a day<br>
+&nbsp;or a nation be brought forth in a moment?<br>
+Yet no sooner is Zion in labor<br>
+&nbsp;than she gives birth to her children.<br>
+⁹ Do I bring to the moment of birth<br>
+&nbsp;and not give delivery?” says the Lord.<br>
+“Do I close up the womb<br>
+&nbsp;when I bring to delivery?” says your God.<br>
+¹⁹ “Rejoice with Jerusalem and be glad for her,<br>
+&nbsp;all you who love her;<br>
+rejoice greatly with her,<br>
+&nbsp;all you who mourn over her.<br>
+¹¹ For you will nurse and be satisfied<br>
+&nbsp;at her comforting breasts;<br>
+you will drink deeply<br>
+&nbsp;and delight in her overflowing abundance.”<br>
 
-¹² For this is what the Lord says:
+¹² For this is what the Lord says:<br>
 
-“I will extend peace to her like a river,
-    and the wealth of nations like a flooding stream;
-you will nurse and be carried on her arm
-    and dandled on her knees.
-¹³ As a mother comforts her child,
-    so will I comfort you;
-    and you will be comforted over Jerusalem.”
+“I will extend peace to her like a river,<br>
+&nbsp;and the wealth of nations like a flooding stream;<br>
+you will nurse and be carried on her arm<br>
+&nbsp;and dandled on her knees.<br>
+¹³ As a mother comforts her child,<br>
+&nbsp;so will I comfort you;<br>
+&nbsp;and you will be comforted over Jerusalem.”<br>
 
-¹⁴ When you see this, your heart will rejoice
-    and you will flourish like grass;
-the hand of the Lord will be made known to his servants,
-    but his fury will be shown to his foes.
-¹⁵ See, the Lord is coming with fire,
-    and his chariots are like a whirlwind;
-he will bring down his anger with fury,
-    and his rebuke with flames of fire.
-¹⁶ For with fire and with his sword
-    the Lord will execute judgment on all people,
-    and many will be those slain by the Lord.
+¹⁴ When you see this, your heart will rejoice<br>
+&nbsp;and you will flourish like grass;<br>
+the hand of the Lord will be made known to his servants,<br>
+&nbsp;but his fury will be shown to his foes.<br>
+¹⁵ See, the Lord is coming with fire,<br>
+&nbsp;and his chariots are like a whirlwind;<br>
+he will bring down his anger with fury,<br>
+&nbsp;and his rebuke with flames of fire.<br>
+¹⁶ For with fire and with his sword<br>
+&nbsp;the Lord will execute judgment on all people,<br>
+&nbsp;and many will be those slain by the Lord.<br>
 
 ¹⁷ “Those who consecrate and purify themselves to go into the gardens, following one who is among those who eat the flesh of pigs, rats and other unclean things—they will meet their end together with the one they follow,” declares the Lord.
 
