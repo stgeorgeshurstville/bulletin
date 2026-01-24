@@ -6,8 +6,8 @@ order: 1
 ## 9:30am
 1. How Great is our God
 2. O Praise the Name
-3. //TODO
-4. //TODO
+3. His Glory & My Good
+4. Trust & Obey
 
 
 **Scroll below for 9:30am song lyrics**
@@ -110,3 +110,173 @@ For endless days we will sing Your praise<br>
 Oh Lord, oh Lord our God<br>
 
 Oh Lord, oh Lord our God<br>
+
+### 3. I have seen my Father’s glory <br>
+Revealed in Jesus Christ
+And the more that I behold Him
+The more He satisfies
+
+
+When I gaze upon His beauty
+When I see Him as I should
+Then my eyes are lifted upward
+For His glory and my good
+
+
+
+
+There is hope in every trial
+For I can trust the Lord
+He will turn my heart towards Him
+And help me bear the thorn
+
+
+So in faith I follow Jesus
+On the road not understood
+For I know that He is working
+For His glory and my good
+
+
+
+
+To our God be the glory
+To our God be praise
+He alone, the name above all names
+I will boast ever only in the Lord my God
+For I know
+His glory is my good
+
+
+
+
+See the open arms of Jesus
+Upon the cross that day
+What they understood as weakness
+Deserves my every praise
+
+
+For the charge that was against me
+It was nailed into the wood
+Yes I know that He has saved me
+For His glory and my good
+
+
+To our God be the glory
+To our God be praise
+He alone, the name above all names
+I will boast ever only in the Lord my God
+For I know
+His glory is my good
+
+
+
+
+Would I gladly be made nothing
+That Christ would be made more
+Would I seek the only kingdom
+That far outweighs them all
+
+
+I will stand before my Father
+Where the faithful saints have stood
+And with joy my heart shall praise Him
+For His glory and my good
+
+
+To our God be the glory
+To our God be praise
+He alone, the name above all names
+I will boast ever only in the Lord my God
+For I know
+His glory is my good
+
+
+To our God be the glory
+To our God be praise
+He alone, the name above all names
+I will boast ever only in the Lord my God
+For I know
+His glory is my good
+
+
+Yes I know
+His glory is my good
+
+
+### 4. Trust & Obey<br>
+When we walk with the Lord
+In the light of His Word
+What a glory He sheds on our way
+While we do His good will
+He abides with us still
+And with all who will trust and obey
+
+
+There's no other way
+To be happy in Jesus
+With peace in my mind, joy in my heart
+I'll take up my cross
+For all of my days
+I'll do what You say
+There's no other way
+But to trust and obey
+
+
+Then in fellowship sweet
+We will sit at His feet
+Or we'll walk by His side in the way
+What He says we will do
+Where He sends we will go
+Never fear, only trust and obey
+
+
+There's no other way
+To be happy in Jesus
+With peace in my mind, and joy in my heart
+I'll take up my cross
+For all of my days
+I'll do what You say
+There's no other way
+But to trust and obey
+
+
+I'll trust the Lord
+I'll trust the Lord
+You will be faithful
+Like You've been before
+Oh, I'll trust You, Lord
+Yes, I'll trust You, Lord
+Oh, for the grace
+To trust You with more
+
+
+I'll trust the Lord
+I'll trust the Lord
+You will be faithful 
+Like You've been before
+I'll trust the Lord
+Yes, I'll trust the Lord
+Oh, for the grace 
+To trust You with more
+
+
+There's no other way
+To be happy in Jesus
+With peace in my mind, and joy in my heart
+I'll take up my cross
+For all of my days
+I'll do what You say
+There's no other way
+But to trust and obey
+
+
+I'll do what You say
+There's no other way
+But to trust and obey
+
+
+Trust and obey
+For there's no other way
+To be happy in Jesus
+But to trust and obey
+
