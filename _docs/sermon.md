@@ -125,7 +125,12 @@ he will bring down his anger with fury,<br>
 
 ## Sermon Outline<br>
 
-//TODO
+- Isaiah’s Cry to God: Restore Our Worship
+- God Purges False Worship 
+- God Promises Comfort in New Zion
+- God’s Glory Draws the Nations
+- For His Glory and Our Good
+
 
 
 
