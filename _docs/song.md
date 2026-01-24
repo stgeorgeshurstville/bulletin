@@ -112,171 +112,171 @@ Oh Lord, oh Lord our God<br>
 Oh Lord, oh Lord our God<br>
 
 ### 3. I have seen my Father’s glory <br>
-Revealed in Jesus Christ
-And the more that I behold Him
-The more He satisfies
+Revealed in Jesus Christ<br>
+And the more that I behold Him<br>
+The more He satisfies<br>
 
 
-When I gaze upon His beauty
-When I see Him as I should
-Then my eyes are lifted upward
-For His glory and my good
-
-
-
-
-There is hope in every trial
-For I can trust the Lord
-He will turn my heart towards Him
-And help me bear the thorn
-
-
-So in faith I follow Jesus
-On the road not understood
-For I know that He is working
-For His glory and my good
+When I gaze upon His beauty<br>
+When I see Him as I should<br>
+Then my eyes are lifted upward<br>
+For His glory and my good<br>
 
 
 
 
-To our God be the glory
-To our God be praise
-He alone, the name above all names
-I will boast ever only in the Lord my God
-For I know
-His glory is my good
+There is hope in every trial<br>
+For I can trust the Lord<br>
+He will turn my heart towards Him<br>
+And help me bear the thorn<br>
+
+
+So in faith I follow Jesus<br>
+On the road not understood<br>
+For I know that He is working<br>
+For His glory and my good<br>
 
 
 
 
-See the open arms of Jesus
-Upon the cross that day
-What they understood as weakness
-Deserves my every praise
-
-
-For the charge that was against me
-It was nailed into the wood
-Yes I know that He has saved me
-For His glory and my good
-
-
-To our God be the glory
-To our God be praise
-He alone, the name above all names
-I will boast ever only in the Lord my God
-For I know
-His glory is my good
+To our God be the glory<br>
+To our God be praise<br>
+He alone, the name above all names<br>
+I will boast ever only in the Lord my God<br>
+For I know<br>
+His glory is my good<br>
 
 
 
 
-Would I gladly be made nothing
-That Christ would be made more
-Would I seek the only kingdom
-That far outweighs them all
+See the open arms of Jesus<br>
+Upon the cross that day<br>
+What they understood as weakness<br>
+Deserves my every praise<br>
 
 
-I will stand before my Father
-Where the faithful saints have stood
-And with joy my heart shall praise Him
-For His glory and my good
+For the charge that was against me<br>
+It was nailed into the wood<br>
+Yes I know that He has saved me<br>
+For His glory and my good<br>
 
 
-To our God be the glory
-To our God be praise
-He alone, the name above all names
-I will boast ever only in the Lord my God
-For I know
-His glory is my good
+To our God be the glory<br>
+To our God be praise<br>
+He alone, the name above all names<br>
+I will boast ever only in the Lord my God<br>
+For I know<br>
+His glory is my good<br>
 
 
-To our God be the glory
-To our God be praise
-He alone, the name above all names
-I will boast ever only in the Lord my God
-For I know
-His glory is my good
 
 
-Yes I know
-His glory is my good
+Would I gladly be made nothing<br>
+That Christ would be made more<br>
+Would I seek the only kingdom<br>
+That far outweighs them all<br>
+
+
+I will stand before my Father<br>
+Where the faithful saints have stood<br>
+And with joy my heart shall praise Him<br>
+For His glory and my good<br>
+
+
+To our God be the glory<br>
+To our God be praise<br>
+He alone, the name above all names<br>
+I will boast ever only in the Lord my God<br>
+For I know<br>
+His glory is my good<br>
+
+
+To our God be the glory<br>
+To our God be praise<br>
+He alone, the name above all names<br>
+I will boast ever only in the Lord my God<br>
+For I know<br>
+His glory is my good<br>
+
+
+Yes I know<br>
+His glory is my good<br>
 
 
 ### 4. Trust & Obey<br>
-When we walk with the Lord
-In the light of His Word
-What a glory He sheds on our way
-While we do His good will
-He abides with us still
-And with all who will trust and obey
+When we walk with the Lord<br>
+In the light of His Word<br>
+What a glory He sheds on our way<br>
+While we do His good will<br>
+He abides with us still<br>
+And with all who will trust and obey<br>
 
 
-There's no other way
-To be happy in Jesus
-With peace in my mind, joy in my heart
-I'll take up my cross
-For all of my days
-I'll do what You say
-There's no other way
-But to trust and obey
+There's no other way<br>
+To be happy in Jesus<br>
+With peace in my mind, joy in my heart<br>
+I'll take up my cross<br>
+For all of my days<br>
+I'll do what You say<br>
+There's no other way<br>
+But to trust and obey<br>
 
 
-Then in fellowship sweet
-We will sit at His feet
-Or we'll walk by His side in the way
-What He says we will do
-Where He sends we will go
-Never fear, only trust and obey
+Then in fellowship sweet<br>
+We will sit at His feet<br>
+Or we'll walk by His side in the way<br>
+What He says we will do<br>
+Where He sends we will go<br>
+Never fear, only trust and obey<br>
 
 
-There's no other way
-To be happy in Jesus
-With peace in my mind, and joy in my heart
-I'll take up my cross
-For all of my days
-I'll do what You say
-There's no other way
-But to trust and obey
+There's no other way<br>
+To be happy in Jesus<br>
+With peace in my mind, and joy in my heart<br>
+I'll take up my cross<br>
+For all of my days<br>
+I'll do what You say<br>
+There's no other way<br>
+But to trust and obey<br>
 
 
-I'll trust the Lord
-I'll trust the Lord
-You will be faithful
-Like You've been before
-Oh, I'll trust You, Lord
-Yes, I'll trust You, Lord
-Oh, for the grace
-To trust You with more
+I'll trust the Lord<br>
+I'll trust the Lord<br>
+You will be faithful<br>
+Like You've been before<br>
+Oh, I'll trust You, Lord<br>
+Yes, I'll trust You, Lord<br>
+Oh, for the grace<br>
+To trust You with more<br>
 
 
-I'll trust the Lord
-I'll trust the Lord
-You will be faithful 
-Like You've been before
-I'll trust the Lord
-Yes, I'll trust the Lord
-Oh, for the grace 
-To trust You with more
+I'll trust the Lord<br>
+I'll trust the Lord<br>
+You will be faithful <br>
+Like You've been before<br>
+I'll trust the Lord<br>
+Yes, I'll trust the Lord<br>
+Oh, for the grace <br>
+To trust You with more<br>
 
 
-There's no other way
-To be happy in Jesus
-With peace in my mind, and joy in my heart
-I'll take up my cross
-For all of my days
-I'll do what You say
-There's no other way
-But to trust and obey
+There's no other way<br>
+To be happy in Jesus<br>
+With peace in my mind, and joy in my heart<br>
+I'll take up my cross<br>
+For all of my days<br>
+I'll do what You say<br>
+There's no other way<br>
+But to trust and obey<br>
 
 
-I'll do what You say
-There's no other way
-But to trust and obey
+I'll do what You say<br>
+There's no other way<br>
+But to trust and obey<br>
 
 
-Trust and obey
-For there's no other way
-To be happy in Jesus
-But to trust and obey
+Trust and obey<br>
+For there's no other way<br>
+To be happy in Jesus<br>
+But to trust and obey<br>
 
