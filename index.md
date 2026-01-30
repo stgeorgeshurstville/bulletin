@@ -12,8 +12,8 @@ title: Welcome
 ## Isaiah - A Light Would Dawn 
 
 
-#### We call upon you, Lord, for you answer us; incline your ear to us, hear our words. Keep us as the apple of the eye; hide us in the shadow of your wings.
-##### Psalm 17: 6,8
+#### Incline your ear, O Lord, and answer us. Save your servants who trust in you. Be gracious to us, O Lord, for to you do we cry all day long.
+##### Psalm 86: 1-3
 
 ---
 - We are gathering in person! For people who can’t gather in person, you can watch online [here](https://stgeorgeshurstville.org.au/sunday-english-online)
