@@ -13,10 +13,10 @@ order: 1
 **Scroll below for 9:30am song lyrics**
 
 ## 4:00pm
-1. All Creatures of our God and King
-2. Your Word
-3. You Alone
-4. Only a Holy God
+1. Crown Him with many crowns
+2. The God we love (Nicene Creed)
+3. The God we love (Nicene Creed)
+4. Here we stand
 
 
 ## 9:30am Song Lyrics<br>
