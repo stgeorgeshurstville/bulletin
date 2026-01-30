@@ -9,7 +9,7 @@ title: Welcome
 [comment]: ##### "where the sentence came from, e.g. Psalm 1:1"  
 [comment]: ----------------------------------------------------  
 
-## Isaiah - A Light Would Dawn 
+## Knowing God 
 
 
 #### Incline your ear, O Lord, and answer us. Save your servants who trust in you. Be gracious to us, O Lord, for to you do we cry all day long.
