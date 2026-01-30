@@ -4,7 +4,7 @@ order: 4
 ---
 
 ## Collect
-Almighty and everlasting God, mercifully look on our infirmities; and in all our dangers and necessities stretch out your right hand to help and defend us; through Jesus Christ our Lord. Amen.
+Lord God, you know us to be set in the midst of so many great dangers that by reason of the frailty of our nature we cannot always stand upright: grant us such strength and protection as may support us in all dangers and carry us through all temptations; through Jesus Christ our Lord. Amen. 
 
 ## Week F
 
