@@ -10,6 +10,10 @@ order: 5
 |  |  |  |
 
 ## General
+### 2026 Vision: To Know Him and Make Him Known
+This year, our vision is to know God and to make Him known. For many of us, "knowing God" can often be equated to simply knowing facts about Him. However, when the Bible speaks about knowing God, it describes seeing Him correctly so that it elicits a response of delight and awe. The more we understand His character and His qualities, the more we begin to marvel at what He has done for us through His Son.
+To help us in this pursuit, we have started a six-week series on the Nicene Creed. This historic statement of belief has served the church for centuries by clarifying exactly who God is, helping His people to savor Him rightly.
+Over the coming weeks, we invite you to pray that you would savor God in all His fullness as we strive to know Him more deeply together.
 
 ### 🎒 Term 1 Program Launch: Welcome Back!
 
@@ -20,26 +24,14 @@ As the school holidays draw to a close, we are thrilled to welcome everyone back
 - **Youth** Resuming **Friday, 6th February**
 - **D-Groups** Resuming **Sunday, 8th February**
 - **ESL** Resuming **Wednesday, 11th February**
-
-**Kids Program Update**
-
-We are currently putting the finishing touches on our schedule for the **Kids programs**. We expect to launch on either **February 2nd** or **February 9th**. Stay tuned for a final confirmation early next week!
-
-_We are looking forward to a fantastic term ahead. If you have any questions regarding these dates or need more information about a specific program, please don't hesitate to reach out to our program coordinators._
+- **New Gen** resuming **Sunday 1st February**
 
 
-### Growing Together: Discipleship Groups 2026
-As we settle into the new year, we want to share an exciting update regarding our Discipleship Groups.
 
-While our groups are currently in recess for the month of January, we are preparing to relaunch in early February! These groups are the heartbeat of our community—dedicated spaces for our regular members to grow together, study God’s Word, and encourage one another as we learn to better follow the Lord Jesus.
-
-To help us place everyone in a group that fits their schedule, please fill out our [online form.](https://docs.google.com/forms/d/e/1FAIpQLSfXE4obODIdYkJuVEjM_f72rIKvcdW4yjre-ssMmP_LH3G6pQ/viewform?usp=sharing&ouid=116695261415859153895) This provides us with a "window" into your weekly availability so we can form groups effectively.
-
-Please note that your first preference may not be possible. As the group gets assembled we are hoping that each group has a good mix of people. So please be gracious  if you don’t get your first preference.
-
-### Staff Update: Brian on Leave
-Please note that Brian will be away on leave from January 8th – 25th. We wish him a restful time off!
-If you require any assistance or have urgent matters during this period, please don't hesitate to reach out to Ben or Sunny, who will be happy to help.
+### Growing Together: Discipleship Group update
+A big thank you to everyone who submitted their availability for our upcoming discipleship groups! We are thrilled to see so many of you eager to grow in your discipleship. If you haven’t put your name down yet, you can still do so through [this link](https://forms.gle/orMNCVmsTnuLH7Xx5)
+Our groups will officially start the week beginning February 8th. Group leaders will get back to you shortly with more details regarding times and locations.
+Our primary goal in organizing these groups is to ensure a healthy balance of participants; we want to make sure every group is intimate enough for deep conversation and that no single group becomes overcrowded. With that in mind, if you didn’t get your first preference, please come and speak with Ben. He’s happy to chat with you to ensure everyone feels settled and supported.
 
 
 
