@@ -19,4 +19,4 @@ Lord God, you know us to be set in the midst of so many great dangers that by re
 | **Special Items and Events** |*N/A*|
 
 
-- **Prayer points can be found [here](https://stgeorgeshurstville.org.au/prayer)**
+- **Additional prayer points can be found [here](https://stgeorgeshurstville.org.au/prayer)**
