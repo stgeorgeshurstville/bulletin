@@ -22,25 +22,16 @@ Dear God, thank you for letting us know you. Please help us learn from your word
 
 
 
-### James 2:19
-You believe that there is one God. Good! Even the demons believe that—and shudder.
+### Deuteronomy 6:4-9 (NIRV)
+⁴ Israel, listen to me. The Lord is our God. The Lord is the one and only God. ⁵ Love the Lord your God with all your heart and with all your soul. Love him with all your strength. ⁶ The commandments I give you today must be in your hearts. ⁷ Make sure your children learn them. Talk about them when you are at home. Talk about them when you walk along the road. Speak about them when you go to bed. And speak about them when you get up. ⁸ Write them down and tie them on your hands as a reminder. Also tie them on your foreheads. ⁹ Write them on the doorframes of your houses. Also write them on your gates.
 
-### John 17:3
-Now this is eternal life: that they know you, the only true God, and Jesus Christ, whom you have sent.
-
-### 1 Corinthians 13:12
-For now we see only a reflection as in a mirror; then we shall see face to face. Now I know in part; then I shall know fully, even as I am fully known.
+### 1 John 3:17-18 (NIRV)
+¹⁷ Suppose someone sees a brother or sister in need and is able to help them. And suppose that person doesn’t take pity on these needy people. Then how can the love of God be in that person? ¹⁸ Dear children, don’t just talk about love. Put your love into action. Then it will truly be love.
 
 
 
 ## Sermon Outline<br>
-
-- The 2026 Vision 
-- What is Jesus’ mission?
-- Means and End 
-- The honour roll
-- The life of God 
-- Let the light illuminate 
+N/A
 
 
 
