@@ -12,7 +12,7 @@ order: 5
 | Wednesday 4th of March | Preparing in Prayer: Open Prayer Meeting| 1:30pm (Location To be announced) | 
 | Saturday 7th of March | Preparing in Prayer: Open Prayer Meeting| 3pm (Location To be announced) | 
 | Sunday 8th of March | Vision Sunday and Annual General Meeting | Combined service at 10am, Community Lunch at 12pm and then Annual General Meeting at 1pm |
-|Friday 13th February | The Bridge: first meeting| 6pm |
+|Friday 13th February | The Bridge: first meeting| 6pm im the Church Foyer |
 
 
 ## General
