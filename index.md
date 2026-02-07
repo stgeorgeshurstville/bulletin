@@ -12,8 +12,8 @@ title: Welcome
 ## Knowing God 
 
 
-#### Incline your ear, O Lord, and answer us. Save your servants who trust in you. Be gracious to us, O Lord, for to you do we cry all day long.
-##### Psalm 86: 1-3
+#### "Clap your hands, O peoples. Shout out with loud songs of joy."
+##### Psalm 47: 1
 
 ---
 - We are gathering in person! For people who can’t gather in person, you can watch online [here](https://stgeorgeshurstville.org.au/sunday-english-online)
