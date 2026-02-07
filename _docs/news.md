@@ -7,7 +7,13 @@ order: 5
 
 | Date | Event | Time |
 | ---- | ---- | ---- |
-|  |  |  |
+| Sunday 1st March | Pre-AGM Discussion | To be Announced |
+| Sumday 1st March | 9:30am English Service Roundtable Meeting | 11am (Location To be announced) | 
+| Wednesday 4th of March | Preparing in Prayer: Open Prayer Meeting| 1:30pm (Location To be announced) | 
+| Saturday 7th of March | Preparing in Prayer: Open Prayer Meeting| 3pm (Location To be announced) | 
+| Sunday 8th of March | Vision Sunday and Annual General Meeting | Combined service at 10am, Community Lunch at 12pm and then Annual General Meeting at 1pm |
+|Friday 13th February | The Bridge: first meeting| 6pm |
+
 
 ## General
 ### 2026 Vision: To Know Him and Make Him Known
@@ -26,13 +32,45 @@ As the school holidays draw to a close, we are thrilled to welcome everyone back
 - **ESL** Resuming **Wednesday, 11th February**
 - **New Gen** resuming **Sunday 1st February**
 
+### Vision Sunday & Annual General Meeting
+Save the Date: Sunday, 8th March
+We are excited to invite the entire St George’s church family to Combined Service & AGM. This is a pivotal day in our calendar as we gather to celebrate what God has done and look forward with anticipation to where He is leading us in 2026.
+
+Sunday, 1st March: Preparations & Opportunities
+Pre-AGM Discussion To help us prepare for the official meeting on the 8th, we will be holding a Pre-AGM session. This is a vital time for open discussion on key issues and priorities, allowing us to enter the official meeting with clarity and shared understanding.
+
+Sunday, 8th March: Vision Sunday Schedule
+This year, we will gather as one unified body for a special combined service.
+- 10:00am – Combined Service: A powerful time of worship and vision-casting. (Location to be confirmed—stay tuned for updates!)
+- 12:00pm – Community Lunch: Join us at the Main Site for a shared meal and fellowship.
+- 1:00pm – Annual General Meeting: Following lunch, we will meet in the Chapel for our AGM to hear ministry updates and participate in the stewardship of our church.
+
+Preparing in Prayer
+We believe that our plans only succeed when they are rooted in prayer. We invite you to join leadership and fellow members to seek God’s wisdom at any of our open prayer meetings:
+- Wednesday, 4th March @ 1:30pm (English)
+- Saturday, 7th March @ 3:00pm (Cantonese)
+
+9:30am English Service Roundtable Meeting | 1st March 11:00am 
+As we consider the missional opportunities available while we meet at Hurstville Public School, we want to create a space to discuss how we can capitalize on the unique context in front of us. Please join us for a roundtable meeting at 11:00am to think through how we can make Jesus known in our local community.
+
+
+### New to the Family? Join "The Bridge"
+If you’ve recently moved into the area or have started making this your home church after moving from another congregation, we’d love to officially welcome you.
+
+We know that transitioning to a new church can feel a bit like being the "new kid at school," even if you’ve been a Christian for years. The Bridge is a casual, short-term group designed specifically for you to get to know our Senior Minister, hear the heart and vision of our church, and connect with others who are also new to the pews.
+
+- When: Friday evenings at 6:00 PM(the first meeting will be this coming Friday, 13 February, 2026).  
+- Where: Meet at the church foyer
+- The Plan: We’ll gather briefly, then head out to a local restaurant for dinner together.
+- Duration: We’ll have you wrapped up and ready for your weekend by 7:30 PM.
+
+Before you jump into a permanent small group, come spend a few Friday nights with us. It’s the easiest way to move from "visiting" to "belonging."
 
 
 ### Growing Together: Discipleship Group update
 A big thank you to everyone who submitted their availability for our upcoming discipleship groups! We are thrilled to see so many of you eager to grow in your discipleship. If you haven’t put your name down yet, you can still do so through [this link](https://forms.gle/orMNCVmsTnuLH7Xx5)
 Our groups will officially start the week beginning February 8th. Group leaders will get back to you shortly with more details regarding times and locations.
 Our primary goal in organizing these groups is to ensure a healthy balance of participants; we want to make sure every group is intimate enough for deep conversation and that no single group becomes overcrowded. With that in mind, if you didn’t get your first preference, please come and speak with Ben. He’s happy to chat with you to ensure everyone feels settled and supported.
-
 
 
 ### Growing in Our Welcoming:
