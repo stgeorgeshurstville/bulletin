@@ -10,9 +10,7 @@ Heavenly Father, keep your household the Church continually in your true religio
 
 | **Section** | **Content** |
 |--------------|-------------|
-| **From the Passage** | Three-in-one, one-in-three, God of our salvation: Heavenly Father, blessed Son, and eternal Spirit. We worship you as one Being, one essence, and one God in three distinct persons, for bringing sinners to know you and your kingdom.
-
-<br><br> O Father, you have loved us and sent Jesus to redeem us. O Jesus, you have loved us and taken on our human nature; you shed your blood to wash away our sins and worked out a perfect righteousness to cover our unworthiness. O Holy Spirit, you have loved us and entered our hearts; you planted eternal life within us and revealed the glories of Jesus.
+| **From the Passage** | Three-in-one, one-in-three, God of our salvation: Heavenly Father, blessed Son, and eternal Spirit. We worship you as one Being, one essence, and one God in three distinct persons, for bringing sinners to know you and your kingdom. <br><br> O Father, you have loved us and sent Jesus to redeem us. O Jesus, you have loved us and taken on our human nature; you shed your blood to wash away our sins and worked out a perfect righteousness to cover our unworthiness. O Holy Spirit, you have loved us and entered our hearts; you planted eternal life within us and revealed the glories of Jesus.
 
 <br><br> Three persons and one God: We bless and praise you for love so undeserved, so beyond words, so wonderful, and so powerful to save the lost and raise them to glory.
 
