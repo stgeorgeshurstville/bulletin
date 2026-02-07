@@ -14,7 +14,7 @@ Heavenly Father, keep your household the Church continually in your true religio
 | **Mission & Vision** | **For Growing Out**<br><br>*Please reflect on your own prayer*|
 | **Global & Nation** | **Local**<br><br>*Please reflect on your own prayer* |
 | **Mission Partners** | **Phil and Lil in West Asia**  **<br><br>*Please reflect on your own prayer*|
-| **Church Ministries** |**Discipleship Groups.** **<br><br>*Please reflect on your own prayer*|
+| **Church Ministries** | **Discipleship Groups** **<br><br>*Please reflect on your own prayer*|
 | **Groups in Church** |*N/A*|
 | **Special Items and Events** |*N/A*|
 
