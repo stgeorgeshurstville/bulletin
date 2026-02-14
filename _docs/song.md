@@ -28,43 +28,43 @@ All the Earth rejoice <br>
 He wraps himself in light <br>
 And darkness tries to hide <br>
 And trembles at His voice <br>
-Trembles at His voice <br> <br>
+Trembles at His voice <br>
 
 How great is our God, sing with me <br>
 How great is our God, and all will see <br>
-How great, how great is our God <br> <br>
+How great, how great is our God <br>
 
 Age to age He stands <br>
 And time is in His hands <br>
 Beginning and the end <br>
-Beginning and the end <br> <br>
+Beginning and the end <br>
 
 The Godhead Three in One <br>
 Father Spirit and Son <br>
 The Lion and the Lamb <br>
-The Lion and the Lamb <br> <br>
+The Lion and the Lamb <br>
 
 How great is our God, sing with me <br>
 How great is our God, and all will see <br>
-How great, how great is our God <br> <br>
+How great, how great is our God <br>
 
 Name above all names  <br>
 You are worthy of our praise  <br>
 And my heart will sing <br>
-How great is our God <br> <br>
+How great is our God <br>
 
 Name above all names  <br>
 You are worthy of our praise  <br>
 And my heart will sing <br>
-How great is our God <br> <br>
+How great is our God <br>
 
 How great is our God, sing with me <br>
 How great is our God, and all will see <br>
-How great, how great is our God <br> <br>
+How great, how great is our God <br>
 
 © 2004 Christ Tomlin, Capitol CMG Publishing, Music Services, Reservoir Media Management, Inc <br>
 CCLI 62951 (main copyright licence) <br>
-CCLI 174113 (streaming licence) <br> <br>
+CCLI 174113 (streaming licence) <br>
 
 ### 2. Only a Holy God <br>
 Who else commands all the hosts of heaven <br>
