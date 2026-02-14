@@ -23,7 +23,7 @@ order: 1
 The splendour of a King,  <br>
 clothed in majesty <br>
 Let all the Earth rejoice <br>
-All the Earth rejoice <br> <br>
+All the Earth rejoice <br>
 
 He wraps himself in light <br>
 And darkness tries to hide <br>
