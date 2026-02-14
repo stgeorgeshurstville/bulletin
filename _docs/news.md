@@ -21,23 +21,12 @@ This year, our vision is to know God and to make Him known. For many of us, "kno
 To help us in this pursuit, we have started a six-week series on the Nicene Creed. This historic statement of belief has served the church for centuries by clarifying exactly who God is, helping His people to savor Him rightly.
 Over the coming weeks, we invite you to pray that you would savor God in all His fullness as we strive to know Him more deeply together.
 
-### 🎒 Term 1 Program Launch: Welcome Back!
-
-As the school holidays draw to a close, we are thrilled to welcome everyone back for another year of growth, community, and connection. Our programs are ready to jump into action for Term 1—please take note of the following kick-off dates!
-
-📅 Save the Dates
-- **Mentoring** Resuming **Sunday, 1st February**
-- **Youth** Resuming **Friday, 6th February**
-- **D-Groups** Resuming **Sunday, 8th February**
-- **ESL** Resuming **Wednesday, 11th February**
-- **New Gen** resuming **Sunday 1st February**
-
 ### Vision Sunday & Annual General Meeting
-Save the Date: Sunday, 8th March
-We are excited to invite the entire St George’s church family to Combined Service & AGM. This is a pivotal day in our calendar as we gather to celebrate what God has done and look forward with anticipation to where He is leading us in 2026.
-
 Sunday, 1st March: Preparations & Opportunities
 Pre-AGM Discussion To help us prepare for the official meeting on the 8th, we will be holding a Pre-AGM session. This is a vital time for open discussion on key issues and priorities, allowing us to enter the official meeting with clarity and shared understanding.
+
+Save the Date: Sunday, 8th March
+We are excited to invite the entire St George’s church family to Combined Service & AGM. This is a pivotal day in our calendar as we gather to celebrate what God has done and look forward with anticipation to where He is leading us in 2026.
 
 Sunday, 8th March: Vision Sunday Schedule
 This year, we will gather as one unified body for a special combined service.
@@ -66,6 +55,15 @@ We know that transitioning to a new church can feel a bit like being the "new ki
 
 Before you jump into a permanent small group, come spend a few Friday nights with us. It’s the easiest way to move from "visiting" to "belonging."
 
+🌏 Mission Trip: Sumba, Indonesia
+Compassion, one of our mission partners, has just announced an upcoming mission trip to our church’s focus area: the Island of Sumba, Indonesia! Through our partnership with Compassion, we have a unique opportunity to see firsthand the impact being made on the ground and to connect deeply with the community we support.
+📅 Key Details
+Destination: Sumba, Indonesia
+Dates: January 19th – 26th, 2027 (During the school holidays)
+Focus: Visiting our Compassion mission partners and local projects.
+📝 How to Get Involved
+If you feel called to join us or simply want to learn more, here is what you need to know:
+Information Sheets: These are available right now at the Welcome Desk. Please grab one today!
 
 ### Growing Together: Discipleship Group update
 A big thank you to everyone who submitted their availability for our upcoming discipleship groups! We are thrilled to see so many of you eager to grow in your discipleship. If you haven’t put your name down yet, you can still do so through [this link](https://forms.gle/orMNCVmsTnuLH7Xx5)
