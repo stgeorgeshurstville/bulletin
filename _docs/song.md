@@ -70,53 +70,53 @@ CCLI 174113 (streaming licence) <br>
 Who else commands all the hosts of heaven <br>
 Who else could make every king bow down <br>
 Who else can whisper and darkness trembles <br>
-Only a Holy God <br> <br>
+Only a Holy God <br>
 
 What other beauty demands such praises <br>
 What other splendour outshines the sun <br>
 What other majesty rules with justice <br>
-Only a Holy God <br> <br>
+Only a Holy God <br>
 
 Come and behold Him <br>
 The One and the Only <br>
 Cry out sing holy <br>
 Forever a Holy God <br>
-Come and worship the Holy God <br> <br>
+Come and worship the Holy God <br>
 
 What other glory consumes like fire <br>
 What other power can raise the dead <br>
 What other name remains undefeated <br>
-Only a Holy God <br> <br>
+Only a Holy God <br>
 
 Come and behold Him <br>
 The One and the Only <br>
 Cry out sing holy <br>
 Forever a Holy God <br>
-Come and worship the Holy God <br> <br>
+Come and worship the Holy God <br>
 
 Come and behold Him <br>
 The One and the Only <br>
 Cry out sing holy <br>
 Forever a Holy God <br>
-Come and worship the Holy God <br> <br>
+Come and worship the Holy God <br>
 
 Who else could rescue me from my failing <br>
 Who else would offer His only Son <br>
 Who else invites me to call Him Father <br>
 Only a Holy God <br>
-Only my Holy God <br> <br>
+Only my Holy God <br>
 
 Come and behold Him <br>
 The One and the Only <br>
 Cry out sing holy <br>
 Forever a Holy God <br>
-Come and worship the Holy God <br> <br>
+Come and worship the Holy God <br>
 
 Come and behold Him <br>
 The One and the Only <br>
 Cry out sing holy <br>
 Forever a Holy God <br>
-Come and worship the Holy God <br> <br>
+Come and worship the Holy God <br>
 
 CCLI Song # 7073332 CityAlight Music: Dustin Smith | Jonny Robinson | Michael Farren | Rich Thompson <br>
 CCLI 62951 (main copyright licence) <br>
@@ -126,17 +126,17 @@ CCLI 174113 (streaming licence) <br>
 Crown Him with many crowns <br>
 The Lamb upon His throne <br>
 Hark! How the heavenly anthem drowns <br>
-All music but its own <br> <br>
+All music but its own <br>
 
 Awake my soul and sing <br>
 Of Him who died for thee <br>
 And hail Him as thy matchless King <br>
-Through all eternity <br> <br>
+Through all eternity <br>
 
 Crown Him the Lord of life <br>
 Who triumphed o'er the grave <br>
 And rose victorious in the strife <br>
-For those He came to save <br> <br>
+For those He came to save <br>
 
 His glories now we sing <br>
 Who died and rose on high <br>
@@ -145,12 +145,12 @@ And lives that death may die <br>
 Crown Him the Lord of love <br>
 Behold His hands and side <br>
 Those wounds yet visible above <br>
-In beauty glorified <br> <br>
+In beauty glorified <br>
 
 All hail, Redeemer, hail! <br>
 For Thou hast died for me <br>
 Thy praise and glory shall not fail <br>
-Throughout eternity <br> <br>
+Throughout eternity <br>
 
 CCLI Song #7206860 | © 2021 Emu Music Ltd | Alanna Glover | Godfrey Thring | Jamie Dallimore | Matthew Bridges <br>
 CCLI 62951 (main copyright licence) <br>
@@ -160,44 +160,44 @@ CCLI 174113 (streaming licence) <br>
 I believe in Christ, risen from the dead <br>
 He now reigns victorious, His kingdom knows no end <br>
 Through His resurrection death has lost its hold <br>
-I know on that final day I’ll rise as Jesus rose <br> <br>
-
-On that day we will see you shining brighter than the sun <br>
-On that day we will know you as we lift our voice as one <br>
-Till that day we will praise you for your never ending grace <br>
-And we will keep on singing on that glorious day <br> <br>
- 
-What a blessed hope, though now tired and worn <br>
-We will spend eternity around our Saviour’s throne <br>
-Though we grieve our losses we grieve not in vain <br>
-For we know our crown of glory waits beyond the grave <br> <br>
-
-On that day we will see you shining brighter than the sun <br>
-On that day we will know you as we lift our voice as one <br>
-Till that day we will praise you for your never ending grace <br>
-And we will keep on singing on that glorious day <br> <br>
-
-Hallelujah what a day it will be <br>
-For at home with you my joy is complete <br>
-As I run into your arms open wide I will see <br>
-My father who is waiting for me <br> <br>
-
-Hallelujah what a day it will be <br>
-For at home with you my joy is complete <br>
-As I run into your arms open wide I will see <br>
-My father who is waiting for me <br>
-My father who is waiting for me <br> <br>
-
-On that day we will see you shining brighter than the sun <br>
-On that day we will know you as we lift our voice as one <br>
-Till that day we will praise you for your never ending grace <br>
-And we will keep on singing on that glorious day <br> <br>
+I know on that final day I’ll rise as Jesus rose <br>
 
 On that day we will see you shining brighter than the sun <br>
 On that day we will know you as we lift our voice as one <br>
 Till that day we will praise you for your never ending grace <br>
 And we will keep on singing on that glorious day <br>
-And we will keep on singing on that glorious day <br> <br>
+ 
+What a blessed hope, though now tired and worn <br>
+We will spend eternity around our Saviour’s throne <br>
+Though we grieve our losses we grieve not in vain <br>
+For we know our crown of glory waits beyond the grave <br>
+
+On that day we will see you shining brighter than the sun <br>
+On that day we will know you as we lift our voice as one <br>
+Till that day we will praise you for your never ending grace <br>
+And we will keep on singing on that glorious day <br>
+
+Hallelujah what a day it will be <br>
+For at home with you my joy is complete <br>
+As I run into your arms open wide I will see <br>
+My father who is waiting for me <br>
+
+Hallelujah what a day it will be <br>
+For at home with you my joy is complete <br>
+As I run into your arms open wide I will see <br>
+My father who is waiting for me <br>
+My father who is waiting for me <br>
+
+On that day we will see you shining brighter than the sun <br>
+On that day we will know you as we lift our voice as one <br>
+Till that day we will praise you for your never ending grace <br>
+And we will keep on singing on that glorious day <br>
+
+On that day we will see you shining brighter than the sun <br>
+On that day we will know you as we lift our voice as one <br>
+Till that day we will praise you for your never ending grace <br>
+And we will keep on singing on that glorious day <br>
+And we will keep on singing on that glorious day <br>
 
 CCLI © 71998182022 CityAlight Music (admin. Integrity Music).  <br>
 CCLI 62951 (main copyright licence)  <br>
