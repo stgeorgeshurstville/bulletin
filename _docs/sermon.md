@@ -26,7 +26,7 @@ Dear God, thank you for letting us know you. Please help us learn from your word
 ¹⁸ Then those also who have fallen asleep in Christ are lost. ¹⁹ If only for this life we have hope in Christ, we are of all people most to be pitied. ²⁰ But Christ has indeed been raised from the dead, the firstfruits of those who have fallen asleep. ²¹ For since death came through a man, the resurrection of the dead comes also through a man. ²² For as in Adam all die, so in Christ all will be made alive. ²³ But each in turn: Christ, the firstfruits; then, when he comes, those who belong to him. ²⁴ Then the end will come, when he hands over the kingdom to God the Father after he has destroyed all dominion, authority and power. ²⁵ For he must reign until he has put all his enemies under his feet. ²⁶ The last enemy to be destroyed is death. ²⁷ For he “has put everything under his feet.” Now when it says that “everything” has been put under him, it is clear that this does not include God himself, who put everything under Christ. ²⁸ When he has done this, then the Son himself will be made subject to him who put everything under him, so that God may be all in all.
 
 ## Sermon Outline <br>
-### The Father Almighty <br>  
+### The Father Almighty <br>
 - Who’ behind the ‘what’
 - The drama of 1 Cor 15
 - One God, Three Persons 
