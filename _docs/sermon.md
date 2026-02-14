@@ -27,7 +27,13 @@ Dear God, thank you for letting us know you. Please help us learn from your word
 
 ## Sermon Outline <br>
 ### The Father Almighty <br>  
-N/A
+- Who’ behind the ‘what’
+- The drama of 1 Cor 15
+- One God, Three Persons 
+- The uncreated Creator 
+- The Begetter and Begotten 
+- Conclusion: From imitation to Participation 
+
 
 ## Q&A
 Got questions or comments? Send them [here](https://tinyurl.com/SGHACQuestionsAnswers)
