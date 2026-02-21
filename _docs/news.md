@@ -52,7 +52,7 @@ We believe that our plans only succeed when they are rooted in prayer. We invite
 ### 9:30am English Service Roundtable Meeting | 1st March 11:00am 
 As we consider the missional opportunities available while we meet at Hurstville Public School, we want to create a space to discuss how we can capitalize on the unique context in front of us. Please join us for a roundtable meeting at 11:00am to think through how we can make Jesus known in our local community.
 
-### New to the Family? Join "The Bridge"
+## New to the Family? Join "The Bridge"
 If you’ve recently moved into the area or have started making this your home church after moving from another congregation, we’d love to officially welcome you.
 
 We know that transitioning to a new church can feel a bit like being the "new kid at school," even if you’ve been a Christian for years. **The Bridge** is a casual, short-term group designed specifically for you to get to know our Senior Minister, hear the heart and vision of our church, and connect with others who are also new to the pews.
@@ -64,7 +64,7 @@ We know that transitioning to a new church can feel a bit like being the "new ki
 
 Before you jump into a permanent small group, come spend a few Friday nights with us. It’s the easiest way to move from "visiting" to "belonging."
 
-### 🌏 Mission Trip: Sumba, Indonesia
+## 🌏 Mission Trip: Sumba, Indonesia
 Compassion, one of our mission partners, has just announced an upcoming mission trip to our church’s focus area: the Island of Sumba, Indonesia! Through our partnership with Compassion, we have a unique opportunity to see firsthand the impact being made on the ground and to connect deeply with the community we support.
 
 **📅 Key Details**
@@ -76,7 +76,7 @@ Compassion, one of our mission partners, has just announced an upcoming mission 
 If you feel called to join us or simply want to learn more, here is what you need to know:
 Information Sheets: These are available right now at the Welcome Desk. Please grab one today!
 
-### Growing in Our Welcoming:
+## Growing in Our Welcoming:
   
   <img width="236" alt="Screenshot 2023-07-01 134203" src="https://github.com/stgeorgeshurstville/bulletin/assets/119166299/b540ac1c-0ba4-481e-90a5-5464939f7e4c">
 
