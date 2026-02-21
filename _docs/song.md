@@ -79,6 +79,6 @@ And I love You, Lord
 
 
 
-© 1995 Graham Kendrick,Make Way Music
+\u{A9} 1995 Graham Kendrick,Make Way Music
 CCLI 62951 (main copyright licence)
 CCLI 174113 (streaming licence)
