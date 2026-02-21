@@ -22,17 +22,19 @@ Dear God, thank you for letting us know you. Please help us learn from your word
 
 
 
-### 1 Cor 15:18-28 (NIV)
-¹⁸ Then those also who have fallen asleep in Christ are lost. ¹⁹ If only for this life we have hope in Christ, we are of all people most to be pitied. ²⁰ But Christ has indeed been raised from the dead, the firstfruits of those who have fallen asleep. ²¹ For since death came through a man, the resurrection of the dead comes also through a man. ²² For as in Adam all die, so in Christ all will be made alive. ²³ But each in turn: Christ, the firstfruits; then, when he comes, those who belong to him. ²⁴ Then the end will come, when he hands over the kingdom to God the Father after he has destroyed all dominion, authority and power. ²⁵ For he must reign until he has put all his enemies under his feet. ²⁶ The last enemy to be destroyed is death. ²⁷ For he “has put everything under his feet.” Now when it says that “everything” has been put under him, it is clear that this does not include God himself, who put everything under Christ. ²⁸ When he has done this, then the Son himself will be made subject to him who put everything under him, so that God may be all in all.
+### Matthew 11:25-30 (NIV)
+²⁵ At that time Jesus said, “I praise you, Father, Lord of heaven and earth, because you have hidden these things from the wise and learned, and revealed them to little children. ²⁶ Yes, Father, for this is what you were pleased to do.
+
+²⁷ “All things have been committed to me by my Father. No one knows the Son except the Father, and no one knows the Father except the Son and those to whom the Son chooses to reveal him.
+
+²⁸ “Come to me, all you who are weary and burdened, and I will give you rest. ²⁹ Take my yoke upon you and learn from me, for I am gentle and humble in heart, and you will find rest for your souls. ³⁰ For my yoke is easy and my burden is light.”
 
 ## Sermon Outline <br>
-### The Father Almighty <br>
-- Who’ behind the ‘what’
-- The drama of 1 Cor 15
-- One God, Three Persons 
-- The uncreated Creator 
-- The Begetter and Begotten 
-- Conclusion: From imitation to Participation 
+- Why is God knowable?
+- God is knowable but not discoverable
+- God decides to be known
+- No one can know God except by Jesus
+- Love grows through knowing 
 
 
 ## Q&A
