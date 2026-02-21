@@ -58,8 +58,11 @@ If you’ve recently moved into the area or have started making this your home c
 We know that transitioning to a new church can feel a bit like being the "new kid at school," even if you’ve been a Christian for years. **The Bridge** is a casual, short-term group designed specifically for you to get to know our Senior Minister, hear the heart and vision of our church, and connect with others who are also new to the pews.
 
 **When:** Friday evenings at 6:00 PM (the first meeting will be this coming *Friday, 13 February, 2026*).  
+
 **Where:** Meet at the church foyer
+
 **The Plan:** We’ll gather briefly, then head out to a local restaurant for dinner together.
+
 **Duration:** We’ll have you wrapped up and ready for your weekend by 7:30 PM.
 
 Before you jump into a permanent small group, come spend a few Friday nights with us. It’s the easiest way to move from "visiting" to "belonging."
