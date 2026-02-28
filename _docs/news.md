@@ -8,10 +8,10 @@ order: 5
 | Date | Event | Time |
 | ---- | ---- | ---- |
 | Sunday 1st March | Pre-AGM Discussion | Details below |
-| Sunday 1st March | 9:30am English Service Roundtable Meeting | 11am | 
 | Wednesday 4th of March | Preparing in Prayer: Open Prayer Meeting| 1:30pm | 
 | Saturday 7th of March | Preparing in Prayer: Open Prayer Meeting| 3pm | 
 | Sunday 8th of March | Vision Sunday and Annual General Meeting | Combined service at 10am, Community Lunch at 12pm and then Annual General Meeting at 1pm |
+| Sunday 8th of March | Preparing in Prayer: Open Prayer Meeting| 4pm | 
 |Friday 13th February | The Bridge: first meeting| 6pm im the Church Foyer |
 
 
@@ -53,37 +53,20 @@ For other congregations members, follow the map to Hurstville Public School:
 We believe that our plans only succeed when they are rooted in prayer. We invite you to join leadership and fellow members to seek God’s wisdom at any of our open prayer meetings:
 - Wednesday, 4th March @ 1:30pm
 - Saturday, 7th March @ 3:00pm
-- Sunday, 8th March @ 4:00pm 
-
-### 9:30am English Service Roundtable Meeting | 1st March 11:00am 
-As we consider the missional opportunities available while we meet at Hurstville Public School, we want to create a space to discuss how we can capitalize on the unique context in front of us. Please join us for a roundtable meeting at 11:00am to think through how we can make Jesus known in our local community.
+- Sunday, 8th March @ 4:00pm
+  
 
 ## New to the Family? Join "The Bridge"
 If you’ve recently moved into the area or have started making this your home church after moving from another congregation, we’d love to officially welcome you.
 
 We know that transitioning to a new church can feel a bit like being the "new kid at school," even if you’ve been a Christian for years. **The Bridge** is a casual, short-term group designed specifically for you to get to know our Senior Minister, hear the heart and vision of our church, and connect with others who are also new to the pews.
 
-**When:** Friday evenings at 6:00 PM (the first meeting will be this coming *Friday, 13 February, 2026*).  
-
-**Where:** Meet at the church foyer
-
-**The Plan:** We’ll gather briefly, then head out to a local restaurant for dinner together.
-
-**Duration:** We’ll have you wrapped up and ready for your weekend by 7:30 PM.
+- **When:** Friday evenings at 6:00 PM (the first meeting will be this coming *Friday, 13 February, 2026*).
+- **Where:** Meet at the church foyer
+- **The Plan:** We’ll gather briefly, then head out to a local restaurant for dinner together.
+- **Duration:** We’ll have you wrapped up and ready for your weekend by 7:30 PM.
 
 Before you jump into a permanent small group, come spend a few Friday nights with us. It’s the easiest way to move from "visiting" to "belonging."
-
-## 🌏 Mission Trip: Sumba, Indonesia
-Compassion, one of our mission partners, has just announced an upcoming mission trip to our church’s focus area: the Island of Sumba, Indonesia! Through our partnership with Compassion, we have a unique opportunity to see firsthand the impact being made on the ground and to connect deeply with the community we support.
-
-**📅 Key Details**
-- Destination: Sumba, Indonesia
-- Dates: January 19th - 26th, 2027 (During the school holidays)
-- Focus: Visiting our Compassion mission partners and local projects
-
-**📝 How to Get Involved**
-If you feel called to join us or simply want to learn more, here is what you need to know:
-Information Sheets: These are available right now at the Welcome Desk. Please grab one today!
 
 ## Growing in Our Welcoming:
   
