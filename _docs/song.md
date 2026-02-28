@@ -4,200 +4,202 @@ order: 1
 ---
 
 ## 9:30am
-1. Knowing You Jesus
-2. Speak, O Lord
-3. O Come, All You Unfaithful
-4. All I have is Christ
+1. All Creatures of Our God and King
+2. Behold Our God
+3. Jesus Paid It All
+4. Shine Jesus Shine
 
 **Scroll below for 9:30am song lyrics**
 
 ## 4:00pm
-1. Crown Him with many Crowns
-2. Speak, O Lord
-3. Come Behold the Wondrous Mystery
-4. Yet not I But Through Christ in Me
+1. This is Amazing Grace
+2. Rock of Ages
+3. O Breath of Life
+4. Rise with the Sun
 
 ## 9:30am Song Lyrics <br>
 
-### 1. Knowing You Jesus <br>
-All I once held dear, built my life upon<br>
-All this world reveres, and wars to own<br>
-All I once thought gain I have counted loss<br>
-Spent and worthless now, compared to this<br><br>
+### 1. All Creatures of Our God and King <br>
+Verse 1<br>
+All creatures of our God and King<br>
+Lift up your voice and with us sing<br>
+O praise Him! Alleluia!<br><br>
 
-Knowing You, Jesus<br>
-Knowing You<br>
-There is no greater thing<br>
-You're my all, You're the best<br>
-You're my joy, my righteousness<br>
-And I love You, Lord<br><br>
+Thou, burning sun with golden beam<br>
+Thou, silver moon with softer gleam<br>
+O praise Him! O praise Him!<br>
+Alleluia! Alleluia! Allelu - ia!<br><br>
 
-Now my heart's desire is to know You more<br>
-To be found in You and known as Yours<br>
-To possess by faith what I could not earn<br>
-All-surpassing gift of righteousness<br><br>
+Verse 2<br>
+Let all things their Creator bless<br>
+And worship Him in humbleness<br>
+O praise Him! Alleluia!<br><br>
 
-Knowing You, Jesus<br>
-Knowing You<br>
-There is no greater thing<br>
-You're my all, You're the best<br>
-You're my joy, my righteousness<br>
-And I love You, Lord<br><br>
+Praise, praise the Father, praise the Son<br>
+And praise the Spirit, Three in One!<br>
+O praise Him! O praise Him!<br>
+Alleluia! Alleluia! Allelu - ia!<br><br>
 
-Oh, to know the power of Your risen life<br>
-And to know You in Your sufferings<br>
-To become like You in Your death, my Lord<br>
-So with You to live and never die<br><br>
+Verse 3<br>
+All the Redeemed washed by His blood<br>
+Come and rejoice in His great love<br>
+O praise Him! Alleluia!<br><br>
 
-Knowing You, Jesus<br>
-Knowing You<br>
-There is no greater thing<br>
-You're my all, You're the best<br>
-You're my joy, my righteousness<br>
-And I love You, Lord<br><br>
+Christ has defeated every sin<br>
+Cast all your burdens now on Him<br>
+O praise Him! O praise Him!<br>
+Alleluia! Alleluia! Allelu - ia!<br><br>
 
-Knowing You, Jesus<br>
-Knowing You<br>
-There is no greater thing<br>
-You're my all, You're the best<br>
-You're my joy, my righteousness<br><br>
+Verse 4<br>
+He shall return in pow’r to reign<br>
+Heaven and earth will join to say<br>
+O praise Him! Alleluia!<br><br>
 
-You're my all, You're the best<br>
-You're my joy, my righteousness<br>
-And I love You, Lord<br>
-And I love You, Lord<br><br>
+Then who shall fall on bended knee?<br>
+All creatures of our God and King<br>
+O praise Him! O praise Him!<br>
+Alleluia! Alleluia! Allelu - ia!<br><br>
 
-© 1995 Graham Kendrick,Make Way Music<br>
-CCLI 62951 (main copyright licence)<br>
-CCLI 174113 (streaming licence)<br><br>
+CCLI 6529800 (main copyright licence)<br>
+CCLI 174113 (streaming licence)<br>
 
-### 2. Speak, O Lord <br>
-Speak, O Lord, as we come to You<br>
-To receive the food of Your holy Word<br>
-Take Your truth, plant it deep in us<br>
-Shape and fashion us in Your likeness<br>
-That the light of Christ might be seen today<br>
-In our acts of love and our deeds of faith<br>
-Speak, O Lord, and fulfill in us<br>
-All Your purposes for Your glory<br><br>
+### 2. Behold Our God <br>
+Verse 1<br>
+Who has held the oceans in His hands?<br>
+Who has numbered every grain of sand?<br>
+Kings and nations tremble at His voice<br>
+All creation rises to rejoice<br><br>
 
-Teach us, Lord, full obedience<br>
-Holy reverence, true humility<br>
-Test our thoughts and our attitudes<br>
-In the radiance of Your purit<br>
-Cause our faith to rise, cause our eyes to see<br>
-Your majestic love and authority<br>
-Words of pow'r that can never fail<br>
-Let their truth prevail over unbelief<br><br>
+Verse 2<br>
+Who has given counsel to the Lord?<br>
+Who can question any of His words?<br>
+Who can teach the one who knows all things?<br>
+Who can fathom all his wondrous deeds?<br><br>
 
-Speak, O Lord, and renew our minds<br>
-Help us grasp the heights of Your plans for us<br>
-Truths unchanged from the dawn of time<br>
-That will echo down through eternity<br>
-And by grace, we'll stand on Your promises<br>
-And by faith, we'll walk as You walk with us<br>
-Speak, O Lord, 'til Your church is built<br>
-And the earth is filled with Your glory<br><br>
+Chorus<br>
+Behold our God seated on His throne, <br>
+Come let us adore Him<br>
+Behold our King, nothing can compare, <br>
+Come let us adore Him!<br><br>
 
-© 2019 Keith Getty/Stuart Townend | Thankyou Music, Thank You Music Ltd.<br>
-CCLI 62951 (main copyright licence)<br>
-CCLI 174113 (streaming licence)<br><br>
+Verse 3<br>
+Who has felt the nails upon His hands<br>
+Bearing all the guilt of sinful man?<br>
+God eternal, humbled to the grave<br>
+Jesus, Saviour, risen now to reign<br><br>
 
-### 3. O Come, All You Unfaithful <br>
-O come, all you unfaithful<br>
-Come, weak and unstable<br>
-Come, know you are not alone<br>
-O come, barren and waiting ones<br>
-Weary of praying, come<br>
-See what your God has done<br><br>
+Chorus<br>
+Behold our God seated on His throne, <br>
+Come let us adore Him<br>
+Behold our King, nothing can compare, <br>
+Come let us adore Him!<br><br>
 
-Christ is born, Christ is born<br>
-Christ is born for you<br><br>
+Bridge<br>
+You will reign forever (Let Your glory fill the earth)<br>
+You will reign forever (Let your glory fill the earth)<br>
+You will reign forever (Let your glory fill the earth)<br>
+You will reign forever (Let your glory fill) x2<br><br>
 
-O come, bitter and broken<br>
-Come with fears unspoken<br>
-Come, taste of His perfect love<br><br>
+Chorus<br>
+Behold our God seated on His throne, <br>
+Come let us adore Him<br>
+Behold our King, nothing can compare, <br>
+Come let us adore Him!<br><br>
 
-O come, guilty and hiding ones<br>
-There is no need to run<br>
-See what your God has done<br><br>
+CCLI 5937510 (main copyright licence) <br>
+CCLI 174113 (streaming licence)<br>
 
-Christ is born, Christ is born<br>
-Christ is born for you<br>
-Christ is born, Christ is born<br>
-Christ is born for you<br><br>
+### 3. Jesus Paid It All <br>
+Verse 1<br>
+I hear the Savior say<br>
+”Thy strength indeed is small<br>
+Child of weakness watch and pray<br>
+Find in Me thine all in all”<br><br>
 
-He’s the Lamb who was given<br>
-Slain for our pardon<br>
-His promise is peace<br>
-For those who believe<br><br>
+Chorus<br>
+Jesus paid it all<br>
+All to Him I owe<br>
+Sin had left a crimson stain<br>
+He washed it white as snow<br><br>
 
-He’s the Lamb who was given<br>
-Slain for our pardon<br>
-His promise is peace<br>
-For those who believe<br><br>
+Verse 2<br>
+Lord now indeed I find<br>
+Thy pow’r and Thine alone<br>
+Can change the leper’s spots<br>
+And melt the heart of stone.<br><br>
 
-So come, though you have nothing<br>
-Come, He is the offering<br>
-Come, see what your God has done<br><br>
+Chorus<br>
+Jesus paid it all<br>
+All to Him I owe<br>
+Sin had left a crimson stain<br>
+He washed it white as snow<br><br>
 
-Christ is born, Christ is born<br>
-Christ is born for you<br>
-Christ is born, Christ is born<br>
-Christ is born for you<br><br>
+Verse 3<br>
+And when before the throne<br>
+I stand in Him complete<br>
+Jesus died my soul to save<br>
+my lips shall still repeat.<br><br>
 
-CLI Song # 7160115 © 2020 Sovereign Grace Praise <br>
-CCLI 62951 (main copyright licence)<br>
-CCLI 174113 (streaming licence)<br><br>
+Chorus<br>
+Jesus paid it all<br>
+All to Him I owe<br>
+Sin had left a crimson stain<br>
+He washed it white as snow<br><br>
 
+Bridge<br>
+O praise the One who paid my debt<br>
+And raised this life up from the dead<br>
+O praise the One who paid my debt<br>
+And raised this life up from the dead (x6)<br><br>
 
-### 4. All I have is Christ <br>
-Come behold the wondrous mystery<br>
-In the dawning of the King<br>
-He, the theme of heaven's praises<br>
-Robed in frail humanity<br><br>
+Chorus<br>
+Jesus paid it all<br>
+All to Him I owe<br>
+Sin had left a crimson stain<br>
+He washed it white as snow<br><br>
 
-In our longing, in our darkness<br>
-Now the Light of Life has come<br>
-Look to Christ, who condescended<br>
-Took on flesh to ransom us<br><br>
+CCLI 22331 (main copyright licence)<br> 
+CCLI 174113 (streaming licence)<br>
 
-Come behold the wondrous mystery<br>
-He, the perfect Son of Man<br>
-In His living, in His suffering<br>
-Never trace nor stain of sin<br><br>
+### 4. Shine Jesus Shine <br>
+Verse 1<br>
+Lord, the light of your love is shining<br>
+In the midst of the darkness shining<br>
+Jesus, light of the world, shine upon us<br>
+Set us free by the truth you now bring us<br>
+Shine on me, Shine on me<br><br>
 
-See the true and better Adam<br>
-Come to save the hell-bound man<br>
-Christ the great and sure fulfillment<br>
-Of the law; in Him we stand<br><br>
+Chorus<br>
+Shine, Jesus, shine, fill this land with the Father's glory<br>
+Blaze, Spirit, blaze, set our hearts on fire<br>
+Flow, river, flow, flood the nations with grace and mercy<br>
+Send forth your word, Lord, and let there be light!<br><br>
 
-Come behold the wondrous mystery<br>
-Christ, the Lord upon the tree<br>
-In the stead of ruined sinners<br>
-Hangs the Lamb in victory<br><br>
+Verse 2<br>
+Lord, I come to your awesome presence<br>
+From the shadows into your radiance<br>
+By the blood I may enter your brightness<br>
+Search me, try me, consume all my darkness<br>
+Shine on me, Shine on me<br><br>
 
-See the price of our redemption<br>
-See the Father's plan unfold<br>
-Bringing many sons to glory<br>
-Grace unmeasured, love untold<br><br>
+Chorus<br>
+Shine, Jesus, shine, fill this land with the Father's glory<br>
+Blaze, Spirit, blaze, set our hearts on fire<br>
+Flow, river, flow, flood the nations with grace and mercy<br>
+Send forth your word, Lord, and let there be light!<br><br>
 
-Come behold the wondrous mystery<br>
-Slain by death, the God of life<br>
-But no grave could e'er restrain Him<br>
-Praise the Lord; He is alive!<br><br>
+Verse 3<br>
+As we gaze on your kingly brightness<br>
+So our faces display your likeness<br>
+Ever changing from glory to glory<br>
+Mirrored here may our lives tell your story<br>
+Shine on me, Shine on me<br><br>
 
-What a foretaste of deliverance<br>
-How unwavering our hope<br>
-Christ in power resurrected<br>
-As we will be when He comes<br><br>
+Chorus<br>
+Shine, Jesus, shine, fill this land with the Father's glory<br>
+Blaze, Spirit, blaze, set our hearts on fire<br>
+Flow, river, flow, flood the nations with grace and mercy<br>
+Send forth your word, Lord, and let there be light!<br><br>
 
-What a foretaste of deliverance<br>
-How unwavering our hope<br>
-Christ in power resurrected<br>
-As we will be when He comes<br><br>
-
-© 2013 The Village Church (Admin The Village Church) McKinney Music, Inc, Getty Music Hymns and Songs, Love Your Enemies Publishing (Admin. by Music Services, Inc.) CCLI #7026028<br>
-
-CCLI 62951 (main copyright licence)<br>
+CCLI 30426 (main copyright licence) <br>
 CCLI 174113 (streaming licence)<br>
