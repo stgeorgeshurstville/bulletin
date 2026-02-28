@@ -47,7 +47,7 @@ This year, we will gather as one unified body for a special combined service.
 
 For other congregations members, follow the map to Hurstville Public School:
 
-![Direction to HPPS](../images/direction%20to%20HPPS.png)
+<img src="../images/direction%20to%20HPPS.png" alt="Direction to HPPS" width="50%">
 
 ### Preparing in Prayer
 We believe that our plans only succeed when they are rooted in prayer. We invite you to join leadership and fellow members to seek God’s wisdom at any of our open prayer meetings:
