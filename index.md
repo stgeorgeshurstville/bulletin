@@ -12,8 +12,8 @@ title: Welcome
 ## Knowing God 
 
 
-#### When you call to me, says the Lord, I will answer you; I will be with you in trouble, I will rescue you and honour you.
-##### Psalm 91:15,16
+#### My eyes are ever towards the Lord, for he will pluck my feet out of the net. Turn to me, and be gracious to me; for I am lonely and afflicted. 
+##### Psalm 25: 15, 16
 
 ---
 - We are gathering in person! For people who can’t gather in person, you can watch online [here](https://stgeorgeshurstville.org.au/sunday-english-online)
