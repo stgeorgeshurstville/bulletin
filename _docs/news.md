@@ -43,6 +43,12 @@ This year, we will gather as one unified body for a special combined service.
 - **12:00pm – Community Lunch:** Join us at the Main Site for a shared meal and fellowship.
 - **1:00pm – Annual General Meeting:** Following lunch, we will meet in the Chapel for our AGM to hear ministry updates and participate in the stewardship of our church.
 
+**Please note:** For this week only, we ask that you avoid parking in the Kelwyn Street car park unless you have mobility issues. This is to accommodate the Community-Based Language School that meets on-site every week. Thank you for your cooperation!
+
+For other congregations members, follow the map to Hurstville Public School:
+
+[Alt text](images/direction to HPPS.png)  
+
 ### Preparing in Prayer
 We believe that our plans only succeed when they are rooted in prayer. We invite you to join leadership and fellow members to seek God’s wisdom at any of our open prayer meetings:
 - Wednesday, 4th March @ 1:30pm
