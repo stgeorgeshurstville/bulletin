@@ -22,19 +22,16 @@ Dear God, thank you for letting us know you. Please help us learn from your word
 
 
 
-### Matthew 11:25-30 (NIV)
-²⁵ At that time Jesus said, “I praise you, Father, Lord of heaven and earth, because you have hidden these things from the wise and learned, and revealed them to little children. ²⁶ Yes, Father, for this is what you were pleased to do.
+### Galations 3:26-4:7 (NIV)
+²⁶ So in Christ Jesus you are all children of God through faith, ²⁷ for all of you who were baptized into Christ have clothed yourselves with Christ. ²⁸ There is neither Jew nor Gentile, neither slave nor free, nor is there male and female, for you are all one in Christ Jesus. ²⁹ If you belong to Christ, then you are Abraham’s seed, and heirs according to the promise.
 
-²⁷ “All things have been committed to me by my Father. No one knows the Son except the Father, and no one knows the Father except the Son and those to whom the Son chooses to reveal him.
-
-²⁸ “Come to me, all you who are weary and burdened, and I will give you rest. ²⁹ Take my yoke upon you and learn from me, for I am gentle and humble in heart, and you will find rest for your souls. ³⁰ For my yoke is easy and my burden is light.”
+¹ What I am saying is that as long as an heir is underage, he is no different from a slave, although he owns the whole estate. ² The heir is subject to guardians and trustees until the time set by his father. ³ So also, when we were underage, we were in slavery under the elemental spiritual forces of the world. ⁴ But when the set time had fully come, God sent his Son, born of a woman, born under the law, ⁵ to redeem those under the law, that we might receive adoption to sonship. ⁶ Because you are his sons, God sent the Spirit of his Son into our hearts, the Spirit who calls out, “Abba, Father.” ⁷ So you are no longer a slave, but God’s child; and since you are his child, God has made you also an heir.
 
 ## Sermon Outline <br>
-- Why is God knowable?
-- God is knowable but not discoverable
-- God decides to be known
-- No one can know God except by Jesus
-- Love grows through knowing 
+- Roadblocks to knowing the True God
+- Forgiven strangers or Beloved Sons?
+- The Person and Work of the Spirit
+- Conclusion: The Spiritless life
 
 
 ## Q&A
