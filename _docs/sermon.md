@@ -22,17 +22,26 @@ Dear God, thank you for letting us know you. Please help us learn from your word
 
 
 
-### Galations 3:26-4:7 (NIV)
-²⁶ So in Christ Jesus you are all children of God through faith, ²⁷ for all of you who were baptized into Christ have clothed yourselves with Christ. ²⁸ There is neither Jew nor Gentile, neither slave nor free, nor is there male and female, for you are all one in Christ Jesus. ²⁹ If you belong to Christ, then you are Abraham’s seed, and heirs according to the promise.
+### Matthew 17:1-13 (NIV) 
+After six days Jesus took with him Peter, James and John the brother of James, and led them up a high mountain by themselves. ² There he was transfigured before them. His face shone like the sun, and his clothes became as white as the light. ³ Just then there appeared before them Moses and Elijah, talking with Jesus.
 
-¹ What I am saying is that as long as an heir is underage, he is no different from a slave, although he owns the whole estate. ² The heir is subject to guardians and trustees until the time set by his father. ³ So also, when we were underage, we were in slavery under the elemental spiritual forces of the world. ⁴ But when the set time had fully come, God sent his Son, born of a woman, born under the law, ⁵ to redeem those under the law, that we might receive adoption to sonship. ⁶ Because you are his sons, God sent the Spirit of his Son into our hearts, the Spirit who calls out, “Abba, Father.” ⁷ So you are no longer a slave, but God’s child; and since you are his child, God has made you also an heir.
+⁴ Peter said to Jesus, “Lord, it is good for us to be here. If you wish, I will put up three shelters—one for you, one for Moses and one for Elijah.”
+
+⁵ While he was still speaking, a bright cloud covered them, and a voice from the cloud said, “This is my Son, whom I love; with him I am well pleased. Listen to him!”
+
+⁶ When the disciples heard this, they fell facedown to the ground, terrified. ⁷ But Jesus came and touched them. “Get up,” he said. “Don’t be afraid.” ⁸ When they looked up, they saw no one except Jesus.
+
+⁹ As they were coming down the mountain, Jesus instructed them, “Don’t tell anyone what you have seen, until the Son of Man has been raised from the dead.”
+
+¹⁰ The disciples asked him, “Why then do the teachers of the law say that Elijah must come first?”
+
+¹¹ Jesus replied, “To be sure, Elijah comes and will restore all things. ¹² But I tell you, Elijah has already come, and they did not recognize him, but have done to him everything they wished. In the same way the Son of Man is going to suffer at their hands.” ¹³ Then the disciples understood that he was talking to them about John the Baptist.
 
 ## Sermon Outline <br>
-- Roadblocks to knowing the True God
-- Forgiven strangers or Beloved Sons?
-- The Person and Work of the Spirit
-- Conclusion: The Spiritless life
-
+- Verification Point 1: The Transfigured Appearance of Jesus.
+- Verification Point 2: The Witnesses of Moses and Elijah.
+- Verification Point 3: The Voice of the Father from Heaven.
+- Verification Point 4: The Fulfilled Promise of the Forerunner.
 
 ## Q&A
 Got questions or comments? Send them [here](https://tinyurl.com/SGHACQuestionsAnswers)
