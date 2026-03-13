@@ -4,202 +4,274 @@ order: 1
 ---
 
 ## 9:30am
-1. All Creatures of Our God and King
-2. Behold Our God
-3. Jesus Paid It All
-4. Shine Jesus Shine
+1. This I Believe (The Creed) 
+2. Trust & Obey
+3. King of Kings
+4. Undivided
 
 **Scroll below for 9:30am song lyrics**
 
 ## 4:00pm
-1. This is Amazing Grace
-2. Rock of Ages
-3. O Breath of Life
-4. Rise with the Sun
+1. The God we love
+2. See the Man
+3. Holy Forever
+4. Christ our hope in life and death
 
 ## 9:30am Song Lyrics <br>
 
-### 1. All Creatures of Our God and King <br>
-Verse 1<br>
-All creatures of our God and King<br>
-Lift up your voice and with us sing<br>
-O praise Him! Alleluia!<br><br>
+### 1. This I Believe (The Creed) <br>
+Our Father everlasting<br>
+The all creating One<br>
+God Almighty<br>
+Through Your Holy Spirit<br>
+Conceiving Christ the Son<br>
+Jesus our Saviour<br>
 
-Thou, burning sun with golden beam<br>
-Thou, silver moon with softer gleam<br>
-O praise Him! O praise Him!<br>
-Alleluia! Alleluia! Allelu - ia!<br><br>
+I believe in God our Father<br>
+I believe in Christ the Son<br>
+I believe in the Holy Spirit<br>
+Our God is three in one<br>
+I believe in the resurrection<br>
+That we will rise again<br>
+For I believe<br>
+In the name of Jesus<br>
 
-Verse 2<br>
-Let all things their Creator bless<br>
-And worship Him in humbleness<br>
-O praise Him! Alleluia!<br><br>
+Our Judge and our Defender<br>
+Suffered and crucified<br>
+Forgiveness is in You<br>
+Descended into darkness<br>
+You rose in glorious life<br>
+Forever seated high<br>
 
-Praise, praise the Father, praise the Son<br>
-And praise the Spirit, Three in One!<br>
-O praise Him! O praise Him!<br>
-Alleluia! Alleluia! Allelu - ia!<br><br>
+I believe in God our Father<br>
+I believe in Christ the Son<br>
+I believe in the Holy Spirit<br>
+Our God is three in One<br>
+I believe in the resurrection<br>
+That we will rise again<br>
+For I believe<br>
+In the name of Jesus<br>
 
-Verse 3<br>
-All the Redeemed washed by His blood<br>
-Come and rejoice in His great love<br>
-O praise Him! Alleluia!<br><br>
+I believe in You<br>
+I believe You rose again<br>
+I believe that Jesus Christ is Lord<br>
+Yes, I believe in You<br>
+I believe You rose again<br>
+I believe that Jesus Christ is Lord<br>
 
-Christ has defeated every sin<br>
-Cast all your burdens now on Him<br>
-O praise Him! O praise Him!<br>
-Alleluia! Alleluia! Allelu - ia!<br><br>
+I believe in life eternal<br>
+I believe in the virgin birth<br>
+I believe in the saints communion<br>
+And in Your holy Church<br>
+I believe in the resurrection<br>
+When Jesus comes again<br>
+For I believe<br>
+In the name of Jesus<br>
 
-Verse 4<br>
-He shall return in pow’r to reign<br>
-Heaven and earth will join to say<br>
-O praise Him! Alleluia!<br><br>
+I believe in God our Father<br>
+I believe in Christ the Son<br>
+I believe in the Holy Spirit<br>
+Our God is three in One<br>
+I believe in the resurrection<br>
+That we will rise again<br>
+For I believe<br>
+In the name of Jesus<br>
 
-Then who shall fall on bended knee?<br>
-All creatures of our God and King<br>
-O praise Him! O praise Him!<br>
-Alleluia! Alleluia! Allelu - ia!<br><br>
+For I believe<br>
+In the name of Jesus<br>
 
-CCLI 6529800 (main copyright licence)<br>
+CCLI #: 7018338; Ben Fielding, Matt Crocker; Hillsong Worship 2014 <br>
+CCLI 62951 (main copyright licence) <br>
+CCLI 174113 (streaming licence) <br>
+
+### 2. Trust & Obey <br>
+When we walk with the Lord<br>
+In the light of His Word<br>
+What a glory He sheds on our way<br>
+While we do His good will<br>
+He abides with us still<br>
+And with all who will trust and obey<br>
+
+There's no other way<br>
+To be happy in Jesus<br>
+With peace in my mind, joy in my heart<br>
+I'll take up my cross<br>
+For all of my days<br>
+I'll do what You say<br>
+There's no other way<br>
+But to trust and obey<br>
+
+Then in fellowship sweet<br>
+We will sit at His feet<br>
+Or we'll walk by His side in the way<br>
+What He says we will do<br>
+Where He sends we will go<br>
+Never fear, only trust and obey<br>
+
+There's no other way<br>
+To be happy in Jesus<br>
+With peace in my mind, and joy in my heart<br>
+I'll take up my cross<br>
+For all of my days<br>
+I'll do what You say<br>
+There's no other way<br>
+But to trust and obey<br>
+
+I'll trust the Lord<br>
+I'll trust the Lord<br>
+You will be faithful<br>
+Like You've been before<br>
+Oh, I'll trust You, Lord<br>
+Yes, I'll trust You, Lord<br>
+Oh, for the grace<br>
+To trust You with more<br>
+
+I'll trust the Lord<br>
+I'll trust the Lord<br>
+You will be faithful<br>
+Like You've been before<br>
+I'll trust the Lord<br>
+Yes, I'll trust the Lord<br>
+Oh, for the grace<br>
+To trust You with more<br>
+
+There's no other way<br>
+To be happy in Jesus<br>
+With peace in my mind, and joy in my heart<br>
+I'll take up my cross<br>
+For all of my days<br>
+I'll do what You say<br>
+There's no other way<br>
+But to trust and obey<br>
+
+I'll do what You say<br>
+There's no other way<br>
+But to trust and obey<br>
+
+Trust and obey<br>
+For there's no other way<br>
+To be happy in Jesus<br>
+But to trust and obey<br>
+
+CXMMXNS, CAIN; 2025; <br>
+CCLI 62951 (main copyright licence)<br>
 CCLI 174113 (streaming licence)<br>
 
-### 2. Behold Our God <br>
-Verse 1<br>
-Who has held the oceans in His hands?<br>
-Who has numbered every grain of sand?<br>
-Kings and nations tremble at His voice<br>
-All creation rises to rejoice<br><br>
+### 3. King of Kings <br>
+In the darkness we were waiting<br>
+Without hope, without light<br>
+'Til from Heaven You came running<br>
+There was mercy in Your eyes<br>
+To fulfill the law and prophets<br>
+To a virgin came the word<br>
+From a throne of endless glory<br>
+To a cradle in the dirt<br>
 
-Verse 2<br>
-Who has given counsel to the Lord?<br>
-Who can question any of His words?<br>
-Who can teach the one who knows all things?<br>
-Who can fathom all his wondrous deeds?<br><br>
 
-Chorus<br>
-Behold our God seated on His throne, <br>
-Come let us adore Him<br>
-Behold our King, nothing can compare, <br>
-Come let us adore Him!<br><br>
+Praise the Father, praise the Son<br>
+Praise the Spirit, three in one<br>
+God of glory, Majesty<br>
+Praise forever to the King of Kings<br>
 
-Verse 3<br>
-Who has felt the nails upon His hands<br>
-Bearing all the guilt of sinful man?<br>
-God eternal, humbled to the grave<br>
-Jesus, Saviour, risen now to reign<br><br>
 
-Chorus<br>
-Behold our God seated on His throne, <br>
-Come let us adore Him<br>
-Behold our King, nothing can compare, <br>
-Come let us adore Him!<br><br>
+To reveal the kingdom coming<br>
+And to reconcile the lost<br>
+To redeem the whole creation<br>
+You did not despise the cross<br>
+For even in your suffering<br>
+You saw to the other side<br>
+Knowing this was our salvation<br>
+Jesus for our sake you died<br>
 
-Bridge<br>
-You will reign forever (Let Your glory fill the earth)<br>
-You will reign forever (Let your glory fill the earth)<br>
-You will reign forever (Let your glory fill the earth)<br>
-You will reign forever (Let your glory fill) x2<br><br>
 
-Chorus<br>
-Behold our God seated on His throne, <br>
-Come let us adore Him<br>
-Behold our King, nothing can compare, <br>
-Come let us adore Him!<br><br>
+Praise the Father, praise the Son<br>
+Praise the Spirit, three in one<br>
+God of glory, Majesty<br>
+Praise forever to the King of Kings<br>
 
-CCLI 5937510 (main copyright licence) <br>
+
+And the morning that You rose<br>
+All of Heaven held its breath<br>
+'Til that stone was moved for good<br>
+For the Lamb had conquered death<br>
+And the dead rose from their tombs<br>
+And the angels stood in awe<br>
+For the souls of all who'd come<br>
+To the Father are restored<br>
+
+
+And the church of Christ was born<br>
+Then the Spirit lit the flame<br>
+Now this gospel truth of old<br>
+Shall not kneel, shall not faint<br>
+By His blood and in His name<br>
+In His freedom I am free<br>
+For the love of Jesus Christ<br>
+Who has resurrected me<br>
+
+
+Praise the Father, praise the Son<br>
+Praise the Spirit, three in one<br>
+God of glory, Majesty<br>
+Praise forever to the King of Kings<br>
+
+Praise forever to the King of Kings<br>
+
+CCLI #: 7127647; Hillsong Worship, Brooke Ligertwood 2019<br>
+CCLI 62951 (main copyright licence)<br>
 CCLI 174113 (streaming licence)<br>
 
-### 3. Jesus Paid It All <br>
-Verse 1<br>
-I hear the Savior say<br>
-”Thy strength indeed is small<br>
-Child of weakness watch and pray<br>
-Find in Me thine all in all”<br><br>
+### 4. Undivided <br>
+Give me an undivided heart<br>
+That I might fear Your name<br>
+Teach me to walk in righteous paths<br>
+And follow in Your ways<br>
+For You are gracious and forgiving<br>
+Hear, O Lord, and answer me<br>
 
-Chorus<br>
-Jesus paid it all<br>
-All to Him I owe<br>
-Sin had left a crimson stain<br>
-He washed it white as snow<br><br>
 
-Verse 2<br>
-Lord now indeed I find<br>
-Thy pow’r and Thine alone<br>
-Can change the leper’s spots<br>
-And melt the heart of stone.<br><br>
+Give me an undivided mind<br>
+That I might love Your word<br>
+Help me to hunger for Your voice<br>
+And know Your spirits sword<br>
+For You are good, Your truth unchanging<br>
+Life is found in serving You<br>
 
-Chorus<br>
-Jesus paid it all<br>
-All to Him I owe<br>
-Sin had left a crimson stain<br>
-He washed it white as snow<br><br>
 
-Verse 3<br>
-And when before the throne<br>
-I stand in Him complete<br>
-Jesus died my soul to save<br>
-my lips shall still repeat.<br><br>
+Undivided<br>
+I want to live for You<br>
+Single minded<br>
+All that I say, all that I do<br>
+Sanctify me<br>
+Take me and make me new<br>
+That I might live for Christ, my Lord<br>
 
-Chorus<br>
-Jesus paid it all<br>
-All to Him I owe<br>
-Sin had left a crimson stain<br>
-He washed it white as snow<br><br>
 
-Bridge<br>
-O praise the One who paid my debt<br>
-And raised this life up from the dead<br>
-O praise the One who paid my debt<br>
-And raised this life up from the dead (x6)<br><br>
+Give me an undivided love<br>
+For all that You desire<br>
+Make me a living sacrifice<br>
+Ignite in me your fire<br>
+For you O Lord are God eternal<br>
+All my ways are known to You<br>
 
-Chorus<br>
-Jesus paid it all<br>
-All to Him I owe<br>
-Sin had left a crimson stain<br>
-He washed it white as snow<br><br>
 
-CCLI 22331 (main copyright licence)<br> 
-CCLI 174113 (streaming licence)<br>
+Undivided
+I want to live for You<br>
+Single minded<br>
+All that I say, all that I do<br>
+Sanctify me<br>
+Take me and make me new<br>
+That I might live for Christ, my Lord<br>
 
-### 4. Shine Jesus Shine <br>
-Verse 1<br>
-Lord, the light of your love is shining<br>
-In the midst of the darkness shining<br>
-Jesus, light of the world, shine upon us<br>
-Set us free by the truth you now bring us<br>
-Shine on me, Shine on me<br><br>
 
-Chorus<br>
-Shine, Jesus, shine, fill this land with the Father's glory<br>
-Blaze, Spirit, blaze, set our hearts on fire<br>
-Flow, river, flow, flood the nations with grace and mercy<br>
-Send forth your word, Lord, and let there be light!<br><br>
+Undivided
+Counting my gains as loss<br>
+Single minded<br>
+Whatever the pain, whatever the cost<br>
+Sanctify me<br>
+Help me take up my cross<br>
+And live for Him who died for me<br>
 
-Verse 2<br>
-Lord, I come to your awesome presence<br>
-From the shadows into your radiance<br>
-By the blood I may enter your brightness<br>
-Search me, try me, consume all my darkness<br>
-Shine on me, Shine on me<br><br>
-
-Chorus<br>
-Shine, Jesus, shine, fill this land with the Father's glory<br>
-Blaze, Spirit, blaze, set our hearts on fire<br>
-Flow, river, flow, flood the nations with grace and mercy<br>
-Send forth your word, Lord, and let there be light!<br><br>
-
-Verse 3<br>
-As we gaze on your kingly brightness<br>
-So our faces display your likeness<br>
-Ever changing from glory to glory<br>
-Mirrored here may our lives tell your story<br>
-Shine on me, Shine on me<br><br>
-
-Chorus<br>
-Shine, Jesus, shine, fill this land with the Father's glory<br>
-Blaze, Spirit, blaze, set our hearts on fire<br>
-Flow, river, flow, flood the nations with grace and mercy<br>
-Send forth your word, Lord, and let there be light!<br><br>
-
-CCLI 30426 (main copyright licence) <br>
+CCLI Song #5881312; Robert Smith © Emu Music Ltd<br>
+CCLI 62951 (main copyright licence)<br>
 CCLI 174113 (streaming licence)<br>
