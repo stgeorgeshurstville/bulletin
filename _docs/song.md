@@ -25,24 +25,20 @@ Naught be all else to me, save that Thou art<br>
 Thou my best thought, by day or by night<br>
 Waking or sleeping, Thy presence my light.<br>
 <br>
-<br>
 Be Thou my wisdom, and Thou my true word<br>
 I ever with Thee, and Thou with me, Lord<br>
 Thou my great Father, and I Thy true son;<br>
 Thou in me dwelling, and I with Thee one.<br>
-<br>
 <br>
 Be Thou my battle shield, sword for the fight<br>
 Be Thou my dignity, Thou my delight<br>
 Thou my soul’s shelter, Thou my high tow’r:<br>
 Raise Thou me heav’nward, O pow’r of my pow’r.<br>
 <br>
-<br>
 Riches I heed not, nor man's empty praise<br>
 Thou mine inheritance now and always:<br>
 Thou and Thou only, first in my heart<br>
 High King of heaven, my treasure Thou art.<br>
-<br>
 <br>
 High King of heaven, my vict’ry won,<br>
 May I reach heaven's joys, O bright heaven's Sun!<br>
@@ -52,78 +48,41 @@ Still be my vision, O Ruler of all.
 
 CCLI 30639
 
-### 2. Trust & Obey <br>
-When we walk with the Lord<br>
-In the light of His Word<br>
-What a glory He sheds on our way<br>
-While we do His good will<br>
-He abides with us still<br>
-And with all who will trust and obey<br>
-
-There's no other way<br>
-To be happy in Jesus<br>
-With peace in my mind, joy in my heart<br>
-I'll take up my cross<br>
-For all of my days<br>
-I'll do what You say<br>
-There's no other way<br>
-But to trust and obey<br>
-
-Then in fellowship sweet<br>
-We will sit at His feet<br>
-Or we'll walk by His side in the way<br>
-What He says we will do<br>
-Where He sends we will go<br>
-Never fear, only trust and obey<br>
-
-There's no other way<br>
-To be happy in Jesus<br>
-With peace in my mind, and joy in my heart<br>
-I'll take up my cross<br>
-For all of my days<br>
-I'll do what You say<br>
-There's no other way<br>
-But to trust and obey<br>
-
-I'll trust the Lord<br>
-I'll trust the Lord<br>
-You will be faithful<br>
-Like You've been before<br>
-Oh, I'll trust You, Lord<br>
-Yes, I'll trust You, Lord<br>
-Oh, for the grace<br>
-To trust You with more<br>
-
-I'll trust the Lord<br>
-I'll trust the Lord<br>
-You will be faithful<br>
-Like You've been before<br>
-I'll trust the Lord<br>
-Yes, I'll trust the Lord<br>
-Oh, for the grace<br>
-To trust You with more<br>
-
-There's no other way<br>
-To be happy in Jesus<br>
-With peace in my mind, and joy in my heart<br>
-I'll take up my cross<br>
-For all of my days<br>
-I'll do what You say<br>
-There's no other way<br>
-But to trust and obey<br>
-
-I'll do what You say<br>
-There's no other way<br>
-But to trust and obey<br>
-
-Trust and obey<br>
-For there's no other way<br>
-To be happy in Jesus<br>
-But to trust and obey<br>
-
-CXMMXNS, CAIN; 2025; <br>
-CCLI 62951 (main copyright licence)<br>
-CCLI 174113 (streaming licence)<br>
+### 2. Before The Throne of God Above <br>
+Before the throne of God above <br>
+I have a strong and perfect plea<br>
+A great High Priest whose name is love<br>
+Who ever lives and pleads for me<br>
+<br>
+My name is graven on His hands<br>
+My name is written on His heart<br>
+I know that while in heav’n He stands<br>
+No tongue can bid me thence depart<br>
+No tongue can bid me thence depart<br>
+<br>
+When Satan tempts me to despair<br>
+And tells me of the guilt within<br>
+Upward I look and see Him there<br>
+Who made an end to all my sin<br>
+<br>
+Because the sinless Savior died<br>
+My sinful soul is counted free<br>
+For God the Just is satisfied<br>
+To look on Him and pardon me<br>
+To look on Him and pardon me<br>
+<br>
+Behold Him there, the risen Lamb<br>
+My perfect, spotless Righteousness<br>
+The great unchangeable I AM<br>
+The King of glory and of grace<br>
+<br>
+One with Himself, I cannot die<br>
+My soul is purchased by His blood<br>
+My life is hid with Christ on high<br>
+With Christ my Savior and my God <br>
+With Christ my Savior and my God<br>
+<br>
+CCLI 2306412
 
 ### 3. King of Kings <br>
 In the darkness we were waiting<br>
