@@ -13,6 +13,11 @@ order: 5
 | Sunday 26th of April | The Discover Course| 5:30pm | 
 
 ## General
+### Upcoming Events: Church Working Bee
+## Church Working Bee: Easter Preparation
+Let’s work together to prepare our church home for the upcoming Easter week! We are hosting a Church Working Bee on Saturday, March 28th, from 9:00 AM to 12:00 PM. Our goal is to tidy up the building and grounds so we can provide a welcoming environment for our Easter guests and services.<br>
+Whether you are handy with a broomstick, great at gardening, or a master of organization, there is a job for everyone. Please bring your own gloves and any basic cleaning or gardening tools if you have them. Many hands make light work!
+
 ### Easter Weekend: To Know the One True God and to Make Him Known
 This Easter, we invite you to join the English Congregation as we live out our church vision through the lens of the cross and the empty tomb.
 
@@ -48,11 +53,6 @@ Because these shifts involve our whole community, we’d love to sit down with y
 
 ### Thank You for a Wonderful Vision Sunday Combined Service!
 A huge thank you to everyone who joined us for last week’s combined service! We are especially grateful to all our hardworking volunteers who put in the effort behind the scenes for setup, serving, and packing down to make the day possible. We are also thrilled to share that, thanks to your generosity, we raised $680 through the fellowship lunch! Thank you for making it such a beautiful time of worship and community.
-
-### Upcoming Events: Church Working Bee
-## Church Working Bee: Easter Preparation
-Let’s work together to prepare our church home for the upcoming Easter week! We are hosting a Church Working Bee on Saturday, March 28th, from 9:00 AM to 12:00 PM. Our goal is to tidy up the building and grounds so we can provide a welcoming environment for our Easter guests and services.<br>
-Whether you are handy with a broomstick, great at gardening, or a master of organization, there is a job for everyone. Please bring your own gloves and any basic cleaning or gardening tools if you have them. Many hands make light work!
 
 ## New to the Family? Join "The Bridge"
 If you’ve recently moved into the area or have started making this your home church after moving from another congregation, we’d love to officially welcome you.
