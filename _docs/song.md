@@ -162,7 +162,7 @@ You're the one who never leaves the one behind<br>
 CCLI 7084123<br>
 Joel Houston, Benjamin Hastings, and Michael Fatkin
 
-### 4. Undivided <br>
+### 4. 10,000 Reasons <br>
 Give me an undivided heart<br>
 That I might fear Your name<br>
 Teach me to walk in righteous paths<br>
