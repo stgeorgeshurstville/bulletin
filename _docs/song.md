@@ -20,69 +20,37 @@ order: 1
 ## 9:30am Song Lyrics <br>
 
 ### 1. Be Thou My Vision <br>
-Our Father everlasting<br>
-The all creating One<br>
-God Almighty<br>
-Through Your Holy Spirit<br>
-Conceiving Christ the Son<br>
-Jesus our Saviour<br>
+Be Thou my vision, O Lord of my heart<br>
+Naught be all else to me, save that Thou art<br>
+Thou my best thought, by day or by night<br>
+Waking or sleeping, Thy presence my light.<br>
+<br>
+<br>
+Be Thou my wisdom, and Thou my true word<br>
+I ever with Thee, and Thou with me, Lord<br>
+Thou my great Father, and I Thy true son;<br>
+Thou in me dwelling, and I with Thee one.<br>
+<br>
+<br>
+Be Thou my battle shield, sword for the fight<br>
+Be Thou my dignity, Thou my delight<br>
+Thou my soul’s shelter, Thou my high tow’r:<br>
+Raise Thou me heav’nward, O pow’r of my pow’r.<br>
+<br>
+<br>
+Riches I heed not, nor man's empty praise<br>
+Thou mine inheritance now and always:<br>
+Thou and Thou only, first in my heart<br>
+High King of heaven, my treasure Thou art.<br>
+<br>
+<br>
+High King of heaven, my vict’ry won,<br>
+May I reach heaven's joys, O bright heaven's Sun!<br>
+Heart of my own heart, whatever befall,<br>
+Still be my vision, O Ruler of all.<br>
+Still be my vision, O Ruler of all.
 
-I believe in God our Father<br>
-I believe in Christ the Son<br>
-I believe in the Holy Spirit<br>
-Our God is three in one<br>
-I believe in the resurrection<br>
-That we will rise again<br>
-For I believe<br>
-In the name of Jesus<br>
-
-Our Judge and our Defender<br>
-Suffered and crucified<br>
-Forgiveness is in You<br>
-Descended into darkness<br>
-You rose in glorious life<br>
-Forever seated high<br>
-
-I believe in God our Father<br>
-I believe in Christ the Son<br>
-I believe in the Holy Spirit<br>
-Our God is three in One<br>
-I believe in the resurrection<br>
-That we will rise again<br>
-For I believe<br>
-In the name of Jesus<br>
-
-I believe in You<br>
-I believe You rose again<br>
-I believe that Jesus Christ is Lord<br>
-Yes, I believe in You<br>
-I believe You rose again<br>
-I believe that Jesus Christ is Lord<br>
-
-I believe in life eternal<br>
-I believe in the virgin birth<br>
-I believe in the saints communion<br>
-And in Your holy Church<br>
-I believe in the resurrection<br>
-When Jesus comes again<br>
-For I believe<br>
-In the name of Jesus<br>
-
-I believe in God our Father<br>
-I believe in Christ the Son<br>
-I believe in the Holy Spirit<br>
-Our God is three in One<br>
-I believe in the resurrection<br>
-That we will rise again<br>
-For I believe<br>
-In the name of Jesus<br>
-
-For I believe<br>
-In the name of Jesus<br>
-
-CCLI #: 7018338; Ben Fielding, Matt Crocker; Hillsong Worship 2014 <br>
-CCLI 62951 (main copyright licence) <br>
-CCLI 174113 (streaming licence) <br>
+CCLI 30639
 
 ### 2. Trust & Obey <br>
 When we walk with the Lord<br>
