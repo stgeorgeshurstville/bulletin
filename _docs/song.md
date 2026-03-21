@@ -84,69 +84,83 @@ With Christ my Savior and my God<br>
 <br>
 CCLI 2306412
 
-### 3. King of Kings <br>
-In the darkness we were waiting<br>
-Without hope, without light<br>
-'Til from Heaven You came running<br>
-There was mercy in Your eyes<br>
-To fulfill the law and prophets<br>
-To a virgin came the word<br>
-From a throne of endless glory<br>
-To a cradle in the dirt<br>
-
-
-Praise the Father, praise the Son<br>
-Praise the Spirit, three in one<br>
-God of glory, Majesty<br>
-Praise forever to the King of Kings<br>
-
-
-To reveal the kingdom coming<br>
-And to reconcile the lost<br>
-To redeem the whole creation<br>
-You did not despise the cross<br>
-For even in your suffering<br>
-You saw to the other side<br>
-Knowing this was our salvation<br>
-Jesus for our sake you died<br>
-
-
-Praise the Father, praise the Son<br>
-Praise the Spirit, three in one<br>
-God of glory, Majesty<br>
-Praise forever to the King of Kings<br>
-
-
-And the morning that You rose<br>
-All of Heaven held its breath<br>
-'Til that stone was moved for good<br>
-For the Lamb had conquered death<br>
-And the dead rose from their tombs<br>
-And the angels stood in awe<br>
-For the souls of all who'd come<br>
-To the Father are restored<br>
-
-
-And the church of Christ was born<br>
-Then the Spirit lit the flame<br>
-Now this gospel truth of old<br>
-Shall not kneel, shall not faint<br>
-By His blood and in His name<br>
-In His freedom I am free<br>
-For the love of Jesus Christ<br>
-Who has resurrected me<br>
-
-
-Praise the Father, praise the Son<br>
-Praise the Spirit, three in one<br>
-God of glory, Majesty<br>
-Praise forever to the King of Kings<br>
-
-Praise forever to the King of Kings<br>
-
-CCLI #: 7127647; Hillsong Worship, Brooke Ligertwood 2019<br>
-CCLI 62951 (main copyright licence)<br>
-CCLI 174113 (streaming licence)<br>
+### 3. So Will I (100 Billion X) <br>
+God of Creation<br>
+There at the start<br>
+Before the beginning of time<br>
+<br>
+With no point of reference<br>
+You spoke to the dark<br>
+And fleshed out the wonder of light<br>
+<br>
+And as you speak<br>
+A hundred billion galaxies are born<br>
+In the vapour of your breath the planets form<br>
+If the stars were made to worship so will I<br>
+<br>
+I can see your heart in everything you've made<br>
+Every burning star<br>
+A signal fire of grace<br>
+If creation sings your praises so will I<br>
+<br>
+God of your promise<br>
+You don't speak in vain<br>
+No syllable empty or void<br>
+<br>
+For once you have spoken<br>
+All nature and science<br>
+Follow the sound of your voice<br>
+<br>
+And as you speak<br>
+A hundred billion creatures catch your breath<br>
+Evolving in pursuit of what you said<br>
+If it all reveals your nature so will I<br>
+<br>
+I can see your heart in everything you say<br>
+Every painted sky<br>
+A canvas of your grace<br>
+If creation still obeys you so will I<br>
+<br>
+If the stars were made to worship so will I<br>
+If the mountains bow in reverence so will I<br>
+If the oceans roar your greatness so will I<br>
+For if everything exists to lift you high so will I<br>
+<br>
+If the wind goes where you send it so will I<br>
+If the rocks cry out in silence so will I<br>
+If the sum of all our praises still falls shy<br>
+Then we'll sing again a hundred billion times<br>
+<br>
+God of salvation<br>
+You chased down my heart<br>
+Through all of my failure and pride<br>
+<br>
+On a hill you created<br>
+The light of the world<br>
+Abandoned in darkness to die<br>
+<br>
+And as you speak<br>
+A hundred billion failures disappear<br>
+Where you lost your life so i could find it here<br>
+If you left the grave behind you so will I<br>
+<br>
+I can see your heart in everything you've done<br>
+Every part designed in a work of art called love<br>
+If you gladly chose surrender so will I<br>
+<br>
+I can see your heart<br>
+Eight billion different ways<br>
+<br>
+Every precious one<br>
+A child you died to save<br>
+If you gave your life to love them so will I<br>
+<br>
+Like you would again a hundred billion times<br>
+But what measure could amount to your desire<br>
+You're the one who never leaves the one behind<br>
+<br>
+CCLI 7084123<br>
+Joel Houston, Benjamin Hastings, and Michael Fatkin
 
 ### 4. Undivided <br>
 Give me an undivided heart<br>
