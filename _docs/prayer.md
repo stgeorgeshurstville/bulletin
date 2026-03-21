@@ -4,9 +4,9 @@ order: 4
 ---
 
 ## Collect
-Almighty God, grant that we, who justly deserve to be punished for our sinful deeds, may in your mercy and kindness be pardoned and restored; through our Lord and Saviour Jesus Christ. Amen.
+We beseech you, almighty God, to look in mercy on your people: that your great goodness they may be governed and preserved evermore; through Jesus Christ our Lord. Amen.
 
-## Week C
+## Week E
 
 | **Section** | **Content** |
 |--------------|-------------|
