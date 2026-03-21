@@ -4,18 +4,18 @@ order: 1
 ---
 
 ## 9:30am
-1. This I Believe (The Creed) 
-2. Trust & Obey
-3. King of Kings
-4. Undivided
+1. Be Thou My Vision
+2. Before The Throne of God Above
+3. So Will I (100 Billion X)
+4. 10,000 Reasons
 
 **Scroll below for 9:30am song lyrics**
 
 ## 4:00pm
-1. The God we love
-2. See the Man
-3. Holy Forever
-4. Christ our hope in life and death
+1. When I Survey The Wondrous Cross
+2. His Mercy is More
+3. The Love of the Father
+4. Yet not I but through Christ in Me
 
 ## 9:30am Song Lyrics <br>
 
