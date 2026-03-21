@@ -19,7 +19,7 @@ order: 1
 
 ## 9:30am Song Lyrics <br>
 
-### 1. This I Believe (The Creed) <br>
+### 1. Be Thou My Vision <br>
 Our Father everlasting<br>
 The all creating One<br>
 God Almighty<br>
