@@ -163,56 +163,48 @@ CCLI 7084123<br>
 Joel Houston, Benjamin Hastings, and Michael Fatkin
 
 ### 4. 10,000 Reasons <br>
-Give me an undivided heart<br>
-That I might fear Your name<br>
-Teach me to walk in righteous paths<br>
-And follow in Your ways<br>
-For You are gracious and forgiving<br>
-Hear, O Lord, and answer me<br>
-
-
-Give me an undivided mind<br>
-That I might love Your word<br>
-Help me to hunger for Your voice<br>
-And know Your spirits sword<br>
-For You are good, Your truth unchanging<br>
-Life is found in serving You<br>
-
-
-Undivided<br>
-I want to live for You<br>
-Single minded<br>
-All that I say, all that I do<br>
-Sanctify me<br>
-Take me and make me new<br>
-That I might live for Christ, my Lord<br>
-
-
-Give me an undivided love<br>
-For all that You desire<br>
-Make me a living sacrifice<br>
-Ignite in me your fire<br>
-For you O Lord are God eternal<br>
-All my ways are known to You<br>
-
-
-Undivided
-I want to live for You<br>
-Single minded<br>
-All that I say, all that I do<br>
-Sanctify me<br>
-Take me and make me new<br>
-That I might live for Christ, my Lord<br>
-
-
-Undivided
-Counting my gains as loss<br>
-Single minded<br>
-Whatever the pain, whatever the cost<br>
-Sanctify me<br>
-Help me take up my cross<br>
-And live for Him who died for me<br>
-
-CCLI Song #5881312; Robert Smith © Emu Music Ltd<br>
+Bless the Lord, O my soul<br>
+O my soul, worship His holy Name<br>
+Sing like never before, O my soul<br>
+I'll worship Your holy Name<br>
+<br>
+The sun comes up, it's a new day dawning<br>
+It's time to sing Your song again<br>
+Whatever may pass and whatever lies before me<br>
+Let me be singing when the evening comes<br>
+<br>
+Bless the Lord, O my soul<br>
+O my soul, worship His holy Name<br>
+Sing like never before, O my soul<br>
+I'll worship Your holy Name<br>
+<br>
+You're rich in love and You're slow to anger<br>
+Your Name is great and Your heart is kind<br>
+For all Your goodness I will keep on singing<br>
+Ten thousand reasons for my heart to find<br>
+<br>
+Bless the Lord, O my soul<br>
+O my soul, worship His holy Name<br>
+Sing like never before, O my soul<br>
+I'll worship Your holy Name<br>
+<br>
+And on that day when my strength is failing,<br>
+The end draws near and my time has come;<br>
+Still my soul sings Your praise unending,<br>
+Ten thousand years and then forevermore.<br>
+<br>
+Bless the Lord, O my soul<br>
+O my soul, worship His holy Name<br>
+Sing like never before, O my soul<br>
+I'll worship Your holy Name <br>
+<br>
+Bless the Lord, O my soul<br>
+O my soul, worship His holy Name<br>
+Sing like never before, O my soul<br>
+I'll worship Your holy Name<br>
+Yes I’ll worship Your holy Name<br>
+Lord I’ll Worship Your holy Name<br>
+<br>
 CCLI 62951 (main copyright licence)<br>
 CCLI 174113 (streaming licence)<br>
+CCLI 6016351 Matt Redman <br>
