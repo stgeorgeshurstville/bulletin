@@ -5,7 +5,7 @@ order: 4
 
 ## Collect
 Almighty and everlasting God, in tender love towards mankind you send your Son, our Saviour Jesus Christ, to take our nature upon hum and to suffer death on the cross, that all mankind should follow the example of his great humility: grant that we may follow the example of his suffering, and also be made partakers of his resurrection; through him who loves and reigns with you and the Holy Spirit, now and for ever. 
-Amen.
+<br> Amen.
 
 ## Week F
 
