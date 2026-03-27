@@ -6,18 +6,12 @@ order: 5
 ## Upcoming Dates
 
 | Date | Event | Time |
-| ---- | ---- | ---- |
-| Saturday 28th of March | Easter Church Working Bee| 9:00am - 12:00pm | 
+| ---- | ---- | ---- | 
 | Friday 3rd April | Good Friday Service | 9:30am |
 | Sunday 5th April | Easter Sunday Service| 9:30am & 4:00pm | 
 | Sunday 26th of April | The Discover Course| 5:30pm | 
 
 ## General
-### Upcoming Events: Church Working Bee
-## Church Working Bee: Easter Preparation
-Let’s work together to prepare our church home for the upcoming Easter week! We are hosting a Church Working Bee on Saturday, March 28th, from 9:00 AM to 12:00 PM. Our goal is to tidy up the building and grounds so we can provide a welcoming environment for our Easter guests and services.<br>
-Whether you are handy with a broomstick, great at gardening, or a master of organization, there is a job for everyone. Please bring your own gloves and any basic cleaning or gardening tools if you have them. Many hands make light work!
-
 ### Easter Weekend: To Know the One True God and to Make Him Known
 This Easter, we invite you to join the English Congregation as we live out our church vision through the lens of the cross and the empty tomb.
 
@@ -50,9 +44,6 @@ We want to be transparent about the direction we are heading. You can read the s
 
 **Join the Conversation** <br>
 Because these shifts involve our whole community, we’d love to sit down with you again in two weeks’ time after the service. This will be a chance for you to hear more about the vision, ask questions, and buy into the plans we have for Term 2.
-
-### Thank You for a Wonderful Vision Sunday Combined Service!
-A huge thank you to everyone who joined us for last week’s combined service! We are especially grateful to all our hardworking volunteers who put in the effort behind the scenes for setup, serving, and packing down to make the day possible. We are also thrilled to share that, thanks to your generosity, we raised $680 through the fellowship lunch! Thank you for making it such a beautiful time of worship and community.
 
 ## New to the Family? Join "The Bridge"
 If you’ve recently moved into the area or have started making this your home church after moving from another congregation, we’d love to officially welcome you.
