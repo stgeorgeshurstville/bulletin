@@ -20,7 +20,7 @@ order: 1
 ## 9:30am Song Lyrics <br>
 
 ### 1. How Great Thou Art <br>
-Verse 1<br>
+[Verse 1]<br>
 O Lord my God<br>
 When I in awesome wonder<br>
 Consider all the works<br>
@@ -30,7 +30,7 @@ I hear the rolling thunder,<br>
 Thy pow'r throughout<br>
 The universe displayed!<br>
 <br>
-Chorus<br>
+[Chorus]<br>
 Then sings my soul,<br>
 My Saviour God, to Thee;<br>
 How great Thou art,<br>
@@ -40,7 +40,7 @@ My Saviour God, to Thee;<br>
 How great Thou art,<br>
 How great Thou art!<br>
 <br>
-Verse 2<br>
+[Verse 2]<br>
 When thru the woods<br>
 And forest glades I wander<br>
 And hear the birds<br>
@@ -50,7 +50,7 @@ From lofty mountain grandeur<br>
 And hear the brook<br>
 And feel the gentle breeze,<br>
 <br>
-Chorus<br>
+[Chorus]<br>
 Then sings my soul,<br>
 My Saviour God, to Thee;<br>
 How great Thou art,<br>
@@ -60,18 +60,17 @@ My Saviour God, to Thee;<br>
 How great Thou art,<br>
 How great Thou art!<br>
 <br>
-Verse 3<br>
+[Verse 3]<br>
 And when I think<br>
 That God, His Son not sparing,<br>
 Sent Him to die,<br>
-<br>
 I scarce can take it in -<br>
 That on the cross,<br>
 My burden gladly bearing,<br>
 He bled and died<br>
 To take away my sin!<br>
 <br>
-Chorus<br>
+[Chorus]<br>
 Then sings my soul,<br>
 My Saviour God, to Thee;<br>
 How great Thou art,<br>
@@ -81,7 +80,7 @@ My Saviour God, to Thee;<br>
 How great Thou art,<br>
 How great Thou art!<br>
 <br>
-Verse 4<br>
+[Verse 4]<br>
 When Christ shall come<br>
 With shout of acclamation<br>
 And take me home,<br>
@@ -91,7 +90,7 @@ In humble adoration<br>
 And there proclaim,<br>
 My God, how great Thou art!<br>
 <br>
-Chorus<br>
+[Chorus]<br>
 Then sings my soul,<br>
 My Saviour God, to Thee;<br>
 How great Thou art,<br>
@@ -107,118 +106,89 @@ CCLI 174113 (streaming licence)<br>
 
 
 ### 2. O Praise the Name <br>
-Before the throne of God above <br>
-I have a strong and perfect plea<br>
-A great High Priest whose name is love<br>
-Who ever lives and pleads for me<br>
+[Verse 1]<br>
+I cast my mind to Calvary<br>
+Where Jesus bled and died for me<br>
+I see His wounds, His hands, His feet<br>
+My Saviour on that cursed tree<br>
 <br>
-My name is graven on His hands<br>
-My name is written on His heart<br>
-I know that while in heav’n He stands<br>
-No tongue can bid me thence depart<br>
-No tongue can bid me thence depart<br>
+[Verse 2]<br>
+His body bound and drenched in tears<br>
+They laid Him down in Joseph's tomb<br>
+The entrance sealed by heavy stone<br>
+Messiah still and all alone<br>
 <br>
-When Satan tempts me to despair<br>
-And tells me of the guilt within<br>
-Upward I look and see Him there<br>
-Who made an end to all my sin<br>
+[Chorus]<br>
+O praise the Name of the Lord, our God<br>
+O praise His Name forevermore<br>
+For endless days we will sing Your praise<br>
+Oh Lord, oh Lord, our God<br>
 <br>
-Because the sinless Savior died<br>
-My sinful soul is counted free<br>
-For God the Just is satisfied<br>
-To look on Him and pardon me<br>
-To look on Him and pardon me<br>
+[Verse 3]<br>
+Then on the third at break of dawn<br>
+The Son of heaven rose again<br>
+O trampled death, where is your sting?<br>
+The angels roar for Christ the King<br>
 <br>
-Behold Him there, the risen Lamb<br>
-My perfect, spotless Righteousness<br>
-The great unchangeable I AM<br>
-The King of glory and of grace<br>
+[Chorus]<br>
+O praise the Name of the Lord, our God<br>
+O praise His Name forevermore<br>
+For endless days we will sing Your praise<br>
+Oh Lord, oh Lord, our God<br>
 <br>
-One with Himself, I cannot die<br>
-My soul is purchased by His blood<br>
-My life is hid with Christ on high<br>
-With Christ my Savior and my God <br>
-With Christ my Savior and my God<br>
+[Verse 4]<br>
+He shall return in robes of white<br>
+The blazing sun shall pierce the night<br>
+And I will rise among the saints<br>
+My gaze transfixed on Jesus' face<br>
 <br>
-CCLI 2306412
+[Chorus]<br>
+O praise the Name of the Lord, our God<br>
+O praise His Name forevermore<br>
+For endless days we will sing Your praise<br>
+Oh Lord, oh Lord, our God<br>
+<br>
+Oh Lord, oh Lord, our God<br>
+<br>
+CCLI #: 7037787; Hillsong Worship; Dean Ussher, Marty Sampson, Benjamin Hastings; <br>
+CCLI 62951 (main copyright licence)<br>
+CCLI 174113 (streaming licence)<br>
 
-### 3. So Will I (100 Billion X) <br>
-God of Creation<br>
-There at the start<br>
-Before the beginning of time<br>
+
+### 3. How Deep the Father’s Love for Us <br>
+How deep the Father’s love for us,<br>
+How vast beyond all measure,<br>
+That He should give His only Son<br>
+To make a wretch His treasure.<br>
+How great the pain of searing loss <br>
+The Father turns His face away,<br>
+As wounds which mar the Chosen One<br>
+Bring many sons to glory.<br>
 <br>
-With no point of reference<br>
-You spoke to the dark<br>
-And fleshed out the wonder of light<br>
+Behold the man upon a cross,<br>
+My sin upon His shoulders;<br>
+Ashamed, I hear my mocking voice<br>
+Call out among the scoffers.<br>
+It was my sin that held Him there<br>
+Until it was accomplished;<br>
+His dying breath has brought me life <br>
+I know that it is finished.<br>
 <br>
-And as you speak<br>
-A hundred billion galaxies are born<br>
-In the vapour of your breath the planets form<br>
-If the stars were made to worship so will I<br>
+I will not boast in anything,<br>
+No gifts, no power, no wisdom;<br>
+But I will boast in Jesus Christ,<br>
+His death and resurrection.<br>
+Why should I gain from His reward?<br>
+I cannot give an answer;<br>
+But this I know with all my heart <br>
+His wounds have paid my ransom<br>
 <br>
-I can see your heart in everything you've made<br>
-Every burning star<br>
-A signal fire of grace<br>
-If creation sings your praises so will I<br>
+His wounds have paid my ransom<br>
 <br>
-God of your promise<br>
-You don't speak in vain<br>
-No syllable empty or void<br>
-<br>
-For once you have spoken<br>
-All nature and science<br>
-Follow the sound of your voice<br>
-<br>
-And as you speak<br>
-A hundred billion creatures catch your breath<br>
-Evolving in pursuit of what you said<br>
-If it all reveals your nature so will I<br>
-<br>
-I can see your heart in everything you say<br>
-Every painted sky<br>
-A canvas of your grace<br>
-If creation still obeys you so will I<br>
-<br>
-If the stars were made to worship so will I<br>
-If the mountains bow in reverence so will I<br>
-If the oceans roar your greatness so will I<br>
-For if everything exists to lift you high so will I<br>
-<br>
-If the wind goes where you send it so will I<br>
-If the rocks cry out in silence so will I<br>
-If the sum of all our praises still falls shy<br>
-Then we'll sing again a hundred billion times<br>
-<br>
-God of salvation<br>
-You chased down my heart<br>
-Through all of my failure and pride<br>
-<br>
-On a hill you created<br>
-The light of the world<br>
-Abandoned in darkness to die<br>
-<br>
-And as you speak<br>
-A hundred billion failures disappear<br>
-Where you lost your life so i could find it here<br>
-If you left the grave behind you so will I<br>
-<br>
-I can see your heart in everything you've done<br>
-Every part designed in a work of art called love<br>
-If you gladly chose surrender so will I<br>
-<br>
-I can see your heart<br>
-Eight billion different ways<br>
-<br>
-Every precious one<br>
-A child you died to save<br>
-If you gave your life to love them so will I<br>
-<br>
-Like you would again a hundred billion times<br>
-But what measure could amount to your desire<br>
-You're the one who never leaves the one behind<br>
-<br>
-CCLI 7084123<br>
-Joel Houston, Benjamin Hastings, and Michael Fatkin
+Stuart Townend Copyright © 1995 Thankyou Music<br>
+CCLI 62951 (main copyright licence)<br>
+CCLI 174113 (streaming licence)<br>
+
 
 ### 4. 10,000 Reasons <br>
 Bless the Lord, O my soul<br>
