@@ -4,18 +4,18 @@ order: 1
 ---
 
 ## 9:30am
-1. Be Thou My Vision
-2. Before The Throne of God Above
-3. So Will I (100 Billion X)
-4. 10,000 Reasons
+1. How Great Thou Art
+2. O Praise the Name
+3. How Deep the Father’s Love for Us
+4. Your Will Be Done
 
 **Scroll below for 9:30am song lyrics**
 
 ## 4:00pm
-1. When I Survey The Wondrous Cross
-2. His Mercy is More
-3. The Love of the Father
-4. Yet not I but through Christ in Me
+1. Christ Our Hope in Life and Death
+2. Praise to the Lord
+3. The Servant King
+4. Your Will Be Done
 
 ## 9:30am Song Lyrics <br>
 
