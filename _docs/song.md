@@ -190,49 +190,52 @@ CCLI 62951 (main copyright licence)<br>
 CCLI 174113 (streaming licence)<br>
 
 
-### 4. 10,000 Reasons <br>
-Bless the Lord, O my soul<br>
-O my soul, worship His holy Name<br>
-Sing like never before, O my soul<br>
-I'll worship Your holy Name<br>
+### 4. Your Will Be Done <br>
+Your will be done, my God and Father<br>
+As in Heaven, so on Earth<br>
+My heart is drawn to self-exalting<br>
+Help me seek Your kingdom first<br>
 <br>
-The sun comes up, it's a new day dawning<br>
-It's time to sing Your song again<br>
-Whatever may pass and whatever lies before me<br>
-Let me be singing when the evening comes<br>
+As Jesus walked, so I shall walk<br>
+Held by Your same unchanging love<br>
+Be still my soul, O lift your voice and pray<br>
+"Father, not my will but Yours be done"<br>
 <br>
-Bless the Lord, O my soul<br>
-O my soul, worship His holy Name<br>
-Sing like never before, O my soul<br>
-I'll worship Your holy Name<br>
+How in that Garden He persisted<br>
+I may never fully know<br>
+The fearful weight of true obedience<br>
+It was held by Him alone<br>
 <br>
-You're rich in love and You're slow to anger<br>
-Your Name is great and Your heart is kind<br>
-For all Your goodness I will keep on singing<br>
-Ten thousand reasons for my heart to find<br>
+What wondrous faith to bear that cross<br>
+To bear my sin, what wondrous love<br>
+My hope was sure, when there my Saviour prayed<br>
+"Father, not my will but Yours be done"<br>
 <br>
-Bless the Lord, O my soul<br>
-O my soul, worship His holy Name<br>
-Sing like never before, O my soul<br>
-I'll worship Your holy Name<br>
+When I am lost, when I am broken<br>
+In the night of fear and doubt<br>
+Still, I will trust in my good Father<br>
+Yes, to one great King I bow<br>
 <br>
-And on that day when my strength is failing,<br>
-The end draws near and my time has come;<br>
-Still my soul sings Your praise unending,<br>
-Ten thousand years and then forevermore.<br>
+As Jesus rose, so I shall rise<br>
+In ransomed glory at the throne<br>
+My heart restored<br>
+With all Your saints, I sing<br>
+"Father, not my will but Yours be done"<br>
 <br>
-Bless the Lord, O my soul<br>
-O my soul, worship His holy Name<br>
-Sing like never before, O my soul<br>
-I'll worship Your holy Name <br>
+As we go forth, our God and Father<br>
+Lead us daily in the fight<br>
+That all the world might see Your glory<br>
+And Your Name be lifted high<br>
 <br>
-Bless the Lord, O my soul<br>
-O my soul, worship His holy Name<br>
-Sing like never before, O my soul<br>
-I'll worship Your holy Name<br>
-Yes I’ll worship Your holy Name<br>
-Lord I’ll Worship Your holy Name<br>
+And in this Name we overcome<br>
+For You shall see us safely home<br>
+Now as Your church, we lift our voice and pray<br>
+"Father, not my will but Yours be done"<br>
 <br>
+"Father, not my will but Yours be done"<br>
+"Father, not my will but Yours be done"<br>
+<br>
+CCLI #7149566; © 2020 CityAlight Music; Rich Thompson, Jonny Robinson <br>
 CCLI 62951 (main copyright licence)<br>
 CCLI 174113 (streaming licence)<br>
-CCLI 6016351 Matt Redman <br>
+
