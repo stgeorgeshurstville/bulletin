@@ -100,10 +100,13 @@ Then sings my soul,<br>
 My Saviour God, to Thee;<br>
 How great Thou art,<br>
 How great Thou art!<br>
-<br>
-CCLI 30639
+<br><br>
+Carl Boberg; Stuart K. Hine (1949)<br>
+CCLI 62951 (main copyright licence)<br>
+CCLI 174113 (streaming licence)<br>
 
-### 2. Before The Throne of God Above <br>
+
+### 2. O Praise the Name <br>
 Before the throne of God above <br>
 I have a strong and perfect plea<br>
 A great High Priest whose name is love<br>
