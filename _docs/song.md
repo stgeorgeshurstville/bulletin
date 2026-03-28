@@ -19,32 +19,51 @@ order: 1
 
 ## 9:30am Song Lyrics <br>
 
-### 1. Be Thou My Vision <br>
-Be Thou my vision, O Lord of my heart<br>
-Naught be all else to me, save that Thou art<br>
-Thou my best thought, by day or by night<br>
-Waking or sleeping, Thy presence my light.<br>
-<br>
-Be Thou my wisdom, and Thou my true word<br>
-I ever with Thee, and Thou with me, Lord<br>
-Thou my great Father, and I Thy true son;<br>
-Thou in me dwelling, and I with Thee one.<br>
-<br>
-Be Thou my battle shield, sword for the fight<br>
-Be Thou my dignity, Thou my delight<br>
-Thou my soul’s shelter, Thou my high tow’r:<br>
-Raise Thou me heav’nward, O pow’r of my pow’r.<br>
-<br>
-Riches I heed not, nor man's empty praise<br>
-Thou mine inheritance now and always:<br>
-Thou and Thou only, first in my heart<br>
-High King of heaven, my treasure Thou art.<br>
-<br>
-High King of heaven, my vict’ry won,<br>
-May I reach heaven's joys, O bright heaven's Sun!<br>
-Heart of my own heart, whatever befall,<br>
-Still be my vision, O Ruler of all.<br>
-Still be my vision, O Ruler of all.
+### 1. How Great Thou Art <br>
+Verse 1
+O Lord my God
+When I in awesome wonder
+Consider all the works
+Thy hands have made,
+I see the stars,
+I hear the rolling thunder,
+Thy pow'r throughout
+The universe displayed!
+
+Chorus
+Then sings my soul,
+My Saviour God, to Thee;
+How great Thou art,
+How great Thou art!
+Then sings my soul,
+My Saviour God, to Thee;
+How great Thou art,
+How great Thou art!
+
+Verse 2
+When thru the woods
+And forest glades I wander
+And hear the birds
+Sing sweetly in the trees,
+When I look down
+From lofty mountain grandeur
+And hear the brook
+And feel the gentle breeze,
+
+Chorus
+Then sings my soul,
+My Saviour God, to Thee;
+How great Thou art,
+How great Thou art!
+Then sings my soul,
+My Saviour God, to Thee;
+How great Thou art,
+How great Thou art!
+
+Verse 3
+And when I think
+That God, His Son not sparing,
+Sent Him to die,
 
 CCLI 30639
 
