@@ -20,51 +20,87 @@ order: 1
 ## 9:30am Song Lyrics <br>
 
 ### 1. How Great Thou Art <br>
-Verse 1
-O Lord my God
-When I in awesome wonder
-Consider all the works
-Thy hands have made,
-I see the stars,
-I hear the rolling thunder,
-Thy pow'r throughout
-The universe displayed!
-
-Chorus
-Then sings my soul,
-My Saviour God, to Thee;
-How great Thou art,
-How great Thou art!
-Then sings my soul,
-My Saviour God, to Thee;
-How great Thou art,
-How great Thou art!
-
-Verse 2
-When thru the woods
-And forest glades I wander
-And hear the birds
-Sing sweetly in the trees,
-When I look down
-From lofty mountain grandeur
-And hear the brook
-And feel the gentle breeze,
-
-Chorus
-Then sings my soul,
-My Saviour God, to Thee;
-How great Thou art,
-How great Thou art!
-Then sings my soul,
-My Saviour God, to Thee;
-How great Thou art,
-How great Thou art!
-
-Verse 3
-And when I think
-That God, His Son not sparing,
-Sent Him to die,
-
+Verse 1<br>
+O Lord my God<br>
+When I in awesome wonder<br>
+Consider all the works<br>
+Thy hands have made,<br>
+I see the stars,<br>
+I hear the rolling thunder,<br>
+Thy pow'r throughout<br>
+The universe displayed!<br>
+<br>
+Chorus<br>
+Then sings my soul,<br>
+My Saviour God, to Thee;<br>
+How great Thou art,<br>
+How great Thou art!<br>
+Then sings my soul,<br>
+My Saviour God, to Thee;<br>
+How great Thou art,<br>
+How great Thou art!<br>
+<br>
+Verse 2<br>
+When thru the woods<br>
+And forest glades I wander<br>
+And hear the birds<br>
+Sing sweetly in the trees,<br>
+When I look down<br>
+From lofty mountain grandeur<br>
+And hear the brook<br>
+And feel the gentle breeze,<br>
+<br>
+Chorus<br>
+Then sings my soul,<br>
+My Saviour God, to Thee;<br>
+How great Thou art,<br>
+How great Thou art!<br>
+Then sings my soul,<br>
+My Saviour God, to Thee;<br>
+How great Thou art,<br>
+How great Thou art!<br>
+<br>
+Verse 3<br>
+And when I think<br>
+That God, His Son not sparing,<br>
+Sent Him to die,<br>
+<br>
+I scarce can take it in -<br>
+That on the cross,<br>
+My burden gladly bearing,<br>
+He bled and died<br>
+To take away my sin!<br>
+<br>
+Chorus<br>
+Then sings my soul,<br>
+My Saviour God, to Thee;<br>
+How great Thou art,<br>
+How great Thou art!<br>
+Then sings my soul,<br>
+My Saviour God, to Thee;<br>
+How great Thou art,<br>
+How great Thou art!<br>
+<br>
+Verse 4<br>
+When Christ shall come<br>
+With shout of acclamation<br>
+And take me home,<br>
+What joy shall fill my heart!<br>
+Then I shall bow<br>
+In humble adoration<br>
+And there proclaim,<br>
+My God, how great Thou art!<br>
+<br>
+Chorus<br>
+Then sings my soul,<br>
+My Saviour God, to Thee;<br>
+How great Thou art,<br>
+How great Thou art!<br>
+Then sings my soul,<br>
+My Saviour God, to Thee;<br>
+How great Thou art,<br>
+How great Thou art!<br>
+<br>
 CCLI 30639
 
 ### 2. Before The Throne of God Above <br>
