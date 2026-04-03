@@ -36,7 +36,11 @@ Dear God, thank you for letting us know you. Please help us learn from your word
 ¹⁶ Then the eleven disciples went to Galilee, to the mountain where Jesus had told them to go. ¹⁷ When they saw him, they worshiped him; but some doubted. ¹⁸ Then Jesus came to them and said, “All authority in heaven and on earth has been given to me. ¹⁹ Therefore go and make disciples of all nations, baptizing them in the name of the Father and of the Son and of the Holy Spirit, ²⁰ and teaching them to obey everything I have commanded you. And surely I am with you always, to the very end of the age.”
 
 ## Sermon Outline <br>
+### The Opposing Truth of the Resurrection.<br>
 
+1. Worldly Weakness vs. Heavenly Power
+2. Earthly Decay vs. Eternal Family
+3. Comfortable Silence vs. Faithful Sending
 
 
 
