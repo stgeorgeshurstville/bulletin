@@ -22,26 +22,21 @@ Dear God, thank you for letting us know you. Please help us learn from your word
 
 
 
-### Matthew 26:36-46 (NIV) 
-Gethsemane
+### Matthew 28 (NIV)  
+¹ After the Sabbath, at dawn on the first day of the week, Mary Magdalene and the other Mary went to look at the tomb.
 
-³⁶ Then Jesus went with his disciples to a place called Gethsemane, and he said to them, “Sit here while I go over there and pray.” ³⁷ He took Peter and the two sons of Zebedee along with him, and he began to be sorrowful and troubled. ³⁸ Then he said to them, “My soul is overwhelmed with sorrow to the point of death. Stay here and keep watch with me.”
+² There was a violent earthquake, for an angel of the Lord came down from heaven and, going to the tomb, rolled back the stone and sat on it. ³ His appearance was like lightning, and his clothes were white as snow. ⁴ The guards were so afraid of him that they shook and became like dead men.
 
-³⁹ Going a little farther, he fell with his face to the ground and prayed, “My Father, if it is possible, may this cup be taken from me. Yet not as I will, but as you will.”
+⁵ The angel said to the women, “Do not be afraid, for I know that you are looking for Jesus, who was crucified. ⁶ He is not here; he has risen, just as he said. Come and see the place where he lay. ⁷ Then go quickly and tell his disciples: ‘He has risen from the dead and is going ahead of you into Galilee. There you will see him.’ Now I have told you.”
 
-⁴⁰ Then he returned to his disciples and found them sleeping. “Couldn’t you men keep watch with me for one hour?” he asked Peter. ⁴¹ “Watch and pray so that you will not fall into temptation. The spirit is willing, but the flesh is weak.”
+⁸ So the women hurried away from the tomb, afraid yet filled with joy, and ran to tell his disciples. ⁹ Suddenly Jesus met them. “Greetings,” he said. They came to him, clasped his feet and worshiped him. ¹⁰ Then Jesus said to them, “Do not be afraid. Go and tell my brothers to go to Galilee; there they will see me.”
 
-⁴² He went away a second time and prayed, “My Father, if it is not possible for this cup to be taken away unless I drink it, may your will be done.”
+¹¹ While the women were on their way, some of the guards went into the city and reported to the chief priests everything that had happened. ¹² When the chief priests had met with the elders and devised a plan, they gave the soldiers a large sum of money, ¹³ telling them, “You are to say, ‘His disciples came during the night and stole him away while we were asleep.’ ¹⁴ If this report gets to the governor, we will satisfy him and keep you out of trouble.” ¹⁵ So the soldiers took the money and did as they were instructed. And this story has been widely circulated among the Jews to this very day.
 
-⁴³ When he came back, he again found them sleeping, because their eyes were heavy. ⁴⁴ So he left them and went away once more and prayed the third time, saying the same thing.
-
-⁴⁵ Then he returned to the disciples and said to them, “Are you still sleeping and resting? Look, the hour has come, and the Son of Man is delivered into the hands of sinners. ⁴⁶ Rise! Let us go! Here comes my betrayer!”
+¹⁶ Then the eleven disciples went to Galilee, to the mountain where Jesus had told them to go. ¹⁷ When they saw him, they worshiped him; but some doubted. ¹⁸ Then Jesus came to them and said, “All authority in heaven and on earth has been given to me. ¹⁹ Therefore go and make disciples of all nations, baptizing them in the name of the Father and of the Son and of the Holy Spirit, ²⁰ and teaching them to obey everything I have commanded you. And surely I am with you always, to the very end of the age.”
 
 ## Sermon Outline <br>
-1. The Disciples Struggle 
-2. The Saviours Submission
-3. The Success of the Cross
-4. Our Supplications
+
 
 
 
