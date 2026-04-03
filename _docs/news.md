@@ -7,19 +7,12 @@ order: 5
 
 | Date | Event | Time |
 | ---- | ---- | ---- | 
-| Friday 3rd April | Good Friday Service | 9:30am |
 | Sunday 5th April | Easter Sunday Service| 9:30am & 4:00pm | 
 | Sunday 26th of April | The Discover Course| 5:30pm | 
 
 ## General
 ### Easter Weekend: To Know the One True God and to Make Him Known
 This Easter, we invite you to join the English Congregation as we live out our church vision through the lens of the cross and the empty tomb.
-
-### Good Friday: To Know Him
-We gather to reflect on the depth of God's love through the cross.
-<br>- Theme: Knowing His Sacrifice (Matthew 27:32-54)
-<br>- Time: 9:30 AM
-<br>- Location: The Chapel 
 
 ### Easter Sunday: To Make Him Known
 We celebrate the resurrection and our mission to share the Good News.
