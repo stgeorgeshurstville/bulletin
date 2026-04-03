@@ -9,11 +9,10 @@ title: Welcome
 [comment]: ##### "where the sentence came from, e.g. Psalm 1:1"  
 [comment]: ----------------------------------------------------  
 
-## Knowing God 
+## Knowing God: Making Him Known (His Mission)
 
-
-#### "Lift up your heads, O gates! and be lifted up, O ancient doors! that the king of glory may come in. Who is the King of glory? The Lord of hosts, he is the King of glory!” 
-##### Psalm 24: 9-10
+#### "The Lord is risen indeed, alleluia; to him be glory and dominion for ever and ever." "This is the day which the Lord has made; let us rejoice and be glad in it.” 
+#####  Luke 24:34; Revelation 1:6; Psalm 118:24
 
 
 ---
