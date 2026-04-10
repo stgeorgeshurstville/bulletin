@@ -18,22 +18,27 @@ order: 2
 [comment]: ------------------------------------------------------------------------------------
 ## Bible Reading
 ### Prayer
-Dear God, thank you for letting us know you. Please help us learn from your word. Help us to serve and praise you. **Amen!**
+Dear God, thank you for letting us know you. Please help us learn from your word. Help us to serve and praise you. Amen! **Amen!**
 
 
 
-### Matthew 28 (NIV)  
-¹ After the Sabbath, at dawn on the first day of the week, Mary Magdalene and the other Mary went to look at the tomb.
+### 9:30am: 1 Corinthians 13 (NIRV)
+¹ Suppose I speak in the languages of human beings or of angels. If I don’t have love, I am only a loud gong or a noisy cymbal. ² Suppose I have the gift of prophecy. Suppose I can understand all the secret things of God and know everything about him. And suppose I have enough faith to move mountains. If I don’t have love, I am nothing at all. ³ Suppose I give everything I have to poor people. And suppose I give myself over to a difficult life so I can brag. If I don’t have love, I get nothing at all.
 
-² There was a violent earthquake, for an angel of the Lord came down from heaven and, going to the tomb, rolled back the stone and sat on it. ³ His appearance was like lightning, and his clothes were white as snow. ⁴ The guards were so afraid of him that they shook and became like dead men.
+⁴ Love is patient. Love is kind. It does not want what belongs to others. It does not brag. It is not proud. ⁵ It does not dishonor other people. It does not look out for its own interests. It does not easily become angry. It does not keep track of other people’s wrongs. ⁶ Love is not happy with evil. But it is full of joy when the truth is spoken. ⁷ It always protects. It always trusts. It always hopes. It never gives up.
 
-⁵ The angel said to the women, “Do not be afraid, for I know that you are looking for Jesus, who was crucified. ⁶ He is not here; he has risen, just as he said. Come and see the place where he lay. ⁷ Then go quickly and tell his disciples: ‘He has risen from the dead and is going ahead of you into Galilee. There you will see him.’ Now I have told you.”
+⁸ Love never fails. But prophecy will pass away. Speaking in languages that had not been known before will end. And knowledge will pass away. ⁹ What we know now is not complete. What we prophesy now is not perfect. ¹⁰ But when what is complete comes, the things that are not complete will pass away. ¹¹ When I was a child, I talked like a child. I thought like a child. I had the understanding of a child. When I became a man, I put the ways of childhood behind me. ¹² Now we see only a dim likeness of things. It is as if we were seeing them in a foggy mirror. But someday we will see clearly. We will see face to face. What I know now is not complete. But someday I will know completely, just as God knows me completely.
 
-⁸ So the women hurried away from the tomb, afraid yet filled with joy, and ran to tell his disciples. ⁹ Suddenly Jesus met them. “Greetings,” he said. They came to him, clasped his feet and worshiped him. ¹⁰ Then Jesus said to them, “Do not be afraid. Go and tell my brothers to go to Galilee; there they will see me.”
+¹³ The three most important things to have are faith, hope and love. But the greatest of them is love.
 
-¹¹ While the women were on their way, some of the guards went into the city and reported to the chief priests everything that had happened. ¹² When the chief priests had met with the elders and devised a plan, they gave the soldiers a large sum of money, ¹³ telling them, “You are to say, ‘His disciples came during the night and stole him away while we were asleep.’ ¹⁴ If this report gets to the governor, we will satisfy him and keep you out of trouble.” ¹⁵ So the soldiers took the money and did as they were instructed. And this story has been widely circulated among the Jews to this very day.
+### 4:00pm: 1 Corinthians 13 (NIV)
+¹ Suppose I speak in the languages of human beings or of angels. If I don’t have love, I am only a loud gong or a noisy cymbal. ² Suppose I have the gift of prophecy. Suppose I can understand all the secret things of God and know everything about him. And suppose I have enough faith to move mountains. If I don’t have love, I am nothing at all. ³ Suppose I give everything I have to poor people. And suppose I give myself over to a difficult life so I can brag. If I don’t have love, I get nothing at all.
 
-¹⁶ Then the eleven disciples went to Galilee, to the mountain where Jesus had told them to go. ¹⁷ When they saw him, they worshiped him; but some doubted. ¹⁸ Then Jesus came to them and said, “All authority in heaven and on earth has been given to me. ¹⁹ Therefore go and make disciples of all nations, baptizing them in the name of the Father and of the Son and of the Holy Spirit, ²⁰ and teaching them to obey everything I have commanded you. And surely I am with you always, to the very end of the age.”
+⁴ Love is patient. Love is kind. It does not want what belongs to others. It does not brag. It is not proud. ⁵ It does not dishonor other people. It does not look out for its own interests. It does not easily become angry. It does not keep track of other people’s wrongs. ⁶ Love is not happy with evil. But it is full of joy when the truth is spoken. ⁷ It always protects. It always trusts. It always hopes. It never gives up.
+
+⁸ Love never fails. But prophecy will pass away. Speaking in languages that had not been known before will end. And knowledge will pass away. ⁹ What we know now is not complete. What we prophesy now is not perfect. ¹⁰ But when what is complete comes, the things that are not complete will pass away. ¹¹ When I was a child, I talked like a child. I thought like a child. I had the understanding of a child. When I became a man, I put the ways of childhood behind me. ¹² Now we see only a dim likeness of things. It is as if we were seeing them in a foggy mirror. But someday we will see clearly. We will see face to face. What I know now is not complete. But someday I will know completely, just as God knows me completely.
+
+¹³ The three most important things to have are faith, hope and love. But the greatest of them is love.
 
 ## Sermon Outline <br>
 ### The Opposing Truth of the Resurrection.<br>
