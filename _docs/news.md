@@ -7,18 +7,11 @@ order: 5
 
 | Date | Event | Time |
 | ---- | ---- | ---- | 
-| Sunday 5th April | Easter Sunday Service| 9:30am & 4:00pm | 
 | Sunday 26th of April | The Discover Course| 5:30pm | 
 
 ## General
-### Easter Weekend: To Know the One True God and to Make Him Known
-This Easter, we invite you to join the English Congregation as we live out our church vision through the lens of the cross and the empty tomb.
-
-### Easter Sunday: To Make Him Known
-We celebrate the resurrection and our mission to share the Good News.
-<br>- Theme: Making Him Known (Matthew 28)
-<br>- Morning: 9:30 AM at Hurstville Public School
-<br>- Afternoon: 4:00 PM in The Chapel
+### Good Friday Donations:
+Our Good Friday services had collectively raised $4,120 for the ARDFA humanitarian aid project in South Lebanon, supporting communities where over a million people have been displaced by war and regional conflict. Thank you for your generosity.
 
 ### Looking Ahead: The Discover Course
 If we want to be a church that makes Jesus known, we must be a people who are willing to invite. One of our key moments in Term 2 to live this out is the Discover Course.<br>
@@ -27,16 +20,6 @@ If we want to be a church that makes Jesus known, we must be a people who are wi
 <br>- Time: 5:30 PM (following the 4:00 PM service)
 <br>- Location: St George’s <br>
 <br>Who are you praying for? As we move toward Term 2, start thinking now about who you might invite to "Discover" the truth about Jesus with you.
-
-### Mission Round Table Update: Shaping Our Future Together
-Two weeks ago, a group from our 9:30 AM service met for a Mission Round Table discussion. Our focus was simple: how can we make our gatherings more accessible and welcoming for those who don’t yet know Jesus? <br>
-We’ve identified a few areas in our current Sunday rhythms and are looking at some exciting ways to remove these barriers—from creating a warmer atmosphere in the hall to simplifying how we support families with children.<br>
-
-**Read the Full Report** <br>
-We want to be transparent about the direction we are heading. You can read the summary of our findings and the proposed next steps [here](https://docs.google.com/document/d/1kGqJAl5jOj30Mw2fxQW9Uu9J7W_o3MIk8jy7l-blT_8/edit?tab=t.0) <br>
-
-**Join the Conversation** <br>
-Because these shifts involve our whole community, we’d love to sit down with you again in two weeks’ time after the service. This will be a chance for you to hear more about the vision, ask questions, and buy into the plans we have for Term 2.
 
 ## New to the Family? Join "The Bridge"
 If you’ve recently moved into the area or have started making this your home church after moving from another congregation, we’d love to officially welcome you.
