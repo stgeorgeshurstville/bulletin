@@ -4,166 +4,264 @@ order: 1
 ---
 
 ## 9:30am
-1. Christ the Lord is Risen Today
-2. King of Kings
-3. Because He lives
-4. Let Your Kingdom Come
+1. Cornerstone
+2. Before the Throne of God above
+3. Sinking Deep
+4. Pass it On
 
 **Scroll below for 9:30am song lyrics**
 
 ## 4:00pm
-1. Christ is Risen, He is Risen Indeed
-2. Crown Him with Many Crowns
-3. Come Behold the Wondrous Mystery
-4. Let Your Kingdom Come
+1. This is Amazing Grace
+2. Jesus, Strong and Kind
+3. We are one
+4. Christ Our Hope in Life and Death
 
 ## 9:30am Song Lyrics <br>
 
-### 1. Christ the Lord is Risen Today <br>
-Christ the Lord is ris’n today, Alleluia!<br>
-Sons of men and angels say, Alleluia!<br>
-Raise your joys and triumphs high, Alleluia!<br>
-Sing, ye heav’ns, and earth reply, Alleluia!<br>
+### 1. Cornerstone <br>
+My hope is built on nothing less <br>
+Than Jesus blood and righteousness <br>
+I dare not trust the sweetest frame <br>
+But wholly trust in Jesus name <br> <br>
+
+My hope is built on nothing less <br>
+Than Jesus blood and righteousness <br>
+I dare not trust the sweetest frame <br>
+But wholly trust in Jesus name <br> <br>
+
+Christ alone, Cornerstone <br>
+Weak made strong in the Saviour's love <br>
+Through the storm, He is Lord <br>
+Lord of all <br> <br>
+
+When darkness seems to hide His face <br>
+I rest on His unchanging grace <br>
+In every high and stormy gale <br>
+My anchor holds within the veil <br>
+My anchor holds within the veil <br> <br>
+
+Christ alone, Cornerstone <br>
+Weak made strong in the Saviour's love <br>
+Through the storm, He is Lord <br>
+Lord of all <br>
+He is Lord, Lord of all <br> <br>
+
+Christ alone, Cornerstone <br>
+Weak made strong in the Saviour's love <br>
+Through the storm, He is Lord <br>
+Lord of all <br> <br>
+
+Christ alone, Cornerstone <br>
+Weak made strong in the Saviour's love <br>
+Through the storm, He is Lord <br>
+Lord of all <br> <br>
+
+When He shall come with trumpet sound <br>
+Oh may I then in Him be found <br>
+Dressed in His righteousness alone <br>
+Faultless stand before the throne <br> <br>
+
+Christ alone, Cornerstone <br>
+Weak made strong in the Saviour's love <br>
+Through the storm, He is Lord <br>
+Lord of all <br> <br>
  
-Lives again our glorious King, Alleluia!<br>
-Where, O death, is now thy sting? Alleluia!<br>
-Dying once, our souls to save, Alleluia!<br>
-Where's thy victory, O grave? Alleluia!<br>
- 
-Love's redeeming work is done, Alleluia!<br>
-Fought the fight, the battle won, Alleluia!<br>
-Death in vain forbids Him rise, Alleluia!<br>
-Christ has opened paradise, Alleluia!<br>
+Christ alone, Cornerstone <br>
+Weak made strong in the Saviour's love <br>
+Through the storm, He is Lord <br>
+Lord of all <br> <br>
 
-Soar we now where Christ has led, Alleluia!<br>
-Following our exalted Head, Alleluia!<br>
-Made like him, like him we rise, Alleluia!<br>
-Ours the cross, the grave, the skies, Alleluia!<br>
+@ 2012 Hillsong worship | Reuben Morgan, Andrew Crawford <br>
+CCLI 62951 (main copyright licence) <br>
+CCLI 174113 (streaming licence) <br> <br>
 
-### 2. King of Kings <br>
-In the darkness we were waiting<br>
-Without hope, without light<br>
-'Til from Heaven You came running<br>
-There was mercy in Your eyes<br>
-To fulfill the law and prophets<br>
-To a virgin came the word<br>
-From a throne of endless glory<br>
-To a cradle in the dirt<br><br>
-Praise the Father, praise the Son<br>
-Praise the Spirit, three in one<br>
-God of glory, Majesty<br>
-Praise forever to the King of Kings<br>
-To reveal the kingdom coming<br>
-And to reconcile the lost<br>
-To redeem the whole creation<br>
-You did not despise the cross<br>
-For even in your suffering<br>
-You saw to the other side<br>
-Knowing this was our salvation<br>
-Jesus for our sake you died<br><br>
-Praise the Father, praise the Son<br>
-Praise the Spirit, three in one<br>
-God of glory, Majesty<br>
-Praise forever to the King of Kings<br><br>
-And the morning that You rose<br>
-All of Heaven held its breath<br>
-'Til that stone was moved for good<br>
-For the Lamb had conquered death<br>
-And the dead rose from their tombs<br>
-And the angels stood in awe<br>
-For the souls of all who'd come<br>
-To the Father are restored<br><br>
-And the church of Christ was born<br>
-Then the Spirit lit the flame<br>
-Now this gospel truth of old<br>
-Shall not kneel, shall not faint<br>
-By His blood and in His name<br>
-In His freedom I am free<br>
-For the love of Jesus Christ<br>
-Who has resurrected me<br><br>
-Praise the Father, praise the Son<br>
-Praise the Spirit, three in one<br>
-God of glory, Majesty<br><br>
-Praise the Father, praise the Son<br>
-Praise the Spirit, three in one<br>
-God of glory, Majesty<br>
-Praise forever to the King of Kings<br>
-Praise forever to the King of Kings<br>
 
-### 3. Because He lives <br>
-God sent His son, they called Him, Jesus;<br>
-He came to love, heal and forgive;<br>
-He lived and died to buy my pardon,<br>
-An empty grave is there to prove my Savior lives!<br>
-Because He lives, I can face tomorrow,<br>
-Because He lives, all fear is gone;<br>
-Because I know He holds the future,<br>
-And life is worth the living,<br>
-Just because He lives<br>
-How sweet to hold a newborn baby,<br>
-And feel the pride and joy he brings;<br>
-But greater still the calm assurance:<br>
-This child can face uncertain days because He lives<br>
-Because He lives, I can face tomorrow,<br>
-Because He lives, all fear is gone;<br>
-Because I know He holds the future,<br>
-And life is worth the living,<br>
-Just because He lives<br>
-And then one day, I'll cross the river,<br>
-I'll fight life's final war with pain;<br>
-And then, as death gives way to victory,<br>
-I'll see the lights of glory and I'll know He lives<br>
-Because He lives, I can face tomorrow,<br>
-Because He lives, all fear is gone;<br>
-Because I know He holds the future,<br>
-And life is worth the living,<br>
-Just because He lives<br>
+### 2. Before the Throne of God above <br>
+Before the throne of God above <br>
+ I have a strong and perfect plea <br>
+ A great High Priest whose name is love <br>
+ Who ever lives and pleads for me <br>
+ My name is graven on His hands <br>
+ My name is written on His heart <br>
+ I know that while in heav’n He stands <br>
+ No tongue can bid me thence depart <br>
+ No tongue can bid me thence depart <br> <br>
 
-Because He lives, I can face tomorrow,<br>
-Because He lives, all fear is gone;<br>
-Because I know He holds the future,<br>
-And life is worth the living,<br>
-Just because He lives<br>
+When Satan tempts me to despair <br>
+And tells me of the guilt within <br>
+Upward I look and see Him there <br>
+Who made an end to all my sin <br>
+Because the sinless Savior died <br>
+My sinful soul is counted free <br>
+For God the Just is satisfied <br>
+To look on Him and pardon me <br>
+To look on Him and pardon me <br>
+Behold Him there, the risen Lamb <br>
+My perfect, spotless Righteousness <br>
+The great unchangeable I AM <br>
+The King of glory and of grace <br>
+One with Himself, I cannot die <br>
+My soul is purchased by His blood <br>
+My life is hid with Christ on high <br>
+With Christ my Savior and my God <br>
+With Christ my Savior and my God <br> <br>
 
-And life is worth the living,<br>
-Just because He lives!<br>
+CCLI: #2306412 @ 1997 Sovereign Grace Music <br>
+CCLI 62951 (main copyright licence) <br>
+CCLI 174113 (streaming licence) <br> <br>
 
-### 4. Let Your Kingdom Come <br>
-Your glorious cause, O God<br>
-Engages our hearts<br>
-May Jesus Christ be known<br>
-Wherever we are<br>
+### 3. Sinking Deep <br>
+Standing here in Your presence <br>
+In a grace so relentless <br>
+I am won <br>
+By perfect love <br> <br>
 
-We ask not for ourselves, <br>
-but for Your renown<br>
-The cross has saved us so we pray<br>
-Your kingdom come<br>
 
-Let Your kingdom come<br>
-Let Your will be done<br>
-So that everyone might know Your Name<br>
+Wrapped within the arms of heaven <br>
+In a peace that lasts forever <br>
+Sinking deep <br>
+In mercy's sea <br> <br>
 
-Let Your song be heard everywhere on earth<br>
-Till Your sovereign work on earth is done<br>
-Let Your kingdom come<br>
 
-Give us Your strength, O God<br>
-And courage to speak<br>
-Perform Your wondrous deeds<br>
-Through those who are weak<br>
+I'm wide awake <br>
+Drawing close <br>
+Stirred by grace <br>
+And all my heart is Yours <br> <br>
 
-Lord use us as You want, <br>
-whatever the test<br>
-By grace we'll preach Your gospel<br>
-Till our dying breath<br>
 
-Let Your kingdom come<br>
-Let Your will be done<br>
-So that everyone might know Your Name<br>
+All fear removed <br>
+I breathe You in <br>
+I lean into Your love <br>
+Oh, Your love <br> <br>
 
-Let Your song be heard everywhere on earth<br>
-Till Your sovereign work on earth is done<br>
-Let Your kingdom come<br>
-Let Your kingdom come<br>
-Let Your kingdom come<br>
+
+When I'm lost You pursue me <br>
+Lift my head to see Your glory <br>
+Lord of all <br>
+So beautiful <br> <br>
+
+
+Here in You I find shelter <br>
+Captivated by the splendor <br>
+Of Your face <br>
+My secret place <br> <br>
+
+
+I'm wide awake <br>
+Drawing close <br>
+Stirred by grace <br>
+And all my heart is Yours <br> <br>
+
+
+All fear removed <br>
+I breathe You in <br>
+I lean into Your love <br>
+Oh, Your love <br> <br>
+
+
+Your love so deep <br>
+Is washing over me <br>
+Your face is all I seek <br>
+You are my everything <br> <br>
+
+
+Jesus Christ <br>
+You are my one desire <br>
+Lord hear my only cry <br>
+To know You all my life <br> <br>
+
+
+Love so deep <br>
+Is washing over me <br>
+Your face is all I seek <br>
+You are my everything <br> <br>
+
+
+Jesus Christ <br>
+You are my one desire <br>
+Lord hear my only cry <br>
+To know You all my life <br> <br>
+
+
+I'm wide awake <br>
+Drawing close <br>
+Stirred by grace <br>
+And all my heart is Yours <br> <br>
+
+
+All fear removed <br>
+I breathe You in <br>
+I lean into Your love <br>
+Oh, Your love <br> <br>
+
+Love so deep <br>
+Is washing over me <br>
+Your face is all I seek <br>
+You are my everything <br> <br>
+
+
+Jesus Christ <br>
+You are my one desire <br>
+Lord hear my only cry <br>
+To know You all my life <br>
+
+
+Love so deep <br>
+Is washing over me <br>
+Your face is all I seek <br>
+You are my everything <br> <br>
+
+
+Jesus Christ <br>
+You are my one desire <br>
+Lord hear my only cry <br>
+To know You all my life <br> <br>
+
+@ 2013 Hillsong, Young & Free album   <br>
+CCLI 62951 (main copyright licence) <br>
+CCLI 174113 (streaming licence) <br> <br>
+
+
+### 4. Pass it On <br>
+It only takes a spark <br>
+To get a fire going <br>
+And soon all those around <br>
+Can warm up in its glowing <br> <br>
+
+That's how it is with God's love <br>
+Once you've experienced it <br>
+You spread His love to ev'ryone <br>
+You want to pass it on <br> <br>
+
+What a wondrous time is spring <br>
+When all the trees are budding <br>
+The birds begin to sing <br>
+The flowers start their blooming <br> <br>
+
+That's how it is with God's love <br>
+Once you've experienced it <br>
+You want to sing it's fresh like spring <br>
+You want to pass it on <br> <br>
+
+I wish for you my friend <br>
+This happiness that I've found <br>
+You can depend on Him <br>
+It matters not where you're bound <br> <br>
+
+I'll shout it from the mountain top <br>
+I want the world to know <br>
+The Lord of love has come to me <br>
+I want to pass it on <br> <br>
+
+I'll shout it from the mountain top <br>
+I want the world to know <br>
+The Lord of love has come to me <br>
+I want to pass it on <br> <br>
+
+CCLI Song # 14284 | ©2019 Kurt Kaiser <br>
+CCLI 62951 (main copyright licence) <br>
+CCLI 174113 (streaming licence) <br>
+
+
 
