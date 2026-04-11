@@ -41,11 +41,21 @@ Dear God, thank you for letting us know you. Please help us learn from your word
 ¹³ The three most important things to have are faith, hope and love. But the greatest of them is love.
 
 ## Sermon Outline <br>
-### The Opposing Truth of the Resurrection.<br>
+### Stewardship and knowing God <br>
 
-1. Worldly Weakness vs. Heavenly Power
-2. Earthly Decay vs. Eternal Family
-3. Comfortable Silence vs. Faithful Sending
+9:30am:
+ 	Love is More Than Words!
+	Love is Kind to God's Stuff
+ 	Love Never Fails 
+
+4pm:
+Introduction: The Reset and the Reality
+Leaving Behind Our Childish Ways:
+ 	- Passivity of Inheritance
+ 	- Outsourcing Mindset
+ 	- Roster Mentality
+ 	- Hyper-Spiritualizing our Mess
+Conclusion: Love is in the details
 
 
 
