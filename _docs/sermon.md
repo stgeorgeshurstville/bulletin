@@ -44,17 +44,17 @@ Dear God, thank you for letting us know you. Please help us learn from your word
 ### Stewardship and knowing God <br>
 
 9:30am:
- 	Love is More Than Words!
-	Love is Kind to God's Stuff
- 	Love Never Fails 
+	Love is More Than Words!<br>
+	Love is Kind to God's Stuff<br>
+ 	Love Never Fails <br>
 
 4pm:
-Introduction: The Reset and the Reality
-Leaving Behind Our Childish Ways:
- 	- Passivity of Inheritance
- 	- Outsourcing Mindset
- 	- Roster Mentality
- 	- Hyper-Spiritualizing our Mess
+Introduction: The Reset and the Reality<br>
+Leaving Behind Our Childish Ways:<br>
+ 	- Passivity of Inheritance<br>
+ 	- Outsourcing Mindset<br>
+ 	- Roster Mentality<br>
+ 	- Hyper-Spiritualizing our Mess<br>
 Conclusion: Love is in the details
 
 
