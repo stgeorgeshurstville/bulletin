@@ -41,21 +41,11 @@ Dear God, thank you for letting us know you. Please help us learn from your word
 ¹³ The three most important things to have are faith, hope and love. But the greatest of them is love.
 
 ## Sermon Outline <br>
-### Stewardship and knowing God <br>
-
-9:30am:
-	Love is More Than Words!<br>
-	Love is Kind to God's Stuff<br>
- 	Love Never Fails <br>
-
-4pm:
-Introduction: The Reset and the Reality<br>
-Leaving Behind Our Childish Ways:<br>
- 	- Passivity of Inheritance<br>
- 	- Outsourcing Mindset<br>
- 	- Roster Mentality<br>
- 	- Hyper-Spiritualizing our Mess<br>
-Conclusion: Love is in the details
+Trusting someone with your money 
+Stewards or Owners
+The only reason 
+Stewarding together 
+Conclusions
 
 
 
