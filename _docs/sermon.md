@@ -22,7 +22,7 @@ Dear God, thank you for letting us know you. Please help us learn from your word
 
 
 
-### 9:30am: 1 Corinthians 13 (NIRV)
+### 
 ¹ Suppose I speak in the languages of human beings or of angels. If I don’t have love, I am only a loud gong or a noisy cymbal. ² Suppose I have the gift of prophecy. Suppose I can understand all the secret things of God and know everything about him. And suppose I have enough faith to move mountains. If I don’t have love, I am nothing at all. ³ Suppose I give everything I have to poor people. And suppose I give myself over to a difficult life so I can brag. If I don’t have love, I get nothing at all.
 
 ⁴ Love is patient. Love is kind. It does not want what belongs to others. It does not brag. It is not proud. ⁵ It does not dishonor other people. It does not look out for its own interests. It does not easily become angry. It does not keep track of other people’s wrongs. ⁶ Love is not happy with evil. But it is full of joy when the truth is spoken. ⁷ It always protects. It always trusts. It always hopes. It never gives up.
@@ -31,14 +31,8 @@ Dear God, thank you for letting us know you. Please help us learn from your word
 
 ¹³ The three most important things to have are faith, hope and love. But the greatest of them is love.
 
-### 4:00pm: 1 Corinthians 13 (NIV)
-¹ Suppose I speak in the languages of human beings or of angels. If I don’t have love, I am only a loud gong or a noisy cymbal. ² Suppose I have the gift of prophecy. Suppose I can understand all the secret things of God and know everything about him. And suppose I have enough faith to move mountains. If I don’t have love, I am nothing at all. ³ Suppose I give everything I have to poor people. And suppose I give myself over to a difficult life so I can brag. If I don’t have love, I get nothing at all.
-
-⁴ Love is patient. Love is kind. It does not want what belongs to others. It does not brag. It is not proud. ⁵ It does not dishonor other people. It does not look out for its own interests. It does not easily become angry. It does not keep track of other people’s wrongs. ⁶ Love is not happy with evil. But it is full of joy when the truth is spoken. ⁷ It always protects. It always trusts. It always hopes. It never gives up.
-
-⁸ Love never fails. But prophecy will pass away. Speaking in languages that had not been known before will end. And knowledge will pass away. ⁹ What we know now is not complete. What we prophesy now is not perfect. ¹⁰ But when what is complete comes, the things that are not complete will pass away. ¹¹ When I was a child, I talked like a child. I thought like a child. I had the understanding of a child. When I became a man, I put the ways of childhood behind me. ¹² Now we see only a dim likeness of things. It is as if we were seeing them in a foggy mirror. But someday we will see clearly. We will see face to face. What I know now is not complete. But someday I will know completely, just as God knows me completely.
-
-¹³ The three most important things to have are faith, hope and love. But the greatest of them is love.
+### Acts 2:42-47 (NIRV) 
+42 The believers studied what the apostles taught. They shared their lives together. They ate and prayed together. 43 Everyone was amazed at what God was doing. They were amazed when the apostles performed many wonders and signs. 44 All the believers were together. They shared everything they had. 45 They sold property and other things they owned. They gave to anyone who needed something. 46 Every day they met together in the temple courtyard. They ate meals together in their homes. Their hearts were glad and sincere. 47 They praised God. They were respected by all the people. Every day the Lord added to their group those who were being saved
 
 ## Sermon Outline <br>
 - Trusting someone with your money 
