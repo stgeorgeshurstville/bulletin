@@ -10,8 +10,6 @@ order: 5
 | Sunday 26th of April | The Discover Course| 5:30pm | 
 
 ## General
-### Good Friday Donations:
-Our Good Friday services had collectively raised $4,120 for the ARDFA humanitarian aid project in South Lebanon, supporting communities where over a million people have been displaced by war and regional conflict. Thank you for your generosity.
 
 ### Looking Ahead: The Discover Course
 If we want to be a church that makes Jesus known, we must be a people who are willing to invite. One of our key moments in Term 2 to live this out is the Discover Course.<br>
