@@ -41,11 +41,11 @@ Dear God, thank you for letting us know you. Please help us learn from your word
 ¹³ The three most important things to have are faith, hope and love. But the greatest of them is love.
 
 ## Sermon Outline <br>
-Trusting someone with your money 
-Stewards or Owners
-The only reason 
-Stewarding together 
-Conclusions
+- Trusting someone with your money 
+- Stewards or Owners
+- The only reason 
+- Stewarding together 
+- Conclusions
 
 
 
