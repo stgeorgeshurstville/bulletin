@@ -9,10 +9,10 @@ title: Welcome
 [comment]: ##### "where the sentence came from, e.g. Psalm 1:1"  
 [comment]: ----------------------------------------------------  
 
-## Stewardship: Stewardship and knowing God 
+## Job: Knowing GOd Beyond Blessings
 
-#### "The stone which the builders rejected has become the head of the corner. This is the Lord’s doing; it is marvellous in our eyes.” 
-#####  Psalm 118: 24-25
+#### "[O sing to the Lord a new song, for he has done marvellous things.] The Lord has made known his victory, and he has revealed his vindication in sight of the nations.” 
+#####  Psalm 98: 1- 2
 
 
 ---
