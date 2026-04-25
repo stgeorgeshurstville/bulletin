@@ -4,20 +4,17 @@ order: 4
 ---
 
 ## Collect
-Almighty God, you have given your only Son to be for us both a sacrifice for sin and also an example of godly life; give us grace that we may always thankfully receive the immeasurable benefit of his sacrifice, and also daily endeavour to follow in the blessed steps of his most holy life; who now lives and reigns with you and the Holy Spirit, one God, for evermore.
-<br><br> Amen.
+Almighty God, you show to those who are in error the light of your truth so that they may return into the way of righteousness: grant to all who are admitted into the fellowship of Christ’s service that they may renounce those things that are contrary to their profession and follow all such things as are agreeable to it; through our Lord Jesus Christ. Amen.
 
 ## Week G
 
 | **Section** | **Content** |
 |--------------|-------------|
-| **From the Passage** | <br><br>*Please reflect on your own prayer*.|
-| **Mission & Vision** | **For Growing Out** <br><br>*Please reflect on your own prayer*|
-| **Global & Nation** | **Local (Anglican aid & Anglicare)** <br><br> *Please reflect on your own prayer*|
-| **Mission Partners** | **High school scripture & chaplaincy** <br> General info: Semi works as a high school scripture teacher in the George’s River area. He attends three schools as part of his work as he teaches lessons and runs lunchtime groups.  The prayer points come from his August Newsletter.<br><br> **Projects (Anglican aid & Anglicare)** <br> Heavenly Father, we lift up the people of Lebanon who have been displaced by conflict. Bring them protection, provision, and peace in their uncertainty. Bless the work of ARDFA, that aid may reach those in need. May Your comfort and hope be known among them. In Jesus’ name, Amen.|
-| **Church Ministries** | **Discipleship groups** <br><br> Heavenly Father, we thank You for our disciple groups and leaders. As they take a break this school holiday, grant them true rest and refreshment. Renew their strength, deepen their love for You, and prepare them to serve with joy again. In Jesus’ name, Amen.|
-| **Groups in Church** | **Volunteers** | Lord, we lift every church volunteer at St. George’s Hurstville Anglican into Your hands. You know their hard work, their time, and their dedication. Bless them for every effort they make in Your family. Strengthen them where they feel weak and encourage them when they feel discouraged. Let their service be an offering to You. May they always find joy in serving in Your kingdom and never lose heart. <br> “God is not unrighteous to forget your work and labour of love…” — Hebrews 6:10|
-
+| **From the Passage** | The God of All Wisdom,<br><br> We are often quick to speak and slow to listen. We have treated Your glory as a simple equation and Your providence as a system to be mastered. Forgive us for the pride of our certainty and the shallowness of our hearts. When life is chaotic, we have often confused our lack of control with Your lack of care.<br><br> Lord of the Whirlwind, We bring before You those in our midst who sit today in the ashes. We pray for those facing "wicked" problems that have no easy answers—illness that does not heal, grief that does not lift, and transitions that feel like exile. We lift up a world in groanings: for the victims of malice, the displaced, and those who live in the shadow of destruction.<br><br> We look to Your Son, O Christ of Gethsemane, the only truly Blameless and Upright Man. We thank You that He did not remain distant, but entered our suffering. He learned obedience through what He suffered—not for His own sake, but for ours. He was the one who was truly forsaken so that we, in our darkness, might never be alone.<br><br> By Holy Spirit, our Comforter, help us to lament well. Protect us from the sin of bitter thoughts and the folly of reckless speech. Teach us to be patient in the "not knowing," and keep us from speaking wrongly of You when we are in pain. Grant us the humility to recognise what is above our pay grade, and the faith to trust Your hand when we cannot trace Your plan.<br><br> We look forward to that Great Day when the Accuser is silenced forever, and You will wipe every tear from our eyes. Until then, keep us steadfast. Help us to know You—not just in the blessing, but in the storm.<br><br> In the name of Jesus Christ, our Great High Priest, Amen.|
+| **Mission & Vision** | *Please reflect on your own prayer*|
+| **Global & Nation** | *Please reflect on your own prayer*|
+| **Mission Partners** | **Persecuted Christians** <br> *Please reflect on your own prayer*.<br><br> **Phil and Lil in West Asia** <br> *Please reflect on your ow prayer*|
+| **Groups in Church** | **Singles, widows and orphans** <br> *Please reflect on your own prayer* | 
 | **Special Items and Events** | **4pm English Congregation (Discover Course):** On the 26th of April, our 4pm congregation is running a course introductory Christianity course. Pray that many members will ask their friends to attend. Please pray that many will come for all five weeks and, through the course, find life in Jesus’ name.|
 
 
