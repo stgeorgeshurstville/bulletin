@@ -9,7 +9,7 @@ title: Welcome
 [comment]: ##### "where the sentence came from, e.g. Psalm 1:1"  
 [comment]: ----------------------------------------------------  
 
-## Job: Knowing GOd Beyond Blessings
+## Job: Knowing God Beyond Blessings
 
 #### "[O sing to the Lord a new song, for he has done marvellous things.] The Lord has made known his victory, and he has revealed his vindication in sight of the nations.” 
 #####  Psalm 98: 1- 2
