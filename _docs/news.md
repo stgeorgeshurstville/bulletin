@@ -13,9 +13,9 @@ order: 5
 
 ### Looking Ahead: The Discover Course
 If we want to be a church that makes Jesus known, we must be a people who are willing to invite. One of our key moments in Term 2 to live this out is the Discover Course.<br> The Discover Course is a 5-week video-based journey where we explore the truth about Jesus. It is specifically designed as a safe, low-pressure space for skeptics and seekers to ask the big questions: *Who is Jesus? and What did He come to do?*<br>
-<br>- **Starts:** Sunday, 26th of April
-<br>- **Time:** 5:30 PM (following the 4:00 PM service)
-<br>- **Location:** St George’s <br>
+- **Starts:** Sunday, 26th of April
+- **Time:** 5:30 PM (following the 4:00 PM service)
+- **Location:** St George’s <br>
 
 ### New to the Family? Join "The Bridge"
 If you’ve recently moved into the area or have started making this your home church after moving from another congregation, we’d love to officially welcome you.
