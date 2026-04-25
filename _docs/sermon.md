@@ -23,7 +23,7 @@ Dear God, thank you for letting us know you. Please help us learn from your word
 
 
 ### Job 1-2 (NIV)
-**Prologue**
+**Prologue** <br>
 In the land of Uz there lived a man whose name was Job. This man was blameless and upright; he feared God and shunned evil. ² He had seven sons and three daughters, ³ and he owned seven thousand sheep, three thousand camels, five hundred yoke of oxen and five hundred donkeys, and had a large number of servants. He was the greatest man among all the people of the East.
 
 ⁴ His sons used to hold feasts in their homes on their birthdays, and they would invite their three sisters to eat and drink with them. ⁵ When a period of feasting had run its course, Job would make arrangements for them to be purified. Early in the morning he would sacrifice a burnt offering for each of them, thinking, “Perhaps my children have sinned and cursed God in their hearts.” This was Job’s regular custom.
