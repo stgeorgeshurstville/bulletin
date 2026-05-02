@@ -9,10 +9,10 @@ title: Welcome
 [comment]: ##### "where the sentence came from, e.g. Psalm 1:1"  
 [comment]: ----------------------------------------------------  
 
-## Job: Knowing God Beyond Blessings
+## Job: Knowing God in the Language of Lament
 
-#### "[O sing to the Lord a new song, for he has done marvellous things.] The Lord has made known his victory, and he has revealed his vindication in sight of the nations.” 
-#####  Psalm 98: 1- 2
+#### "The Lord is my shepherd, I shall not want; the earth is full of the steadfast love of the Lord. By the word of the Lord the heavens were made, and all their host by the breath of his mouth.” 
+#####  Psalm 23: 1 and 33: 5-6
 
 
 ---
