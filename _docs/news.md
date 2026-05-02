@@ -29,16 +29,6 @@ We know that transitioning to a new church can feel a bit like being the "new ki
 
 Before you jump into a permanent small group, come spend a few Friday nights with us. It’s the easiest way to move from "visiting" to "belonging."
 
-### Fridge Policy: Keeping Our Community Clean
-To ensure our shared kitchen remains a welcoming and hygienic space for everyone, please follow these three simple rules if you are using one of our church fridges. 
-
-**1. LABEL IT**<br>
-Name, Ministry, and Date on everything. If it’s in the fridge, it needs a tag. Please clearly mark who it belongs to, which team you are with, and when it was put inside.<br><br>
-**2. SHARE IT**<br>
-Short-term use only. Take leftovers home today. This is a high-traffic space! Please use the fridge for daily needs only. Ensure all leftovers are taken home at the end of your shift or event.<br><br>
-**3. RESET IT**<br>
-Unlabeled or expired items will be discarded without notice. To keep things fresh and organized, any items found without a label or past their prime will be cleared out immediately.<br><br>
-
 
 ## Growing in Our Welcoming:
   
