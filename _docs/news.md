@@ -21,7 +21,7 @@ We are grateful to Ferd for stepping in to ensure things continue to run smoothl
 There is now a dedicated number and email that you can contact for admin and operational help: 0404 604 725 and church_admin@stgeorgrshurstville.org.au
 
 ### More to Discover: The Baptism Course
-# Curious about faith? Ready for the next step?
+#### Curious about faith? Ready for the next step?
 We are excited to announce our upcoming 4-week course, "More to Discover," starting this June. This series is designed with a dual purpose in mind:
 1. For the Curious
 If you are starting to ask questions about the Christian faith or want to deepen your understanding of what it means to follow Jesus, you are so welcome here. There is no pressure—just an open space to explore the heart of the Gospel and see what the Christian life is all about.
