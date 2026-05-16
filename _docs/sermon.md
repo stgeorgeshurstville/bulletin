@@ -53,7 +53,7 @@ you will stand firm and without fear.
 
 - Where there’s smoke 
 - I know! 
--Job’s choices 
+- Job’s choices 
 - Job’s faith 
 
 
