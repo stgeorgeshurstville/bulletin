@@ -155,58 +155,36 @@ Reuben Timothy Morgan / Benjamin David Fielding; © 2003 Hillsong Music Publishi
 CCLI 62951 (main copyright licence)<br>
 CCLI 174113 (streaming licence)<br>
 
+### 4. What a Friend We Have in Jesus <br>
+What a friend we have in Jesus<br>
+All our sins and griefs to bear!<br>
+What a privilege to carry<br>
+Everything to God in prayer!<br>
 
-### 4. Never Once <br>
-Standing on this mountaintop <br>
-Looking just how far we've come <br>
-Knowing that for every step <br>
-You were with us <br>
- 
-Kneeling on this battle ground <br>
-Seeing just how much You've done <br>
-Knowing every victory <br>
-Was Your power in us <br>
- 
-Scars and struggles on the way <br>
-But with joy our hearts can say <br>
-Yes, our hearts can say <br>
- 
-Never once did we ever walk alone <br>
-Never once did You leave us on our own <br>
-You are faithful, God, You are faithful <br>
- 
-Kneeling on this battle ground <br>
-Seeing just how much You've done <br>
-Knowing every victory <br>
-Was Your power in us <br>
-cars and struggles on the way <br>
-But with joy our hearts can say <br>
-Yes, our hearts can say <br>
- 
-Never once did we ever walk alone <br>
-Never once did You leave us on our own <br>
-You are faithful, God, You are faithful <br>
-You are faithful, God, You are faithful <br>
- 
-Scars and struggles on the way <br>
-But with joy our hearts can say <br>
-Never once did we ever walk alone <br>
-Carried by Your constant grace <br>
-Held within Your perfect peace <br>
-Never once, no, we never walk alone <br>
- 
-Never once did we ever walk alone <br>
-Never once did You leave us on our own <br>
-You are faithful, God, You are faithful <br>
-Every step we are breathing in Your grace <br>
-Evermore we'll be breathing out Your praise <br>
+O what peace we often forfeit<br>
+O what needless pain we bear<br>
+All because we do not carry<br>
+Everything to God in prayer!<br>
 
-You are faithful, God, You are faithful <br>
-You are faithful, God, You are faithful <br>
-You are faithful, God, You are faithful <br>
-You are faithful, God, You are faithful <br>
+Have we trials and temptations?<br>
+Is there trouble anywhere?<br>
+We should never be discouraged<br>
+Take it to the Lord in prayer!<br>
 
-© 2011, Matt Redman, Thankyou Music Ltd. <br> 
-CCLI 62951 (main copyright licence) <br>
-CCLI 174113 (streaming licence) <br>
+Can we find a friend so faithful<br>
+Who will all our sorrows share?<br>
+Jesus knows our every weakness<br>
+Take it to the Lord in prayer!<br>
 
+Are we weak and heavy laden<br>
+Cumbered with a load of care?<br>
+Precious Savior, still our refuge<br>
+Take it to the Lord in prayer!<br>
+Do your friends despise, forsake you?<br>
+Take it to the Lord in prayer!<br>
+In His arms He'll take and shield you<br>
+You will find a solace there.<br>
+
+Joseph Medlicott Scriven; 1855<br>
+CCLI 62951 (main copyright licence)<br>
+CCLI 174113 (streaming licence)<br>
