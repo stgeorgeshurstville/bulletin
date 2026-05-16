@@ -9,10 +9,10 @@ title: Welcome
 [comment]: ##### "where the sentence came from, e.g. Psalm 1:1"  
 [comment]: ----------------------------------------------------  
 
-## Job: Knowing God in the Language of Lament
+## Job: The Cruelty of Religious Certainty 
 
-#### "The Lord is my shepherd, I shall not want; the earth is full of the steadfast love of the Lord. By the word of the Lord the heavens were made, and all their host by the breath of his mouth.” 
-#####  Psalm 23: 1 and 33: 5-6
+#### Lord, you have said, ‘Seek my face.’ My heart says to you, ‘Your face, Lord, do I seek.’ Do not hide your face from me.
+#####  Psalm 27: 8-9
 
 
 ---
