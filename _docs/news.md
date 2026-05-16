@@ -11,6 +11,15 @@ order: 5
 
 ## General
 
+### Sunny's Temporary Replacement 
+While Sunny is away on leave, Ferd Chan (english 930 and 4pm) has kindly agreed to assist the Wardens and the Rector by providing temporary administrative and operational support.
+
+Ferd will be in the office three days a week (Tuesday, Saturday afternoon, Sunday and one other day during the week) for the next two months, moving to full-time in July to help manage our upcoming projects and facility requirements.
+
+We are grateful to Ferd for stepping in to ensure things continue to run smoothly during this period. Please reach out to him for any operational matters.
+
+There is now a dedicated number and email that you can contact for admin and operational help: 0404 604 725 and church_admin@stgeorgrshurstville.org.au
+
 ### Looking Ahead: The Discover Course
 If we want to be a church that makes Jesus known, we must be a people who are willing to invite. One of our key moments in Term 2 to live this out is the Discover Course.<br> The Discover Course is a 5-week video-based journey where we explore the truth about Jesus. It is specifically designed as a safe, low-pressure space for skeptics and seekers to ask the big questions: *Who is Jesus? and What did He come to do?*<br>
 - **Starts:** Sunday, 26th of April
