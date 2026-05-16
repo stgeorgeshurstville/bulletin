@@ -7,7 +7,7 @@ order: 5
 
 | Date | Event | Time |
 | ---- | ---- | ---- | 
-| Sunday 26th of April | The Discover Course| 5:30pm | 
+| Every Sunday from 7th June | The Baptism Course| 2:30 PM – 3:30 PM | 
 
 ## General
 
@@ -20,10 +20,17 @@ We are grateful to Ferd for stepping in to ensure things continue to run smoothl
 
 There is now a dedicated number and email that you can contact for admin and operational help: 0404 604 725 and church_admin@stgeorgrshurstville.org.au
 
-### Looking Ahead: The Discover Course
-If we want to be a church that makes Jesus known, we must be a people who are willing to invite. One of our key moments in Term 2 to live this out is the Discover Course.<br> The Discover Course is a 5-week video-based journey where we explore the truth about Jesus. It is specifically designed as a safe, low-pressure space for skeptics and seekers to ask the big questions: *Who is Jesus? and What did He come to do?*<br>
-- **Starts:** Sunday, 26th of April
-- **Time:** 5:30 PM (following the 4:00 PM service)
+### More to Discover: The Baptism Course
+# Curious about faith? Ready for the next step?
+We are excited to announce our upcoming 4-week course, "More to Discover," starting this June. This series is designed with a dual purpose in mind:
+1. For the Curious
+If you are starting to ask questions about the Christian faith or want to deepen your understanding of what it means to follow Jesus, you are so welcome here. There is no pressure—just an open space to explore the heart of the Gospel and see what the Christian life is all about.
+2. An Opportunity for Baptism
+This course offers you the opportunity to be baptized at our upcoming service on Sunday, 19th July. Perhaps you have been a Christian for some time but have never taken that step to publicly declare your faith. We invite you to join us for these four weeks as we prepare our hearts and minds together for this special milestone.
+Fill in the form if seeking to be baptised: https://forms.gle/1TQPay1EN9bhPjAn9
+Because the sessions build on one another, we ask that those wishing to be baptized join us for the full four-week journey.
+- **Starts:** Every Sunday from 7th June (4 weeks total)
+- **Time:** 2:30 PM – 3:30 PM
 - **Location:** St George’s <br>
 
 ### New to the Family? Join "The Bridge"
