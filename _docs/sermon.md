@@ -18,33 +18,22 @@ order: 2
 [comment]: ------------------------------------------------------------------------------------
 ## Bible Reading
 ### Prayer
-Dear God, thank you for letting us know you. Please help us learn from your word. Help us to serve and praise you. **Amen!**
+Dear God, thank you for letting us know you. Please help us learn from your Word. Help us to serve and praise you. **Amen!**
 
 
 
-### Job 3 (NIV)
-After this, Job opened his mouth and cursed the day of his birth. ² He said:
-
-³ “May the day of my birth perish,
-and the night that said, ‘A boy is conceived!’
-⁴ That day—may it turn to darkness;
-may God above not care about it;
-may no light shine on it.
-⁵ May gloom and utter darkness claim it once more;
-may a cloud settle over it;
-may blackness overwhelm it.
-⁶ That night—may thick darkness seize it;
-may it not be included among the days of the year
-nor be entered in any of the months.
-⁷ May that night be barren;
-may no shout of joy be heard in it.
-⁸ May those who curse days curse that day,
-those who are ready to rouse Leviathan.
-⁹ May its morning stars become dark;
-may it wait for daylight in vain
-and not see the first rays of dawn,
-¹⁰ for it did not shut the doors of the womb on me
-to hide trouble from my eyes.
+### Job 8:3-7 (NIV)
+³ Does God pervert justice?
+Does the Almighty pervert what is right?
+⁴ When your children sinned against him,
+he gave them over to the penalty of their sin.
+⁵ But if you will seek God earnestly
+and plead with the Almighty,
+⁶ if you are pure and upright,
+even now he will rouse himself on your behalf
+and restore you to your prosperous state.
+⁷ Your beginnings will seem humble,
+so prosperous will your future be.
 
 ¹¹ “Why did I not perish at birth,
 and die as I came from the womb?
@@ -83,6 +72,10 @@ I have no rest, but only turmoil.”
 
 ## Sermon Outline <br>
 
+- Where there’s smoke 
+- I know! 
+-Job’s choices 
+- Job’s faith 
 
 
 
