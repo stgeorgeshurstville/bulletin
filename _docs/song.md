@@ -5,17 +5,17 @@ order: 1
 
 ## 9:30am
 1. Blessed Be Your Name
-2. So Will I (100 billion times)
-3. As The Deer + I surrender All
-4. Never Once
+2. Abide With Me
+3. Still
+4. What a Friend We Have in Jesus
 
 **Scroll below for 9:30am song lyrics**
 
 ## 4:00pm
-1. Here we Stand
-2. Lord, Have Mercy
-3. Take Heart
-4. Christ Our Wisdom
+1. Ancient of days
+2. Hear our prayer
+3. Lord from Sorrows Deep I Call
+4. Take Heart
 
 ## 9:30am Song Lyrics <br>
 
