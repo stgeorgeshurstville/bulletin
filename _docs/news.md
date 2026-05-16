@@ -23,11 +23,9 @@ There is now a dedicated number and email that you can contact for admin and ope
 ### More to Discover: The Baptism Course
 #### Curious about faith? Ready for the next step?
 We are excited to announce our upcoming 4-week course, "More to Discover," starting this June. This series is designed with a dual purpose in mind:
-1. For the Curious
-If you are starting to ask questions about the Christian faith or want to deepen your understanding of what it means to follow Jesus, you are so welcome here. There is no pressure—just an open space to explore the heart of the Gospel and see what the Christian life is all about.
-2. An Opportunity for Baptism
-This course offers you the opportunity to be baptized at our upcoming service on Sunday, 19th July. Perhaps you have been a Christian for some time but have never taken that step to publicly declare your faith. We invite you to join us for these four weeks as we prepare our hearts and minds together for this special milestone.
-Fill in the form if seeking to be baptised: https://forms.gle/1TQPay1EN9bhPjAn9
+1. For the Curious <br> If you are starting to ask questions about the Christian faith or want to deepen your understanding of what it means to follow Jesus, you are so welcome here. There is no pressure—just an open space to explore the heart of the Gospel and see what the Christian life is all about.
+2. An Opportunity for Baptism <br> This course offers you the opportunity to be baptized at our upcoming service on Sunday, 19th July. Perhaps you have been a Christian for some time but have never taken that step to publicly declare your faith. We invite you to join us for these four weeks as we prepare our hearts and minds together for this special milestone.
+<br> Fill in the form if seeking to be baptised: https://forms.gle/1TQPay1EN9bhPjAn9
 Because the sessions build on one another, we ask that those wishing to be baptized join us for the full four-week journey.
 - **Starts:** Every Sunday from 7th June (4 weeks total)
 - **Time:** 2:30 PM – 3:30 PM
