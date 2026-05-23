@@ -4,9 +4,9 @@ order: 4
 ---
 
 ## Collect
-O God, the king of glory, you have exalted your only Son Jesus Christ with great triumph to your kingdom in heaven: leave us not desolate, but send your Holy Spirit to strengthen us, exalted us to where our Saviour Christ has gone before, who loves and reigns with you and the Holy Spirit, one God, for evermore. Amen.
+Almighty God, who taught the hearts of your faithful people by sending them the light of your Holy Spirit: grant to us the same Spirit to have a right judgement in all things and always to rejoice in his holy comfort; through the merits of Christ Jesus our Saviour, who lives and reigns with you and the Holy Spirit, one God, now and for ever. Amen
 
-## Week E
+## Week F
 
 | **Section** | **Content** |
 |--------------|-------------|
