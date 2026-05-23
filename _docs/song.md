@@ -12,10 +12,10 @@ order: 1
 **Scroll below for 9:30am song lyrics**
 
 ## 4:00pm
-1. Ancient of days
-2. Hear our prayer
-3. Lord from Sorrows Deep I Call
-4. Take Heart
+1. Your Word
+2. Christ Our Wisdom
+3. Yet not I but through Christ in me
+4. It Was Finished Upon That Cross
 
 ## 9:30am Song Lyrics <br>
 
