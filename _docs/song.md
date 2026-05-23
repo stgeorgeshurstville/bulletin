@@ -19,106 +19,71 @@ order: 1
 
 ## 9:30am Song Lyrics <br>
 
-### 1. Blessed Be Your Name <br>
-Blessed Be Your Name<br>
-In the land that is plentiful<br>
-Where Your streams of abundance flow<br>
-Blessed be Your name<br>
- 
-Blessed Be Your name<br>
-When I'm found in the desert place<br>
-Though I walk through the wilderness<br>
-Blessed Be Your name<br>
- 
-Every blessing You pour out<br>
-I'll turn back to praise<br>
-When the darkness closes in, Lord<br>
-Still I will say<br>
- 
-Blessed be the name of the Lord<br>
-Blessed be Your name<br>
-Blessed be the name of the Lord<br>
-Blessed be Your glorious name<br>
- 
-Blessed be Your name<br>
-When the sun's shining down on me<br>
-When the world's 'all as it should be'<br>
-Blessed be Your name<br>
- 
-Blessed be Your name<br>
-On the road marked with suffering<br>
-Though there's pain in the offering<br>
-Blessed be Your name<br>
- 
-Every blessing You pour out<br>
-I'll turn back to praise<br>
-When the darkness closes in, Lord<br>
-Still I will say<br>
- 
-Blessed be the name of the Lord<br>
-Blessed be Your name<br>
-Blessed be the name of the Lord<br>
-Blessed be Your glorious name<br>
- 
-Blessed be the name of the Lord<br>
-Blessed be Your name<br>
-Blessed be the name of the Lord<br>
-Blessed be Your glorious name<br>
- 
-You give and take away<br>
-You give and take away<br>
-My heart will choose to say<br>
-Lord, blessed be Your name<br>
+### 1. It Is Well with My Soul<br>
+When peace like a river attendeth my way<br>
+When sorrow like sea billows roll<br>
+Whatever my lot You have taught me to say<br>
+It is well it is well with my soul<br>
 
-You give and take away<br>
-You give and take away<br>
-My heart will choose to say<br>
-Lord, blessed be Your name<br>
+But Lord it's for Thee for Thy coming we wait<br>
+The sky not the grave is our goal<br>
+Oh trump of the angel oh voice of the Lord<br>
+Blessed hope blessed rest of my soul<br>
 
-Blessed be the name of the Lord<br>
-Blessed be Your name<br>
-Blessed be the name of the Lord <br>
-Blessed be Your glorious name<br>
+It is well with my soul<br>
+It is well it is well with my soul<br>
 
-Blessed be the name of the Lord<br>
-Blessed be Your name<br>
-Blessed be the name of the Lord<br>
-Blessed be Your glorious name<br>
+You are the Rock on which I stand<br>
+By Your grace it is well<br>
+My hope is sure in Christ my Saviour<br>
+It is well with my soul<br>
 
-CCLI 3798438 @ 2002 Matt Redman, Thank You Music Pty Ltd<br>
+It is well with my soul<br>
+It is well it is well with my soul<br>
+
+You are the Rock on which I stand<br>
+By Your grace it is well<br>
+My hope is sure in Christ my Saviour<br>
+It is well with my soul<br>
+
+You are the Rock on which I stand<br>
+By Your grace it is well<br>
+My hope is sure in Christ my Saviour<br>
+It is well with my soul<br>
+
 CCLI 62951 (main copyright licence)<br>
 CCLI 174113 (streaming licence)<br>
 
-### 2. Abide With Me <br>
-Abide with me fast falls the eventide <br>
-The darkness deepens; Lord, with me abide<br>
-When other helpers fail and comforts flee<br>
-Help of the helpless, O abide with me<br>
+### 2. Come, Thou Fount of Every Blessing<br>
+Come Thou fount of ev'ry blessing<br>
+Tune my heart to sing Thy grace<br>
+Streams of mercy never ceasing<br>
+Call for songs of loudest praise<br>
+Teach me some melodious sonnet<br>
+Sung by flaming tongues above<br>
+Praise the mount I'm fixed upon it<br>
+Mount of Thy redeeming love<br>
 
-Swift to its close ebbs out life's little day<br>
-Earth's joys grow dim, its glories pass away<br>
-Change and decay in all around I see<br>
-O Thou who changest not, abide with me<br>
+Here I raise mine Ebenezer<br>
+Hither by Thy help I'm come<br>
+And I hope by Thy good pleasure<br>
+Safely to arrive at home<br>
+Jesus sought me when a stranger<br>
+Wand'ring from the fold of God<br>
+He to rescue me from danger<br>
+Interposed His precious blood<br>
 
-I need Thy presence every passing hour<br>
-What but Thy grace can foil the tempter's power?<br>
-Who like Thyself my guide and strength can be?<br>
-Through cloud and sunshine, O abide with me<br>
+O to grace how great a debtor<br>
+Daily I'm constrained to be<br>
+Let Thy grace Lord like a fetter<br>
+Bind my wand'ring heart to Thee<br>
+Prone to wander Lord I feel it<br>
+Prone to leave the God I love<br>
+Here's my heart Lord take and seal it<br>
+Seal it for Thy courts above<br>
 
-I fear no foe with Thee at hand to bless<br>
-Ills have no weight, and tears no bitterness<br>
-Where is death's sting? Where, grave, Thy victory?<br>
-I triumph still, if Thou abide with me <br>
-
-Hold thou Thy cross before my closing eyes<br>
-Shine through the gloom and point me to the skies<br>
-Heaven's morning breaks and earth's vain shadows flee<br>
-In life, in death, O Lord, abide with me<br>
-
-Henry Francis Lyte (1847)<br>
 CCLI 62951 (main copyright licence)<br>
 CCLI 174113 (streaming licence)<br>
-
 
 ### 3. Still <br>
 Hide me now<br>
