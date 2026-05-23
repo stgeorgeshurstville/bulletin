@@ -85,71 +85,107 @@ Seal it for Thy courts above<br>
 CCLI 62951 (main copyright licence)<br>
 CCLI 174113 (streaming licence)<br>
 
-### 3. Still <br>
-Hide me now<br>
-Under Your wings<br>
-Cover me<br>
-Within Your mighty hand<br>
+### 3. So Will I (100 Billion X) <br>
+God of creation<br>
+There at the start before the beginning of time<br>
+With no point of ref'rence<br>
+You spoke to the dark<br>
+And fleshed out the wonder of light<br>
 
-When the oceans rise and thunders roar<br>
-I will soar with You above the storm<br>
-Father, You are King over the flood<br>
-I will be still, know You are God<br>
+And as You speak<br>
+A hundred billion galaxies are born<br>
+In the vapour of Your breath the planets form<br>
+If the stars were made to worship so will I<br>
+I can see Your heart in ev'rything You've made<br>
+Ev'ry burning star a signal fire of grace<br>
+If creation sings Your praises so will I<br>
 
-Hide me now<br>
-Under Your wings<br>
-Cover me<br>
-Within Your mighty hand<br>
+God of Your promise<br>
+You don't speak in vain no syllable empty or void<br>
+For once You have spoken<br>
+All nature and science<br>
+Follow the sound of Your voice<br>
 
-When the oceans rise and thunders roar<br>
-I will soar with You above the storm<br>
-Father, You are King over the flood<br>
-I will be still, know You are God<br>
+And as You speak<br>
+A hundred billion creatures catch Your breath<br>
+Evolving in pursuit of what You said<br>
+If it all reveals Your nature so will I<br>
+I can see Your heart in ev'rything You say<br>
+Ev'ry painted sky a canvas of Your grace<br>
+If creation still obeys You so will I<br>
+So will I<br>
+So will I<br>
 
-Find rest, my soul<br>
-In Christ alone<br>
-Know His power<br>
-In quietness and trust<br>
+If the stars were made to worship so will I<br>
+If the mountains bow in rev'rence so will I<br>
+If the oceans roar Your greatness so will I<br>
+For if ev'rything exists to lift You high so will I<br>
 
-When the oceans rise and thunders roar<br>
-I will soar with You above the storm<br>
-Father, You are king over the flood<br>
-I will be still, know You are God<br>
+If the wind goes where You send it so will I<br>
+If the rocks cry out in silence so will I<br>
+If the sum of all our praises still falls shy<br>
+Then we'll sing again a hundred billion times<br>
 
-Reuben Timothy Morgan / Benjamin David Fielding; © 2003 Hillsong Music Publishing / CCLI #3940963<br>
+God of salvation<br>
+You chased down my heart<br>
+Through all of my failure and pride<br>
+On a hill You created the light of the world<br>
+Abandoned in darkness to die<br>
+
+And as You speak<br>
+A hundred billion failures disappear<br>
+Where You lost Your life so I could find it here<br>
+If You left the grave behind You so will I<br>
+I can see Your heart in ev'rything You've done<br>
+Ev'ry part designed in a work of art called love<br>
+If You gladly chose surrender so will I<br>
+I can see Your heart eight billion diff'rent ways<br>
+Ev'ry precious one a child You died to save<br>
+If You gave Your life to love them so will I<br>
+
+Like You would again a hundred billion times<br>
+But what measure could amount to Your desire<br>
+You're the One who never leaves the one behind<br>
+
 CCLI 62951 (main copyright licence)<br>
 CCLI 174113 (streaming licence)<br>
 
-### 4. What a Friend We Have in Jesus <br>
-What a friend we have in Jesus<br>
-All our sins and griefs to bear!<br>
-What a privilege to carry<br>
-Everything to God in prayer!<br>
 
-O what peace we often forfeit<br>
-O what needless pain we bear<br>
-All because we do not carry<br>
-Everything to God in prayer!<br>
+### 4. O Breath of Life<br>
+O Breath of Life come sweeping through us<br>
+Revive Your church with life and power<br>
+O Breath of Life come cleanse renew us<br>
+And fit Your church to meet this hour<br>
 
-Have we trials and temptations?<br>
-Is there trouble anywhere?<br>
-We should never be discouraged<br>
-Take it to the Lord in prayer!<br>
+O Breath of Love come breathe within<br>
+Renewing thought and will and heart<br>
+Come love of Christ afresh to win<br>
+Revive Your church in every part<br>
 
-Can we find a friend so faithful<br>
-Who will all our sorrows share?<br>
-Jesus knows our every weakness<br>
-Take it to the Lord in prayer!<br>
+O Wind of God come bend us break us<br>
+Till humbly we confess our need<br>
+Then in Your tenderness remake us<br>
+Revive restore for this we plead<br>
 
-Are we weak and heavy laden<br>
-Cumbered with a load of care?<br>
-Precious Savior, still our refuge<br>
-Take it to the Lord in prayer!<br>
-Do your friends despise, forsake you?<br>
-Take it to the Lord in prayer!<br>
-In His arms He'll take and shield you<br>
-You will find a solace there.<br>
+O Breath of Love come breathe within<br>
+Renewing thought and will and heart<br>
+Come love of Christ afresh to win<br>
+Revive Your church in every part<br>
 
-Joseph Medlicott Scriven; 1855<br>
+Revive us Lord is zeal abating<br>
+While harvest fields are vast and ripe<br>
+Revive us Lord the world is waiting<br>
+Equip Your church to spread the light<br>
+
+O Breath of Love come breathe within<br>
+Renewing thought and will and heart<br>
+Come love of Christ afresh to win<br>
+Revive Your church in every part<br>
+
+O Breath of Love come breathe within<br>
+Renewing thought and will and heart<br>
+Come love of Christ afresh to win<br>
+Revive Your church in every part<br>
+
 CCLI 62951 (main copyright licence)<br>
 CCLI 174113 (streaming licence)<br>
