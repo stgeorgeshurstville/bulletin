@@ -26,8 +26,7 @@ Dear God, thank you for letting us know you. Please help us learn from your Word
 
 <div class="verse">
   <p><span class="verse-num">1</span> Mortals, born of woman,<br>
-  are of few days and full of trouble.</p>
-  <p><span class="verse-num">2</span> They spring up like flowers and wither away;<br>
+  are of few days and full of trouble.</p> <p><span class="verse-num">2</span> They spring up like flowers and wither away;<br>
   like fleeting shadows, they do not endure.</p>
   <p><span class="verse-num">3</span> Do you fix your eye on them?<br>
   Will you bring them before you for judgment?</p>
