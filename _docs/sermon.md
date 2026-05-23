@@ -24,7 +24,7 @@ Dear God, thank you for letting us know you. Please help us learn from your Word
 
 ### Job 14 (NIV)
 
-  <p><span class="verse-num">2</span> Mortals, born of woman,<br>
+ ¹</span> Mortals, born of woman,<br>
   are of few days and full of trouble.</p> 
   <p><span class="verse-num">2</span> They spring up like flowers and wither away;<br>
   like fleeting shadows, they do not endure.</p>
