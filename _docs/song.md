@@ -4,10 +4,10 @@ order: 1
 ---
 
 ## 9:30am
-1. Blessed Be Your Name
-2. Abide With Me
-3. Still
-4. What a Friend We Have in Jesus
+1. It Is Well with My Soul
+2. Come, Thou Fount of Every Blessing 
+3. So Will I (100 Billion X) 
+4. O Breath of Life
 
 **Scroll below for 9:30am song lyrics**
 
