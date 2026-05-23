@@ -24,7 +24,7 @@ Dear God, thank you for letting us know you. Please help us learn from your Word
 
 ### Job 14 (NIV)
 
-  <p><span class="verse-num">1</span> Mortals, born of woman,<br>
+  <p><span class="verse-num">2</span> Mortals, born of woman,<br>
   are of few days and full of trouble.</p> 
   <p><span class="verse-num">2</span> They spring up like flowers and wither away;<br>
   like fleeting shadows, they do not endure.</p>
@@ -83,7 +83,7 @@ Dear God, thank you for letting us know you. Please help us learn from your Word
   and torrents wash away the soil,<br>
   so you destroy a person’s hope.</p>
 
-  <p><span class="verse-num">20</span> You overpower them once for all, and they are gone;<br>
+  <p>20</span> You overpower them once for all, and they are gone;<br>
   you change their countenance and send them away.</p>
 
   <p><span class="verse-num">21</span> If their children are honored, they do not know it;<br>
