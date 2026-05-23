@@ -23,73 +23,81 @@ Dear God, thank you for letting us know you. Please help us learn from your Word
 
 
 ### Job 14 (NIV)
-¹ “Mortals, born of woman,
-are of few days and full of trouble.
-² They spring up like flowers and wither away;
-like fleeting shadows, they do not endure.
-³ Do you fix your eye on them?
-Will you bring them before you for judgment?
-⁴ Who can bring what is pure from the impure?
-No one!
-⁵ A person’s days are determined;
-you have decreed the number of his months
-and have set limits he cannot exceed.
-⁶ So look away from him and let him alone,
-till he has put in his time like a hired laborer.
 
-⁷ “At least there is hope for a tree:
-If it is cut down, it will sprout again,
-and its new shoots will not fail.
+<div class="verse">
+  <p><span class="verse-num">1</span> Mortals, born of woman,<br>
+  are of few days and full of trouble.</p>
 
-⁸ Its roots may grow old in the ground
-and its stump die in the soil,
+  <p><span class="verse-num">2</span> They spring up like flowers and wither away;<br>
+  like fleeting shadows, they do not endure.</p>
 
-⁹ yet at the scent of water it will bud
-and put forth shoots like a plant.
+  <p><span class="verse-num">3</span> Do you fix your eye on them?<br>
+  Will you bring them before you for judgment?</p>
 
-¹⁰ But a man dies and is laid low;
-he breathes his last and is no more.
+  <p><span class="verse-num">4</span> Who can bring what is pure from the impure?<br>
+  No one!</p>
 
-¹¹ As the water of a lake dries up
-or a riverbed becomes parched and dry,
+  <p><span class="verse-num">5</span> A person’s days are determined;<br>
+  you have decreed the number of his months<br>
+  and have set limits he cannot exceed.</p>
 
-¹² so he lies down and does not rise;
-till the heavens are no more, people will not awake
-or be roused from their sleep.
+  <p><span class="verse-num">6</span> So look away from him and let him alone,<br>
+  till he has put in his time like a hired laborer.</p>
 
-¹³ “If only you would hide me in the grave
-and conceal me till your anger has passed!
-If only you would set me a time
-and then remember me!
+  <p><span class="verse-num">7</span> “At least there is hope for a tree:<br>
+  If it is cut down, it will sprout again,<br>
+  and its new shoots will not fail.</p>
 
-¹⁴ If someone dies, will they live again?
-All the days of my hard service
-I will wait for my renewal to come.
+  <p><span class="verse-num">8</span> Its roots may grow old in the ground<br>
+  and its stump die in the soil,</p>
 
-¹⁵ You will call and I will answer you;
-you will long for the creature your hands have made.
+  <p><span class="verse-num">9</span> yet at the scent of water it will bud<br>
+  and put forth shoots like a plant.</p>
 
-¹⁶ Surely then you will count my steps
-but not keep track of my sin.
+  <p><span class="verse-num">10</span> But a man dies and is laid low;<br>
+  he breathes his last and is no more.</p>
 
-¹⁷ My offenses will be sealed up in a bag;
-you will cover over my sin.
+  <p><span class="verse-num">11</span> As the water of a lake dries up<br>
+  or a riverbed becomes parched and dry,</p>
 
-¹⁸ “But as a mountain erodes and crumbles
-and as a rock is moved from its place,
+  <p><span class="verse-num">12</span> so he lies down and does not rise;<br>
+  till the heavens are no more, people will not awake<br>
+  or be roused from their sleep.</p>
 
-¹⁹ as water wears away stones
-and torrents wash away the soil,
-so you destroy a person’s hope.
+  <p><span class="verse-num">13</span> “If only you would hide me in the grave<br>
+  and conceal me till your anger has passed!<br>
+  If only you would set me a time<br>
+  and then remember me!</p>
 
-²⁰ You overpower them once for all, and they are gone;
-you change their countenance and send them away.
+  <p><span class="verse-num">14</span> If someone dies, will they live again?<br>
+  All the days of my hard service<br>
+  I will wait for my renewal to come.</p>
 
-²¹ If their children are honored, they do not know it;
-if their offspring are brought low, they do not see it.
+  <p><span class="verse-num">15</span> You will call and I will answer you;<br>
+  you will long for the creature your hands have made.</p>
 
-²² They feel but the pain of their own bodies
-and mourn only for themselves.”
+  <p><span class="verse-num">16</span> Surely then you will count my steps<br>
+  but not keep track of my sin.</p>
+
+  <p><span class="verse-num">17</span> My offenses will be sealed up in a bag;<br>
+  you will cover over my sin.</p>
+
+  <p><span class="verse-num">18</span> “But as a mountain erodes and crumbles<br>
+  and as a rock is moved from its place,</p>
+
+  <p><span class="verse-num">19</span> as water wears away stones<br>
+  and torrents wash away the soil,<br>
+  so you destroy a person’s hope.</p>
+
+  <p><span class="verse-num">20</span> You overpower them once for all, and they are gone;<br>
+  you change their countenance and send them away.</p>
+
+  <p><span class="verse-num">21</span> If their children are honored, they do not know it;<br>
+  if their offspring are brought low, they do not see it.</p>
+
+  <p><span class="verse-num">22</span> They feel but the pain of their own bodies<br>
+  and mourn only for themselves.”</p>
+</div>
 
 ## Sermon Outline <br>
 
