@@ -9,7 +9,7 @@ title: Welcome
 [comment]: ##### "where the sentence came from, e.g. Psalm 1:1"  
 [comment]: ----------------------------------------------------  
 
-## Job: The Cruelty of Religious Certainty 
+## Job: Is God My Enemy?
 
 #### Lord, you have said, ‘Seek my face.’ My heart says to you, ‘Your face, Lord, do I seek.’ Do not hide your face from me.
 #####  Psalm 27: 8-9
