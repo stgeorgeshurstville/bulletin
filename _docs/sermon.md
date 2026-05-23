@@ -25,19 +25,15 @@ Dear God, thank you for letting us know you. Please help us learn from your Word
 ### Job 14 (NIV)
 ¹ “Mortals, born of woman,
 are of few days and full of trouble.
-
 ² They spring up like flowers and wither away;
 like fleeting shadows, they do not endure.
 ³ Do you fix your eye on them?
 Will you bring them before you for judgment?
-
 ⁴ Who can bring what is pure from the impure?
 No one!
-
 ⁵ A person’s days are determined;
 you have decreed the number of his months
 and have set limits he cannot exceed.
-
 ⁶ So look away from him and let him alone,
 till he has put in his time like a hired laborer.
 
