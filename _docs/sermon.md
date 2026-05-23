@@ -26,13 +26,13 @@ Dear God, thank you for letting us know you. Please help us learn from your Word
 
  ¹</span> Mortals, born of woman,<br>
   are of few days and full of trouble.</p> 
-  <p><span class="verse-num">2</span> They spring up like flowers and wither away;<br>
+²</span> They spring up like flowers and wither away;<br>
   like fleeting shadows, they do not endure.</p>
-  <p><span class="verse-num">3</span> Do you fix your eye on them?<br>
+³</span> Do you fix your eye on them?<br>
   Will you bring them before you for judgment?</p>
-  <p><span class="verse-num">4</span> Who can bring what is pure from the impure?<br>
+⁴</span> Who can bring what is pure from the impure?<br>
   No one!</p>
-  <p><span class="verse-num">5</span> A person’s days are determined;<br>
+⁵</span> A person’s days are determined;<br>
   you have decreed the number of his months<br>
   and have set limits he cannot exceed.</p>
   <p><span class="verse-num">6</span> So look away from him and let him alone,<br>
