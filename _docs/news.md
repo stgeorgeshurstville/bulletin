@@ -8,17 +8,23 @@ order: 5
 | Date | Event | Time |
 | ---- | ---- | ---- | 
 | Every Sunday from 7th June | The Baptism Course| 2:30 PM – 3:30 PM | 
+| 20/06/2026 | EQUIP Women’s Conference: Watch Party at Church | 9:30 AM - 3:30 PM |
+| Every Friday | The Bridge | 6:00PM - 7:30PM |
 
 ## General
 
-### Sunny's Temporary Replacement 
-While Sunny is away on leave, Ferd Chan (english 930 and 4pm) has kindly agreed to assist the Wardens and the Rector by providing temporary administrative and operational support.
-
-Ferd will be in the office three days a week (Tuesday, Saturday afternoon, Sunday and one other day during the week) for the next two months, moving to full-time in July to help manage our upcoming projects and facility requirements.
-
-We are grateful to Ferd for stepping in to ensure things continue to run smoothly during this period. Please reach out to him for any operational matters.
-
-There is now a dedicated number and email that you can contact for admin and operational help: 0404 604 725 and church_admin@stgeorgrshurstville.org.au
+### EQUIP Women’s Conference: Watch Party at Church!
+Ladies, join us on Saturday, June 20, from 9:30 am to 3:30 pm as we host a watch party right here at church for the annual EQUIP Women's Conference. It’s going to be a fantastic day of fellowship, encouragement, and diving into God’s Word together.
+Cost & Tickets:
+- $20 cash on the day (please bring exact change, if possible).
+- OR buy your own ticket online for $22 ahead of time and simply show your ticket at the door for entry. Head to www.equip.org.au to purchase yours.
+- Free for all high schoolers!
+The Day's Schedule:
+- 9:30 am: Registration & a morning cuppa to kick things off.
+- 10:00 am: Session 1
+- 12:00 pm: Lunch break – You can bring your own lunch, or enjoy a hot soup lunch provided here at church for a small donation.
+- 1:00 pm: Session 2
+Lock the date in your diaries, invite a friend, and we'll see you there!
 
 ### More to Discover: The Baptism Course
 #### Curious about faith? Ready for the next step?
