@@ -24,17 +24,17 @@ Dear God, thank you for letting us know you. Please help us learn from your Word
 
 ### Job 19:23-27 (NIV) 
 
-“Oh, that my words were recorded,
-that they were written on a scroll,
-²⁴ that they were inscribed with an iron tool on lead,
-or engraved in rock forever!
-²⁵ I know that my redeemer lives,
-and that in the end he will stand on the earth. 
-²⁶ And after my skin has been destroyed,
-yet in my flesh I will see God;
-²⁷ I myself will see him
-with my own eyes—I, and not another.
-How my heart yearns within me!
+²³“Oh, that my words were recorded,
+<br>that they were written on a scroll,
+<br>²⁴ that they were inscribed with an iron tool on lead,
+<br>or engraved in rock forever!
+<br>²⁵ I know that my redeemer lives,
+<br>and that in the end he will stand on the earth. 
+<br>²⁶ And after my skin has been destroyed,
+<br>yet in my flesh I will see God;
+<br>²⁷ I myself will see him
+<br>with my own eyes—I, and not another.
+<br>How my heart yearns within me!
 
 ## Sermon Outline <br>
 
