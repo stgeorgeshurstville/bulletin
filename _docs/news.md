@@ -19,6 +19,7 @@ Cost & Tickets:
 - $20 cash on the day (please bring exact change, if possible).
 - OR buy your own ticket online for $22 ahead of time and simply show your ticket at the door for entry. Head to www.equip.org.au to purchase yours.
 - Free for all high schoolers!
+
 The Day's Schedule:
 - 9:30 am: Registration & a morning cuppa to kick things off.
 - 10:00 am: Session 1
