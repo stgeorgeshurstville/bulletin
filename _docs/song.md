@@ -57,7 +57,7 @@ order: 1
 <br>CCLI 174113 (streaming licence)
 <br>Lyrics 1775 Rev. A. M. Toplady. Public Domain. Music © 1998 Ruth Buchanan.
 
-###2.Trust & Obey
+### 2.Trust & Obey
 <br><br>**Verse 1**
 <br>When we walk with the Lord
 <br>In the light of His Word
@@ -136,7 +136,7 @@ order: 1
 <br>CCLI 174113 (streaming licence)
 
 
-###3. O Lord My Rock & My Redeemer
+### 3. O Lord My Rock & My Redeemer
 <br><br>**Verse 1**
 <br>O Lord, my Rock and my Redeemer
 <br>Greatest treasure of my longing soul
