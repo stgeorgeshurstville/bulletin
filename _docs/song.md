@@ -4,188 +4,228 @@ order: 1
 ---
 
 ## 9:30am
-1. It Is Well with My Soul
-2. Come, Thou Fount of Every Blessing 
-3. So Will I (100 Billion X) 
-4. O Breath of Life
+1. Rock of Ages
+2. Trust & Obey
+3. O Lord My Rock & My Redeemer
+4. In Christ Alone
 
 **Scroll below for 9:30am song lyrics**
 
 ## 4:00pm
-1. Your Word
-2. Christ Our Wisdom
-3. Yet not I but through Christ in me
-4. It Was Finished Upon That Cross
+1. Christ our Wisdom
+2. Speak O Lord
+3. No other name
+4. Creation Awaits
 
-## 9:30am Song Lyrics <br>
+## 9:30am Song Lyrics <br><br>
 
-### 1. It Is Well with My Soul<br>
-When peace like a river attendeth my way<br>
-When sorrow like sea billows roll<br>
-Whatever my lot You have taught me to say<br>
-It is well it is well with my soul<br>
+### 1. Rock of Ages
+<br><br>**Verse 1**
+<br>Rock of ages, cleft for me.
+<br>Hide me now, my refuge be.
+<br>Let the water and the blood
+<br>From your wounded side which flowed,
+<br>Be for sin the double cure.
+<br>Cleanse me from its guilt and power.
 
-But Lord it's for Thee for Thy coming we wait<br>
-The sky not the grave is our goal<br>
-Oh trump of the angel oh voice of the Lord<br>
-Blessed hope blessed rest of my soul<br>
+<br><br>**Verse 2**
+<br>Not the labors of my hands
+<br>Can fulfill your law’s demands.
+<br>Could my zeal no respite know,
+<br>Could my tears forever flow,
+<br>All for sin could not atone;
+<br>You must save, and You alone.
 
-It is well with my soul<br>
-It is well it is well with my soul<br>
+<br><br>**Verse 3**
+<br>Nothing in my hand I bring,
+<br>Simply to your cross I cling;
+<br>Naked come to You for dress;
+<br>Helpless look to You for grace,
+<br>Stained by sin to You I cry.
+<br>Wash me, Savior or I die.
 
-You are the Rock on which I stand<br>
-By Your grace it is well<br>
-My hope is sure in Christ my Saviour<br>
-It is well with my soul<br>
-
-It is well with my soul<br>
-It is well it is well with my soul<br>
-
-You are the Rock on which I stand<br>
-By Your grace it is well<br>
-My hope is sure in Christ my Saviour<br>
-It is well with my soul<br>
-
-You are the Rock on which I stand<br>
-By Your grace it is well<br>
-My hope is sure in Christ my Saviour<br>
-It is well with my soul<br>
-
-CCLI 62951 (main copyright licence)<br>
-CCLI 174113 (streaming licence)<br>
-
-### 2. Come, Thou Fount of Every Blessing<br>
-Come Thou fount of ev'ry blessing<br>
-Tune my heart to sing Thy grace<br>
-Streams of mercy never ceasing<br>
-Call for songs of loudest praise<br>
-Teach me some melodious sonnet<br>
-Sung by flaming tongues above<br>
-Praise the mount I'm fixed upon it<br>
-Mount of Thy redeeming love<br>
-
-Here I raise mine Ebenezer<br>
-Hither by Thy help I'm come<br>
-And I hope by Thy good pleasure<br>
-Safely to arrive at home<br>
-Jesus sought me when a stranger<br>
-Wand'ring from the fold of God<br>
-He to rescue me from danger<br>
-Interposed His precious blood<br>
-
-O to grace how great a debtor<br>
-Daily I'm constrained to be<br>
-Let Thy grace Lord like a fetter<br>
-Bind my wand'ring heart to Thee<br>
-Prone to wander Lord I feel it<br>
-Prone to leave the God I love<br>
-Here's my heart Lord take and seal it<br>
-Seal it for Thy courts above<br>
-
-CCLI 62951 (main copyright licence)<br>
-CCLI 174113 (streaming licence)<br>
-
-### 3. So Will I (100 Billion X) <br>
-God of creation<br>
-There at the start before the beginning of time<br>
-With no point of ref'rence<br>
-You spoke to the dark<br>
-And fleshed out the wonder of light<br>
-
-And as You speak<br>
-A hundred billion galaxies are born<br>
-In the vapour of Your breath the planets form<br>
-If the stars were made to worship so will I<br>
-I can see Your heart in ev'rything You've made<br>
-Ev'ry burning star a signal fire of grace<br>
-If creation sings Your praises so will I<br>
-
-God of Your promise<br>
-You don't speak in vain no syllable empty or void<br>
-For once You have spoken<br>
-All nature and science<br>
-Follow the sound of Your voice<br>
-
-And as You speak<br>
-A hundred billion creatures catch Your breath<br>
-Evolving in pursuit of what You said<br>
-If it all reveals Your nature so will I<br>
-I can see Your heart in ev'rything You say<br>
-Ev'ry painted sky a canvas of Your grace<br>
-If creation still obeys You so will I<br>
-So will I<br>
-So will I<br>
-
-If the stars were made to worship so will I<br>
-If the mountains bow in rev'rence so will I<br>
-If the oceans roar Your greatness so will I<br>
-For if ev'rything exists to lift You high so will I<br>
-
-If the wind goes where You send it so will I<br>
-If the rocks cry out in silence so will I<br>
-If the sum of all our praises still falls shy<br>
-Then we'll sing again a hundred billion times<br>
-
-God of salvation<br>
-You chased down my heart<br>
-Through all of my failure and pride<br>
-On a hill You created the light of the world<br>
-Abandoned in darkness to die<br>
-
-And as You speak<br>
-A hundred billion failures disappear<br>
-Where You lost Your life so I could find it here<br>
-If You left the grave behind You so will I<br>
-I can see Your heart in ev'rything You've done<br>
-Ev'ry part designed in a work of art called love<br>
-If You gladly chose surrender so will I<br>
-I can see Your heart eight billion diff'rent ways<br>
-Ev'ry precious one a child You died to save<br>
-If You gave Your life to love them so will I<br>
-
-Like You would again a hundred billion times<br>
-But what measure could amount to Your desire<br>
-You're the One who never leaves the one behind<br>
-
-CCLI 62951 (main copyright licence)<br>
-CCLI 174113 (streaming licence)<br>
+<br><br>**Verse 4**
+<br>While I draw this fleeting breath;
+<br>When my eyelids close in death;
+<br>When I soar to realms unknown,
+<br>Bow before the judgment throne,
+<br>Hide me now my refuge be;
+<br>Rock of ages, cleft for me.
 
 
-### 4. O Breath of Life<br>
-O Breath of Life come sweeping through us<br>
-Revive Your church with life and power<br>
-O Breath of Life come cleanse renew us<br>
-And fit Your church to meet this hour<br>
+<br>CCLI 62951 (main copyright licence)
+<br>CCLI 174113 (streaming licence)
+<br>Lyrics 1775 Rev. A. M. Toplady. Public Domain. Music © 1998 Ruth Buchanan.
 
-O Breath of Love come breathe within<br>
-Renewing thought and will and heart<br>
-Come love of Christ afresh to win<br>
-Revive Your church in every part<br>
+<br><br>### 2. Trust & Obey
+<br><br>**Verse 1**
+<br>When we walk with the Lord
+<br>In the light of His Word
+<br>What a glory He sheds on our way
+<br>While we do His good will
+<br>He abides with us still
+<br>And with all who will trust and obey
 
-O Wind of God come bend us break us<br>
-Till humbly we confess our need<br>
-Then in Your tenderness remake us<br>
-Revive restore for this we plead<br>
+<br><br>**Chorus**
+<br>There's no other way
+<br>To be happy in Jesus
+<br>With peace in my mind, joy in my heart
+<br>I'll take up my cross
+<br>For all of my days
+<br>I'll do what You say
+<br>There's no other way
+<br>But to trust and obey
 
-O Breath of Love come breathe within<br>
-Renewing thought and will and heart<br>
-Come love of Christ afresh to win<br>
-Revive Your church in every part<br>
+<br><br>**Verse 2**
+<br>Then in fellowship sweet
+<br>We will sit at His feet
+<br>Or we'll walk by His side in the way
+<br>What He says we will do
+<br>Where He sends we will go
+<br>Never fear, only trust and obey
 
-Revive us Lord is zeal abating<br>
-While harvest fields are vast and ripe<br>
-Revive us Lord the world is waiting<br>
-Equip Your church to spread the light<br>
+<br><br>**Chorus**
+<br>There's no other way
+<br>To be happy in Jesus
+<br>With peace in my mind, and joy in my heart
+<br>I'll take up my cross
+<br>For all of my days
+<br>I'll do what You say
+<br>There's no other way
+<br>But to trust and obey
 
-O Breath of Love come breathe within<br>
-Renewing thought and will and heart<br>
-Come love of Christ afresh to win<br>
-Revive Your church in every part<br>
+<br><br>**Bridge**
+<br>I'll trust the Lord
+<br>I'll trust the Lord
+<br>You will be faithful
+<br>Like You've been before
+<br>Oh, I'll trust You, Lord
+<br>Yes, I'll trust You, Lord
+<br>Oh, for the grace
+<br>To trust You with more
 
-O Breath of Love come breathe within<br>
-Renewing thought and will and heart<br>
-Come love of Christ afresh to win<br>
-Revive Your church in every part<br>
+<br><br>I'll trust the Lord
+<br>I'll trust the Lord
+<br>You will be faithful 
+<br>Like You've been before
+<br>I'll trust the Lord
+<br>Yes, I'll trust the Lord
+<br>Oh, for the grace
+<br>To trust You with more
+
+<br><br>**Chorus**
+<br>There's no other way
+<br>To be happy in Jesus
+<br>With peace in my mind, and joy in my heart
+<br>I'll take up my cross
+<br>For all of my days
+<br>I'll do what You say
+<br>There's no other way
+<br>But to trust and obey
+<br>I'll do what You say
+<br>There's no other way
+<br>But to trust and obey
+
+<br><br>Trust and obey
+<br>For there's no other way
+<br>To be happy in Jesus
+<br>But to trust and obey
+
+<br>Author: John H. Sammis (1887); Songwriters: Cxmmxns & Cain (2025)
+<br>CCLI 62951 (main copyright licence)
+<br>CCLI 174113 (streaming licence)
+
+
+<br><br>### 3. O Lord My Rock & My Redeemer
+<br><br>**Verse 1**
+<br>O Lord, my Rock and my Redeemer
+<br>Greatest treasure of my longing soul
+<br>My God, like You there is no other
+<br>True delight is found in You alone
+<br>Your grace, a well too deep to fathom
+<br>Your love exceeds the heaven's reach
+<br>Your truth, a fount of perfect wisdom
+<br>My highest good and my unending need
+
+
+<br><br>**Verse 2**
+<br>O Lord, my Rock and my Redeemer
+<br>Strong defender of my weary heart
+<br>My sword to fight the cruel deceiver
+<br>And my shield against his hateful darts
+<br>My song, when enemies surround me
+<br>My hope, when tides of sorrow rise
+<br>My joy, when trials are abounding
+<br>Your faithfulness, my refuge in the night
+
+
+<br><br>**Verse 3**
+<br>O Lord, my Rock and my Redeemer
+<br>Gracious Savior of my ruined life
+<br>My guilt and cross laid on Your shoulders
+<br>In my place You suffered bled and died
+<br>You rose, the grave and death are conquered
+<br>You broke my bonds of sin and shame
+<br>You rose, the grave and death are conquered
+<br>You broke my bonds of sin and shame
+<br>O Lord, my Rock and my Redeemer
+<br>May all my days bring glory to Your Name
+<br>May all my days bring glory to Your Name
+
+
+
+
+<br>CCLI: #7096627; Music and words by Nathan Stiff © 2017 Sovereign Grace Worship
+<br>CCLI 62951 (main copyright licence)
+<br>CCLI 174113 (streaming licence)
+
+
+
+<br><br>### 4. In Christ ALone
+<br><br>**Verse 1**
+<br>In Christ alone, my hope is found
+<br>He is my light, my strength, my song
+<br>This Cornerstone, this solid ground
+<br>Firm through the fiercest drought and storm
+<br>What heights of love, what depths of peace
+<br>When fears are stilled, when strivings cease
+<br>My Comforter, my All in All
+<br>Here in the love of Christ I stand
+
+<br><br>**Verse 2**
+<br>In Christ alone, who took on flesh
+<br>Fullness of God in helpless babe
+<br>This gift of love and righteousness
+<br>Scorned by the ones He came to save
+<br>'Til on that cross as Jesus died
+<br>The wrath of God was satisfied
+<br>For every sin on Him was laid
+<br>Here in the death of Christ I live, I live
+
+<br><br>**Verse 3**
+<br>There in the ground His body lay
+<br>Light of the world by darkness slain
+<br>Then bursting forth in glorious Day
+<br>Up from the grave He rose again
+<br>And as He stands in victory
+<br>Sin's curse has lost its grip on me
+<br>For I am His and He is mine
+<br>Bought with the precious blood of Christ
+
+<br><br>**Verse 4**
+<br>No guilt in life, no fear in death
+<br>This is the power of Christ in me
+<br>From life's first cry to final breath
+<br>Jesus commands my destiny
+<br>No power of hell, no scheme of man
+<br>Can ever pluck me from His hand
+<br>Till He returns or calls me home
+<br>Here in the power of Christ I'll stand
+
+<br>CCLI #: 3350395; Keith Getty, Stuart Townend; ThankYou Music
+<br>CCLI 62951 (main copyright licence)
+<br>CCLI 174113 (streaming licence)
+
 
 CCLI 62951 (main copyright licence)<br>
 CCLI 174113 (streaming licence)<br>
