@@ -57,7 +57,7 @@ order: 1
 <br>CCLI 174113 (streaming licence)
 <br>Lyrics 1775 Rev. A. M. Toplady. Public Domain. Music © 1998 Ruth Buchanan.
 
-<br><br>### 2. Trust & Obey
+###2.Trust & Obey
 <br><br>**Verse 1**
 <br>When we walk with the Lord
 <br>In the light of His Word
@@ -136,7 +136,7 @@ order: 1
 <br>CCLI 174113 (streaming licence)
 
 
-<br><br>### 3. O Lord My Rock & My Redeemer
+###3. O Lord My Rock & My Redeemer
 <br><br>**Verse 1**
 <br>O Lord, my Rock and my Redeemer
 <br>Greatest treasure of my longing soul
@@ -147,7 +147,6 @@ order: 1
 <br>Your truth, a fount of perfect wisdom
 <br>My highest good and my unending need
 
-
 <br><br>**Verse 2**
 <br>O Lord, my Rock and my Redeemer
 <br>Strong defender of my weary heart
@@ -157,7 +156,6 @@ order: 1
 <br>My hope, when tides of sorrow rise
 <br>My joy, when trials are abounding
 <br>Your faithfulness, my refuge in the night
-
 
 <br><br>**Verse 3**
 <br>O Lord, my Rock and my Redeemer
@@ -181,7 +179,7 @@ order: 1
 
 
 
-<br><br>### 4. In Christ ALone
+### 4. In Christ ALone
 <br><br>**Verse 1**
 <br>In Christ alone, my hope is found
 <br>He is my light, my strength, my song
@@ -225,7 +223,3 @@ order: 1
 <br>CCLI #: 3350395; Keith Getty, Stuart Townend; ThankYou Music
 <br>CCLI 62951 (main copyright licence)
 <br>CCLI 174113 (streaming licence)
-
-
-CCLI 62951 (main copyright licence)<br>
-CCLI 174113 (streaming licence)<br>
