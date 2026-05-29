@@ -9,10 +9,10 @@ title: Welcome
 [comment]: ##### "where the sentence came from, e.g. Psalm 1:1"  
 [comment]: ----------------------------------------------------  
 
-## Job: Is God My Enemy?
+## Job
 
-#### God’s love has been poured out into our hearts through the Holy Spirit, who has been given to us.
-#####  Romans 5:5
+#### Christ Jesus came and preached peace to you who were far off, and peace to those who were near; for through him we have access in the one Spirit to the Father.
+#####  Ephesians 2:17-18
 
 
 ---
