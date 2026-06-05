@@ -15,8 +15,8 @@ order: 5
 ## General
 
 ### The White Horse Inn
-_"Faith Seeking Understanding"_
-Theology wasn't meant to be handled in isolation—nor in anger. Too often, deep questions devolve into competitive arguments, gatekeeping, or superficial debates.
+_"Faith Seeking Understanding"_<br>
+Theology wasn't meant to be handled in isolation—nor in anger. Too often, deep questions devolve into competitive arguments, gatekeeping, or superficial debates.<br>
 Launching on Sunday, 14th of June at 6:00 PM, The White Horse Inn is a new weekly, moderated forum dedicated to robust intellectual exploration wrapped in absolute mutual honor. Whether you are wrestling with tough questions or looking to dig deeper into your faith, you are welcome here. Bring your dinner, grab a seat, and let’s seek truth together.
 - When: Weekly at 6:00 PM, beginning 14th of June (unless notified).
 - Where: The Seminar Room.
