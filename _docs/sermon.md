@@ -25,12 +25,10 @@ Dear God, thank you for letting us know you. Please help us learn from your Word
 ### Job 21 (NIV) 
 
 ¹ Then Job replied:
-
 <br><br>² “Listen carefully to my words;
 <br>let this be the consolation you give me.
 <br>³ Bear with me while I speak,
 <br>and after I have spoken, mock on.
-
 <br><br>⁴ “Is my complaint directed to a human being?
 <br>Why should I not be impatient?
 <br>⁵ Look at me and be appalled;
@@ -57,8 +55,7 @@ Dear God, thank you for letting us know you. Please help us learn from your Word
 <br>What would we gain by praying to him?’
 <br>¹⁶ But their prosperity is not in their own hands,
 <br>so I stand aloof from the plans of the wicked.
-
-<br>¹⁷ “Yet how often is the lamp of the wicked snuffed out?
+<br><br>¹⁷ “Yet how often is the lamp of the wicked snuffed out?
 <br>How often does calamity come upon them,
 <br>the fate God allots in his anger?
 <br>¹⁸ How often are they like straw before the wind,
@@ -69,8 +66,7 @@ Dear God, thank you for letting us know you. Please help us learn from your Word
 <br>let them drink the cup of the wrath of the Almighty.
 <br>²¹ For what do they care about the families they leave behind
 <br>when their allotted months come to an end?
-
-<br>²² “Can anyone teach knowledge to God,
+<br><br>²² “Can anyone teach knowledge to God,
 <br>since he judges even the highest?
 <br>²³ One person dies in full vigor,
 <br>completely secure and at ease,
@@ -80,8 +76,7 @@ Dear God, thank you for letting us know you. Please help us learn from your Word
 <br>never having enjoyed anything good.
 <br>²⁶ Side by side they lie in the dust,
 <br>and worms cover them both.
-
-<br>²⁷ “I know full well what you are thinking,
+<br><br>²⁷ “I know full well what you are thinking,
 <br>the schemes by which you would wrong me.
 <br>²⁸ You say, ‘Where now is the house of the great,
 <br>the tents where the wicked lived?’
@@ -96,13 +91,12 @@ Dear God, thank you for letting us know you. Please help us learn from your Word
 <br>³³ The soil in the valley is sweet to them;
 <br>everyone follows after them,
 <br>and a countless throng goes before them.
-
-<br>³⁴ “So how can you console me with your nonsense?
+<br><br>³⁴ “So how can you console me with your nonsense?
 <br>Nothing is left of your answers but falsehood!”
 
 
 ## Sermon Outline <br>
-
+### Why Do the Wicked Prosper?
 1. The wicked are often happy (verses 7–16).
 2. The wicked are rarely punished (verses 17–26).
 3. The wicked still prosper after death (verses 27–33).
