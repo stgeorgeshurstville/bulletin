@@ -6,12 +6,23 @@ order: 5
 ## Upcoming Dates
 
 | Date | Event | Time |
-| ---- | ---- | ---- | 
+| ---- | ---- | ---- |
+| Every Sunday from 14th of June | The White Horse Inn | 6:00PM |
 | Every Sunday from 7th June | The Baptism Course| 2:30 PM – 3:30 PM | 
 | 20/06/2026 | EQUIP Women’s Conference: Watch Party at Church | 9:30 AM - 3:30 PM |
 | Every Friday | The Bridge | 6:00PM - 7:30PM |
 
 ## General
+
+### The White Horse Inn
+_"Faith Seeking Understanding"_
+Theology wasn't meant to be handled in isolation—nor in anger. Too often, deep questions devolve into competitive arguments, gatekeeping, or superficial debates.
+Launching on Sunday, 14th of June at 6:00 PM, The White Horse Inn is a new weekly, moderated forum dedicated to robust intellectual exploration wrapped in absolute mutual honor. Whether you are wrestling with tough questions or looking to dig deeper into your faith, you are welcome here. Bring your dinner, grab a seat, and let’s seek truth together.
+- When: Weekly at 6:00 PM, beginning 14th of June (unless notified).
+- Where: The Seminar Room.
+- Fellowship: BYO Dinner! We will eat and discuss together.
+- Weeks 1 & 2: We will focus on establishing our vision and our core rules of engagement (Robust Inquiry, Absolute Honor, and Steelmanning Only).
+To submit topic requests, current affairs issues, or questions about sermon passages, please contact Brian. We look forward to seeing you there!
 
 ### EQUIP Women’s Conference: Watch Party at Church!
 Ladies, join us on Saturday, June 20, from 9:30 am to 3:30 pm as we host a watch party right here at church for the annual EQUIP Women's Conference. It’s going to be a fantastic day of fellowship, encouragement, and diving into God’s Word together.
