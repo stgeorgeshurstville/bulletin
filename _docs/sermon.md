@@ -22,75 +22,90 @@ Dear God, thank you for letting us know you. Please help us learn from your Word
 
 
 
-### Job 19 (NIV) 
+### Job 21 (NIV) 
 
 ¹ Then Job replied:
-<br><br>² “How long will you torment me
-<br>and crush me with words?
-<br>³ Ten times now you have reproached me;
-<br>shamelessly you attack me.
-<br>⁴ If it is true that I have gone astray,
-<br>my error remains my concern alone.
-<br>⁵ If indeed you would exalt yourselves above me
-<br>and use my humiliation against me,
-<br>⁶ then know that God has wronged me
-<br>and drawn his net around me.
-<br><br>⁷ “Though I cry, ‘Violence!’ I get no response;
-<br>though I call for help, there is no justice.
-<br>⁸ He has blocked my way so I cannot pass;
-<br>he has shrouded my paths in darkness.
-<br>⁹ He has stripped me of my honor
-<br>and removed the crown from my head.
-<br>¹⁰ He tears me down on every side till I am gone;
-<br>he uproots my hope like a tree.
-<br>¹¹ His anger burns against me;
-<br>he counts me among his enemies.
-<br>¹² His troops advance in force;
-<br>they build a siege ramp against me
-<br>and encamp around my tent.
-<br><br>¹³ “He has alienated my family from me;
-<br>my acquaintances are completely estranged from me.
-<br>¹⁴ My relatives have gone away;
-<br>my closest friends have forgotten me.
-<br>¹⁵ My guests and my female servants count me a foreigner;
-<br>they look on me as on a stranger.
-<br>¹⁶ I summon my servant, but he does not answer,
-<br>though I beg him with my own mouth.
-<br>¹⁷ My breath is offensive to my wife;
-<br>I am loathsome to my own family.
-<br>¹⁸ Even the little boys scorn me;
-<br>when I appear, they ridicule me.
-<br>¹⁹ All my intimate friends detest me;
-<br>those I love have turned against me.
-<br>²⁰ I am nothing but skin and bones;
-<br>I have escaped only by the skin of my teeth. 
-<br><br>²¹ “Have pity on me, my friends, have pity,
-<br>for the hand of God has struck me.
-<br>²² Why do you pursue me as God does?
-<br>Will you never get enough of my flesh?
-<br><br>²³ “Oh, that my words were recorded,
-<br>that they were written on a scroll,
-<br>²⁴ that they were inscribed with an iron tool on lead,
-<br>or engraved in rock forever!
-<br>²⁵ I know that my redeemer lives,
-<br>and that in the end he will stand on the earth. 
-<br>²⁶ And after my skin has been destroyed,
-<br>yet in my flesh I will see God;
-<br>²⁷ I myself will see him
-<br>with my own eyes—I, and not another.
-<br>How my heart yearns within me!
-<br><br>²⁸ “If you say, ‘How we will hound him,
-<br>since the root of the trouble lies in him, ’
-<br>²⁹ you should fear the sword yourselves;
-<br>for wrath will bring punishment by the sword,
-<br>and then you will know that there is judgment. ”
+
+<br><br>² “Listen carefully to my words;
+<br>let this be the consolation you give me.
+<br>³ Bear with me while I speak,
+<br>and after I have spoken, mock on.
+
+<br><br>⁴ “Is my complaint directed to a human being?
+<br>Why should I not be impatient?
+<br>⁵ Look at me and be appalled;
+<br>clap your hand over your mouth.
+<br>⁶ When I think about this, I am terrified;
+<br>trembling seizes my body.
+<br>⁷ Why do the wicked live on,
+<br>growing old and increasing in power?
+<br>⁸ They see their children established around them,
+<br>their offspring before their eyes.
+<br>⁹ Their homes are safe and free from fear;
+<br>the rod of God is not on them.
+<br>¹⁰ Their bulls never fail to breed;
+<br>their cows calve and do not miscarry.
+<br>¹¹ They send forth their children as a flock;
+<br>their little ones dance about.
+<br>¹² They sing to the music of timbrel and lyre;
+<br>they make merry to the sound of the pipe.
+<br>¹³ They spend their years in prosperity
+<br>and go down to the grave in peace. 
+<br>¹⁴ Yet they say to God, ‘Leave us alone!
+<br>We have no desire to know your ways.
+<br>¹⁵ Who is the Almighty, that we should serve him?
+<br>What would we gain by praying to him?’
+<br>¹⁶ But their prosperity is not in their own hands,
+<br>so I stand aloof from the plans of the wicked.
+
+<br>¹⁷ “Yet how often is the lamp of the wicked snuffed out?
+<br>How often does calamity come upon them,
+<br>the fate God allots in his anger?
+<br>¹⁸ How often are they like straw before the wind,
+<br>like chaff swept away by a gale?
+<br>¹⁹ It is said, ‘God stores up the punishment of the wicked for their children.’
+<br>Let him repay the wicked, so that they themselves will experience it!
+<br>²⁰ Let their own eyes see their destruction;
+<br>let them drink the cup of the wrath of the Almighty.
+<br>²¹ For what do they care about the families they leave behind
+<br>when their allotted months come to an end?
+
+<br>²² “Can anyone teach knowledge to God,
+<br>since he judges even the highest?
+<br>²³ One person dies in full vigor,
+<br>completely secure and at ease,
+<br>²⁴ well nourished in body, 
+<br>bones rich with marrow.
+<br>²⁵ Another dies in bitterness of soul,
+<br>never having enjoyed anything good.
+<br>²⁶ Side by side they lie in the dust,
+<br>and worms cover them both.
+
+<br>²⁷ “I know full well what you are thinking,
+<br>the schemes by which you would wrong me.
+<br>²⁸ You say, ‘Where now is the house of the great,
+<br>the tents where the wicked lived?’
+<br>²⁹ Have you never questioned those who travel?
+<br>Have you paid no regard to their accounts—
+<br>³⁰ that the wicked are spared from the day of calamity,
+<br>that they are delivered from the day of wrath?
+<br>³¹ Who denounces their conduct to their face?
+<br>Who repays them for what they have done?
+<br>³² They are carried to the grave,
+<br>and watch is kept over their tombs.
+<br>³³ The soil in the valley is sweet to them;
+<br>everyone follows after them,
+<br>and a countless throng goes before them.
+
+<br>³⁴ “So how can you console me with your nonsense?
+<br>Nothing is left of your answers but falsehood!”
+
 
 ## Sermon Outline <br>
 
-1. Job is attacked as a Sinner (Job 19:1-12)
-2. Job’s community has abandoned him (Job 19:13–22)
-3. But Job believes that God Isn't Against him(Job 19:23–29)
-
+1. The wicked are often happy (verses 7–16).
+2. The wicked are rarely punished (verses 17–26).
+3. The wicked still prosper after death (verses 27–33).
 
 
 
