@@ -21,7 +21,7 @@ Launching on Sunday, 14th of June at 6:00 PM, The White Horse Inn is a new weekl
 - When: Weekly at 6:00 PM, beginning 14th of June (unless notified).
 - Where: The Seminar Room.
 - Fellowship: BYO Dinner! We will eat and discuss together.
-- Weeks 1 & 2: We will focus on establishing our vision and our core rules of engagement (Robust Inquiry, Absolute Honor, and Steelmanning Only).
+- Weeks 1 & 2: We will focus on establishing our vision and our core rules of engagement (Robust Inquiry, Absolute Honor, and Steelmanning Only).<br>
 To submit topic requests, current affairs issues, or questions about sermon passages, please contact Brian. We look forward to seeing you there!
 
 ### EQUIP Women’s Conference: Watch Party at Church!
