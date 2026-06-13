@@ -29,7 +29,7 @@ order: 1
 <br>I dare not trust the sweetest frame
 <br>But wholly trust in Jesus name
  
-<br><br>Christ alone, Cornerstone
+<br>Christ alone, Cornerstone
 <br>Weak made strong in the Saviour's love
 <br>Through the storm, He is Lord
 <br>Lord of all
