@@ -46,11 +46,9 @@ God understands the way to it
 <br> and to shun evil is understanding.”
 
 ## Sermon Outline <br>
-### Why Do the Wicked Prosper?
-1. The wicked are often happy (verses 7–16).
-2. The wicked are rarely punished (verses 17–26).
-3. The wicked still prosper after death (verses 27–33).
-
+1. Human’s Power (Vs. 1-11) 
+2. Value of Wisdom (Vs. 12-19) 
+3. Source of Wisdom (Vs. 20-28)
 
 
 ## Q&A
