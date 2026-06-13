@@ -4,173 +4,204 @@ order: 1
 ---
 
 ## 9:30am 
-1. O Lord My Rock & My Redeemer
-2. Rock of ages
-3. Because He Lives
-4. By Faith
+1. Cornerstone
+2. Be Thou My Vision
+3. Yet Not I But Through Christ in Me
+4. As the deer pants for the water
 
 **Scroll below for 9:30am song lyrics**
 
 ## 4:00pm
-1. By Faith
-2. Come Behold the Wondrous Mystery
-3. Rock of ages
-4. God is for us
+1. All Creatures of Our God and King
+2. Be Thou My vision
+3. Only a Holy God
+4. Christ Our Wisdom
 
 ## 9:30am Song Lyrics <br><br>
 
-### 1. O Lord My Rock & My Redeemer
-<br><br>O Lord, my Rock and my Redeemer
-<br>Greatest treasure of my longing soul
-<br>My God, like You there is no other
-<br>True delight is found in You alone
-<br><br>Your grace, a well too deep to fathom
-<br>Your love exceeds the heaven's reach
-<br>Your truth, a fount of perfect wisdom
-<br>My highest good and my unending need
-<br><br>O Lord, my Rock and my Redeemer
-<br>Strong defender of my weary heart
-<br>My sword to fight the cruel deceiver
-<br>And my shield against his hateful darts
-<br><br>My song, when enemies surround me
-<br>My hope, when tides of sorrow rise
-<br>My joy, when trials are abounding
-<br>Your faithfulness, my refuge in the night
-<br><br>O Lord, my Rock and my Redeemer
-<br>Gracious Savior of my ruined life
-<br>My guilt and cross laid on Your shoulders
-<br>In my place You suffered bled and died
-<br><br>You rose, the grave and death are conquered
-<br>You broke my bonds of sin and shame
-<br>You rose, the grave and death are conquered
-<br>You broke my bonds of sin and shame
-<br>O Lord, my Rock and my Redeemer
-<br>May all my days bring glory to Your Name
-<br><br>May all my days bring glory to Your Name
-
-<br><br>Music and words by Nathan Stiff © 2017 Sovereign Grace Worship
-<br>CCLI 62951 (main copyright licence)
-<br>CCLI 174113 (streaming licence)
-
-### 2. Rock of ages
-<br><br>Rock of ages cleft for me
-<br>Hide me now my refuge be
-<br>Let the water and the blood
-<br>From Your wounded side which flowed
-<br>Be for sin the double cure
-<br>Cleanse me from its guilt and power
-<br><br>Not the labours of my hands
-<br>Can fulfil Your law’s demands
-<br>Could my zeal no respite know
-<br>Could my tears forever flow
-<br>All for sin could not atone
-<br>You must save and You alone
-<br><br>Nothing in my hand I bring
-<br>Simply to Your cross I cling
-<br>Naked come to You for dress
-<br>Helpless look to You for grace
-<br>Stained by sin to You I cry
-<br>Wash me Saviour or I die
-<br><br>While I draw this fleeting breath
-<br>When my eyelids close in death
-<br>When I soar through realms unknown
-<br>Bow before the judgement throne
-<br>Hide me then my refuge be
-<br>Rock of ages cleft for me.
-<br><br>Words by Rev A.M. Toplady, Music by Ruth Buchanan © 1998 Australian Fellowship of Evangelical Students
-<br>CCLI #293103 
+### 1. Cornerstone
+<br>My hope is built on nothing less
+<br>Than Jesus blood and righteousness
+<br>I dare not trust the sweetest frame
+<br>But wholly trust in Jesus name
+<br>My hope is built on nothing less
+<br>Than Jesus blood and righteousness
+<br>I dare not trust the sweetest frame
+<br>But wholly trust in Jesus name
+ 
+<br><br>Christ alone, Cornerstone
+<br>Weak made strong in the Saviour's love
+<br>Through the storm, He is Lord
+<br>Lord of all
+ 
+<br><br>When darkness seems to hide His face
+<br>I rest on His unchanging grace
+<br>In every high and stormy gale
+<br>My anchor holds within the veil
+<br>My anchor holds within the veil
+ 
+<br><br>Christ alone, Cornerstone
+<br>Weak made strong in the Saviour's love
+<br>Through the storm, He is Lord
+<br>Lord of all
+<br>He is Lord, Lord of all
+ 
+<br><br>Christ alone, Cornerstone
+<br>Weak made strong in the Saviour's love
+<br>Through the storm, He is Lord
+<br>Lord of all
+ 
+<br><br>Christ alone, Cornerstone
+<br>Weak made strong in the Saviour's love
+<br>Through the storm, He is Lord
+<br>Lord of all
+ 
+<br><br>When He shall come with trumpet sound
+<br>Oh may I then in Him be found
+<br>Dressed in His righteousness alone
+<br>Faultless stand before the throne
+ 
+<br><br>Christ alone, Cornerstone
+<br>Weak made strong in the Saviour's love
+<br>Through the storm, He is Lord
+<br>Lord of all
+ 
+<br><br>Christ alone, Cornerstone
+<br>Weak made strong in the Saviour's love
+<br>Through the storm, He is Lord
+<br>Lord of all
+ 
+ 
+<br><br>@ 2012 Hillsong worship | Reuben Morgan, Andrew Crawford.
 <br>CCLI 62951 (main copyright licence)
 <br>CCLI 174113 (streaming licence)
 
 
-### 3. Because He Lives
-<br><br>God sent His son,
-<br>They called Him, Jesus;
-<br>He came to love,
-<br>Heal and forgive;
-<br>He lived and died
-<br>To buy my pardon,
-<br>An empty grave is there
-<br>To prove my Savior lives!
-<br><br>Because He lives,
-<br>I can face tomorrow!
-<br>Because He lives,
-<br>All fear is gone.
-<br>Because I know
-<br>He holds the future,
-<br>And life is worth the living,
-<br>Just because He lives!
-<br><br>How sweet to hold
-<br>A newborn baby,
-<br>And feel the pride
-<br>And joy he brings;
-<br>But greater still
-<br>The calm assurance:
-<br>This child can face
-<br>Uncertain days because He Lives!
-<br><br>Because He lives,
-<br>I can face tomorrow!
-<br>Because He lives,
-<br>All fear is gone.
-<br>Because I know
-<br>He holds the future,
-<br>And life is worth the living,
-<br>Just because He lives!
-<br><br>And then one day,
-<br>I'll cross the river,
-<br>I'll fight life's final
-<br>War with pain;
-<br>And then, as death
-<br>Gives way to victory,
-<br>I'll see the lights of glory
-<br>And I'll know He lives!
-<br><br>Because He lives,
-<br>I can face tomorrow!
-<br>Because He lives,
-<br>All fear is gone.
-<br>Because I know
-<br>He holds the future,
-<br>And life is worth the living,
-<br>Just because He lives!
-<br><br>Bill & Gloria Gaither
+### 2. Be Thou My Vision
+<br><br>Be Thou my vision, O Lord of my heart;
+<br>Naught be all else to me, save that Thou art;
+<br>Thou my best thought, by day or by night;
+<br>Waking or sleeping, Thy presence my light.
+
+<br><br>Be Thou my wisdom, and Thou my true Word;
+<br>I ever with Thee and Thou with me, Lord;
+<br>Thou my great Father and I, Thy true son;
+<br>Thou in me dwelling, and I with Thee one.
+
+<br><br>Be Thou my battle shield, Sword for the fight;
+<br>Be Thou my Dignity, Thou my Delight;
+<br>Thou my soul's shelter and Thou my high tow’r:
+<br>Raise thou me heav’nward, O pow’r of my pow’r.
+
+<br><br>Riches I heed not, nor man's empty praise,
+<br>Thou mine inheritance, now and always:
+<br>Thou and thou only, the first in my heart,
+<br>High King of Heaven, my Treasure Thou art.
+
+<br><br>High King of Heaven, my victory won,
+<br>May I reach Heaven's joys, O bright Heav’n's Sun!
+<br>Heart of my own heart, whatever befall,
+<br>Still be my Vision, O Ruler of all…
+
+<br><br>Heart of my own heart, whatever befall,
+<br>Still be my Vision, O Ruler of all.
+
+<br><br>Eleanor Henrietta Hull | Mary Elizabeth Byrne | Russell Mauldin, Words: Public Domain, CCLI Song # 7056332
 <br>CCLI 62951 (main copyright licence)
 <br>CCLI 174113 (streaming licence)
 
 
-### 4. By Faith
-<br><br>By faith, we see the hand of God
-<br>In the light of creation’s grand design;
-<br>In the lives of those who prove His faithfulness,
-<br>Who walk by faith and not by sight.
-<br><br>By faith, our fathers roamed the earth
-<br>With the power of His promise in their hearts
-<br>Of a holy city built by God’s own hand –
-<br>A place where peace and justice reign.
-<br><br>We will stand as children of the promise,
-<br>We will fix our eyes on Him, our soul’s reward.
-<br>Till the race is finished and the work is done,
-<br>We’ll walk by faith and not by sight.
-<br><br>By faith, the prophets saw a day
-<br>When the longed-for Messiah would appear
-<br>With the power to break the chains of sin and death,
-<br>And rise triumphant from the grave.
-<br><br>By faith, the church was called to go
-<br>In the power of the Spirit to the lost
-<br>To deliver captives and to preach good news,
-<br>In every corner of the earth.
-<br>We will stand as children of the promise,
-<br>We will fix our eyes on Him, our soul’s reward.
-<br>Till the race is finished and the work is done,
-<br>We’ll walk by faith and not by sight.
-<br><br>By faith, this mountain shall be moved
-<br>And the power of the gospel shall prevail,
-<br>For we know in Christ all things are possible
-<br>For all who call upon His name.
-<br><br>We will stand as children of the promise,
-<br>We will fix our eyes on Him, our soul’s reward.
-<br>Till the race is finished and the work is done,
-<br>We’ll walk by faith and not by sight.
-<br><br>Stuart Townend , Keith Getty & Kristyn Getty Copyright © 2009 Getty Music Publishing
+### 3. Yet Not I But Through Christ in Me
+<br><br>What gift of grace is Jesus my redeemer
+<br>There is no more for heaven now to give
+<br>He is my joy, my righteousness, and freedom
+<br>My steadfast love, my deep and boundless peace
+ 
+<br><br>To this I hold, my hope is only Jesus
+<br>For my life is wholly bound to his
+<br>Oh how strange and divine, I can sing: all is mine!
+<br>Yet not I, but through Christ in me
+ 
+<br><br>The night is dark but I am not forsaken
+<br>For by my side, the Saviour He will stay
+<br>I labour on in weakness and rejoicing
+<br>For in my need, His power is displayed
+ 
+<br><br>To this I hold, my Shepherd will defend me
+<br>Through the deepest valley He will lead
+<br>Oh the night has been won, and I shall overcome!
+<br>Yet not I, but through Christ in me
+ 
+<br><br>No fate I dread, I know I am forgiven
+<br>The future sure, the price it has been paid
+<br>For Jesus bled and suffered for my pardon
+<br>And He was raised to overthrow the grave
+ 
+<br><br>To this I hold, my sin has been defeated
+<br>Jesus now and ever is my plea
+<br>Oh the chains are released, I can sing: I am free!
+<br>Yet not I, but through Christ in me
+ 
+<br><br>With every breath I long to follow Jesus
+<br>For He has said that He will bring me home
+<br>And day by day I know He will renew me
+<br>Until I stand with joy before the throne
+ 
+<br><br>To this I hold, my hope is only Jesus
+<br>All the glory evermore to Him
+<br>When the race is complete, still my lips shall repeat:
+<br>Yet not I, but through Christ in me!
+ 
+<br><br>To this I hold, my hope is only Jesus
+<br>All the glory evermore to Him
+<br>When the race is complete, still my lips shall repeat:
+<br>Yet not I, but through Christ in me!
+
+<br><br>When the race is complete, still my lips shall repeat:
+<br>Yet not I, but through Christ in me!
+<br>Yet not I, but through Christ in me!
+<br>Yet not I, but through Christ in me!
+ 
+<br><br>© 2018 CityAlight Music CCLI #7121852
+<br>CCLI 62951 (main copyright licence)
+<br>CCLI 174113 (streaming licence) 
+
+
+
+### 4. As the deer pants for the water
+<br><br>As the deer pants for the water
+<br> So my soul longs after You
+<br> You alone are my heart’s desire
+<br> And I long to worship You
+
+<br><br> You alone are my Strength, My Shield
+<br> To You alone will my spirit yield
+<br> You alone are my heart’s desire
+<br> And I long to worship You
+
+ <br><br>You’re my Friend and You are my Father
+<br> Even though You are my King
+<br> I love You more than any other
+<br> So much more than anything
+
+<br><br> You alone are my Strength, My Shield
+<br> To You alone will my spirit yield
+<br> You alone are my heart’s desire
+<br> And I long to worship You
+
+<br><br> You’re more precious than gold or silver
+<br> Only You can satisfy
+<br> You alone are my real Joy-giver
+<br> And the Apple of my eye
+ 
+<br><br>You alone are my Strength, My Shield
+<br> To You alone will my spirit yield
+<br> You alone are my heart’s desire
+<br> And I long to worship You
+<br>And I long to worship You
+
+<br><br> CCLI#1431 © 1984 Universal Music- Brentwood Benson Publishing (admin. Brentwood Benson Publishing)
 <br>CCLI 62951 (main copyright licence)
 <br>CCLI 174113 (streaming licence)
+
 
