@@ -34,45 +34,45 @@ order: 1
 <br>Through the storm, He is Lord
 <br>Lord of all
  
-<br><br>When darkness seems to hide His face
+<br>When darkness seems to hide His face
 <br>I rest on His unchanging grace
 <br>In every high and stormy gale
 <br>My anchor holds within the veil
 <br>My anchor holds within the veil
  
-<br><br>Christ alone, Cornerstone
+<br>Christ alone, Cornerstone
 <br>Weak made strong in the Saviour's love
 <br>Through the storm, He is Lord
 <br>Lord of all
 <br>He is Lord, Lord of all
  
-<br><br>Christ alone, Cornerstone
+<br>Christ alone, Cornerstone
 <br>Weak made strong in the Saviour's love
 <br>Through the storm, He is Lord
 <br>Lord of all
  
-<br><br>Christ alone, Cornerstone
+<br>Christ alone, Cornerstone
 <br>Weak made strong in the Saviour's love
 <br>Through the storm, He is Lord
 <br>Lord of all
  
-<br><br>When He shall come with trumpet sound
+<br>When He shall come with trumpet sound
 <br>Oh may I then in Him be found
 <br>Dressed in His righteousness alone
 <br>Faultless stand before the throne
  
-<br><br>Christ alone, Cornerstone
+<br>Christ alone, Cornerstone
 <br>Weak made strong in the Saviour's love
 <br>Through the storm, He is Lord
 <br>Lord of all
  
-<br><br>Christ alone, Cornerstone
+<br>Christ alone, Cornerstone
 <br>Weak made strong in the Saviour's love
 <br>Through the storm, He is Lord
 <br>Lord of all
  
  
-<br><br>@ 2012 Hillsong worship | Reuben Morgan, Andrew Crawford.
+<br>@ 2012 Hillsong worship | Reuben Morgan, Andrew Crawford.
 <br>CCLI 62951 (main copyright licence)
 <br>CCLI 174113 (streaming licence)
 
