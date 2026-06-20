@@ -10,8 +10,8 @@ title: Welcome
 [comment]: ----------------------------------------------------  
 
 ## Job
-#### The Lord is the strength of his people, he is the saving refuge of his anointed. O Save your people, and bless your heritage; be their shepherd and carry them for ever
-#####  Psalm 28:8-9
+#### "If you, O Lord, should mark iniquity, Lord, who could stand? But there is forgiveness with you, God of Israel.”
+#####  Psalm 130: 3-4
 
 
 ---
