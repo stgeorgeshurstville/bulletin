@@ -4,204 +4,159 @@ order: 1
 ---
 
 ## 9:30am 
-1. Cornerstone
-2. Be Thou My Vision
-3. Yet Not I But Through Christ in Me
-4. As the deer pants for the water
+1. Holy Holy Holy
+2. How Great Is Our God
+3. Abide With Me
+4. It Is Well With My Soul
 
 **Scroll below for 9:30am song lyrics**
 
 ## 4:00pm
-1. All Creatures of Our God and King
-2. Be Thou My vision
-3. Only a Holy God
-4. Christ Our Wisdom
+1. Holy Forever	
+2. Speak O Lord
+3. Ancient of Days
+4. Hear Our Prayer
 
 ## 9:30am Song Lyrics <br><br>
 
-### 1. Cornerstone
-<br>My hope is built on nothing less
-<br>Than Jesus blood and righteousness
-<br>I dare not trust the sweetest frame
-<br>But wholly trust in Jesus name
-<br>My hope is built on nothing less
-<br>Than Jesus blood and righteousness
-<br>I dare not trust the sweetest frame
-<br>But wholly trust in Jesus name
- 
-<br>Christ alone, Cornerstone
-<br>Weak made strong in the Saviour's love
-<br>Through the storm, He is Lord
-<br>Lord of all
- 
-<br>When darkness seems to hide His face
-<br>I rest on His unchanging grace
-<br>In every high and stormy gale
-<br>My anchor holds within the veil
-<br>My anchor holds within the veil
- 
-<br>Christ alone, Cornerstone
-<br>Weak made strong in the Saviour's love
-<br>Through the storm, He is Lord
-<br>Lord of all
-<br>He is Lord, Lord of all
- 
-<br>Christ alone, Cornerstone
-<br>Weak made strong in the Saviour's love
-<br>Through the storm, He is Lord
-<br>Lord of all
- 
-<br>Christ alone, Cornerstone
-<br>Weak made strong in the Saviour's love
-<br>Through the storm, He is Lord
-<br>Lord of all
- 
-<br>When He shall come with trumpet sound
-<br>Oh may I then in Him be found
-<br>Dressed in His righteousness alone
-<br>Faultless stand before the throne
- 
-<br>Christ alone, Cornerstone
-<br>Weak made strong in the Saviour's love
-<br>Through the storm, He is Lord
-<br>Lord of all
- 
-<br>Christ alone, Cornerstone
-<br>Weak made strong in the Saviour's love
-<br>Through the storm, He is Lord
-<br>Lord of all
- 
- 
-<br>@ 2012 Hillsong worship | Reuben Morgan, Andrew Crawford.
+### 1. Holy Holy Holy
+<br><br>Holy, holy, holy! Lord God Almighty!
+<br>Early in the morning our song shall rise to thee
+<br>Holy, holy, holy! merciful and mighty!
+<br>God in three Persons, blessed Trinity
+
+<br><br>Holy, holy, holy! all the saints adore thee
+<br>Casting down their golden crowns around the glassy sea
+<br>Cherubim and seraphim, falling down before thee
+<br>Who was and is and evermore shall be
+
+<br><br>Holy, Holy, Holy! though the darkness hide thee
+<br>Though the eye of sinful man thy glory may not see
+<br>Only thou art holy; there is none beside thee
+<br>Perfect in pow'r, in love, and purity
+
+<br><br>Holy, holy, holy! Lord God Almighty!
+<br>All thy works shall praise thy name, in earth, and sky, and sea
+<br>Holy, holy, holy! merciful and mighty!
+<br>God in three Persons, blessed Trinity.
+
+<br><br>Reginald Heber (1823)
 <br>CCLI 62951 (main copyright licence)
 <br>CCLI 174113 (streaming licence)
 
+### 2. How Great Is Our God
+<br><br>The splendor of a King
+<br>Clothed in majesty
+<br>Let all the Earth rejoice
+<br>All the Earth rejoice
 
-### 2. Be Thou My Vision
-<br><br>Be Thou my vision, O Lord of my heart;
-<br>Naught be all else to me, save that Thou art;
-<br>Thou my best thought, by day or by night;
-<br>Waking or sleeping, Thy presence my light.
+<br><br>He wraps himself in light
+<br>And darkness tries to hide
+<br>And trembles at His voice
+<br>Trembles at His voice
 
-<br><br>Be Thou my wisdom, and Thou my true Word;
-<br>I ever with Thee and Thou with me, Lord;
-<br>Thou my great Father and I, Thy true son;
-<br>Thou in me dwelling, and I with Thee one.
+<br><br>How great is our God, sing with me
+<br>How great is our God, and all will see
+<br>How great, how great is our God
 
-<br><br>Be Thou my battle shield, Sword for the fight;
-<br>Be Thou my Dignity, Thou my Delight;
-<br>Thou my soul's shelter and Thou my high tow’r:
-<br>Raise thou me heav’nward, O pow’r of my pow’r.
+<br><br>Age to age He stands
+<br>And time is in His hands
+<br>Beginning and the end
+<br>Beginning and the end
 
-<br><br>Riches I heed not, nor man's empty praise,
-<br>Thou mine inheritance, now and always:
-<br>Thou and thou only, the first in my heart,
-<br>High King of Heaven, my Treasure Thou art.
+<br><br>The Godhead Three in One
+<br>Father Spirit Son
+<br>The Lion and the Lamb
+<br>The Lion and the Lamb
 
-<br><br>High King of Heaven, my victory won,
-<br>May I reach Heaven's joys, O bright Heav’n's Sun!
-<br>Heart of my own heart, whatever befall,
-<br>Still be my Vision, O Ruler of all…
+<br><br>How great is our God, sing with me
+<br>How great is our God, and all will see
+<br>How great, how great is our God
 
-<br><br>Heart of my own heart, whatever befall,
-<br>Still be my Vision, O Ruler of all.
+<br><br>Name above all names
+<br>Worthy of our praise 
+<br>My heart will sing
+<br>How great is our God
 
-<br><br>Eleanor Henrietta Hull | Mary Elizabeth Byrne | Russell Mauldin, Words: Public Domain, CCLI Song # 7056332
+<br><br>You're the name above all names 
+<br>You are worthy of our praise 
+<br>And my heart will sing
+<br>How great is our God
+
+<br><br>How great is our God, sing with me
+<br>How great is our God, and all will see
+<br>How great, how great is our God
+
+<br><br>Chris Tomlin / Ed Cash / Jesse Reeves (2004)
 <br>CCLI 62951 (main copyright licence)
 <br>CCLI 174113 (streaming licence)
 
+### 3. Abide With Me
+<br><br>Abide with me, fast falls the eventide
+<br>The darkness deepens, Lord, with me abide
+<br>When other helpers fail and comforts flee
+<br>Help of the helpless, O abide with me
 
-### 3. Yet Not I But Through Christ in Me
-<br><br>What gift of grace is Jesus my redeemer
-<br>There is no more for heaven now to give
-<br>He is my joy, my righteousness, and freedom
-<br>My steadfast love, my deep and boundless peace
- 
-<br><br>To this I hold, my hope is only Jesus
-<br>For my life is wholly bound to his
-<br>Oh how strange and divine, I can sing: all is mine!
-<br>Yet not I, but through Christ in me
- 
-<br><br>The night is dark but I am not forsaken
-<br>For by my side, the Saviour He will stay
-<br>I labour on in weakness and rejoicing
-<br>For in my need, His power is displayed
- 
-<br><br>To this I hold, my Shepherd will defend me
-<br>Through the deepest valley He will lead
-<br>Oh the night has been won, and I shall overcome!
-<br>Yet not I, but through Christ in me
- 
-<br><br>No fate I dread, I know I am forgiven
-<br>The future sure, the price it has been paid
-<br>For Jesus bled and suffered for my pardon
-<br>And He was raised to overthrow the grave
- 
-<br><br>To this I hold, my sin has been defeated
-<br>Jesus now and ever is my plea
-<br>Oh the chains are released, I can sing: I am free!
-<br>Yet not I, but through Christ in me
- 
-<br><br>With every breath I long to follow Jesus
-<br>For He has said that He will bring me home
-<br>And day by day I know He will renew me
-<br>Until I stand with joy before the throne
- 
-<br><br>To this I hold, my hope is only Jesus
-<br>All the glory evermore to Him
-<br>When the race is complete, still my lips shall repeat:
-<br>Yet not I, but through Christ in me!
- 
-<br><br>To this I hold, my hope is only Jesus
-<br>All the glory evermore to Him
-<br>When the race is complete, still my lips shall repeat:
-<br>Yet not I, but through Christ in me!
+<br><br>Swift to its close ebbs out life's little day
+<br>Earth's joys grow dim, its glories pass away
+<br>Change and decay in all around I see
+<br>O Thou who changest not, abide with me
 
-<br><br>When the race is complete, still my lips shall repeat:
-<br>Yet not I, but through Christ in me!
-<br>Yet not I, but through Christ in me!
-<br>Yet not I, but through Christ in me!
- 
-<br><br>© 2018 CityAlight Music CCLI #7121852
+<br><br>I need Thy presence every passing hour
+<br>What but Thy grace can foil the tempter's power?
+<br>Who like Thyself my guide and strength can be?
+<br>Through cloud and sunshine, O abide with me
+
+<br><br>I fear no foe with Thee at hand to bless
+<br>Ills have no weight, and tears no bitterness
+<br>Where is death's sting? Where, grave, Thy victory?
+<br>I triumph still, if Thou abide with me
+
+<br><br>Hold Thou Thy cross before my closing eyes
+<br>Shine through the gloom and point me to the skies
+<br>Heaven's morning breaks and earth's vain shadows flee
+<br>In life, in death, O Lord, abide with me
+
+<br><br>Rose K. Hulbert; Henry Francis Lyte (1847)
 <br>CCLI 62951 (main copyright licence)
 <br>CCLI 174113 (streaming licence) 
 
+### 4. It Is Well With My Soul
+<br><br>When peace like a river attendeth my way
+<br>When sorrows like sea billows roll
+<br>Whatever my lot, thou hast taught me to say
+<br>"It is well, it is well with my soul."
 
+<br><br>Though Satan should buffet, though trials should come
+<br>Let this blest assurance control
+<br>That Christ has regarded my helpless estate
+<br>And has shed his own blood for my soul!
 
-### 4. As the deer pants for the water
-<br><br>As the deer pants for the water
-<br> So my soul longs after You
-<br> You alone are my heart’s desire
-<br> And I long to worship You
+<br><br>It is well (it is well) 
+<br>With my soul (with my soul)
+<br>It is well, it is well with my soul!
 
-<br><br> You alone are my Strength, My Shield
-<br> To You alone will my spirit yield
-<br> You alone are my heart’s desire
-<br> And I long to worship You
+<br><br>My sin oh, the bliss of this glorious thought
+<br>My sin, not in part, but the whole
+<br>Is nailed to the cross, and I bear it no more
+<br>Praise the Lord, praise the Lord, O my soul! 
 
- <br><br>You’re my Friend and You are my Father
-<br> Even though You are my King
-<br> I love You more than any other
-<br> So much more than anything
+<br><br>It is well (it is well) 
+<br>With my soul (with my soul)
+<br>It is well, it is well with my soul!
 
-<br><br> You alone are my Strength, My Shield
-<br> To You alone will my spirit yield
-<br> You alone are my heart’s desire
-<br> And I long to worship You
+<br><br>O Lord, haste the day when my faith shall be sight
+<br>The clouds be rolled back as a scroll
+<br>The trump shall resound and the Lord shall descend
+<br>Even so, it is well with my soul!
 
-<br><br> You’re more precious than gold or silver
-<br> Only You can satisfy
-<br> You alone are my real Joy-giver
-<br> And the Apple of my eye
- 
-<br><br>You alone are my Strength, My Shield
-<br> To You alone will my spirit yield
-<br> You alone are my heart’s desire
-<br> And I long to worship You
-<br>And I long to worship You
+<br><br>It is well (it is well) 
+<br>With my soul (with my soul)
+<br>It is well, it is well with my soul!
 
-<br><br> CCLI#1431 © 1984 Universal Music- Brentwood Benson Publishing (admin. Brentwood Benson Publishing)
+<br><br>Horatio Gates Spafford (1873)
 <br>CCLI 62951 (main copyright licence)
 <br>CCLI 174113 (streaming licence)
+
 
 
