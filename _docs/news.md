@@ -7,9 +7,8 @@ order: 5
 
 | Date | Event | Time |
 | ---- | ---- | ---- |
-| Every Sunday from 14th of June | The White Horse Inn | 6:00PM |
+| 21st of June and then the first Sunday each month (5th July) | The White Horse Inn | 6:00PM |
 | Every Sunday from 7th June | The Baptism Course| 2:30 PM – 3:30 PM | 
-| 20/06/2026 | EQUIP Women’s Conference: Watch Party at Church | 9:30 AM - 3:30 PM |
 | Every Friday | The Bridge | 6:00PM - 7:30PM |
 
 ## General
@@ -24,20 +23,6 @@ Launching on Sunday, 14th of June at 6:00 PM, The White Horse Inn is a new weekl
 - Weeks 1 & 2: We will focus on establishing our vision and our core rules of engagement (Robust Inquiry, Absolute Honor, and Steelmanning Only).
 
 To submit topic requests, current affairs issues, or questions about sermon passages, please contact Brian. We look forward to seeing you there!
-
-### EQUIP Women’s Conference: Watch Party at Church!
-Ladies, join us on Saturday, June 20, from 9:30 am to 3:30 pm as we host a watch party right here at church for the annual EQUIP Women's Conference. It’s going to be a fantastic day of fellowship, encouragement, and diving into God’s Word together.
-Cost & Tickets:
-- $20 cash on the day (please bring exact change, if possible).
-- OR buy your own ticket online for $22 ahead of time and simply show your ticket at the door for entry. Head to www.equip.org.au to purchase yours.
-- Free for all high schoolers!
-
-The Day's Schedule:
-- 9:30 am: Registration & a morning cuppa to kick things off.
-- 10:00 am: Session 1
-- 12:00 pm: Lunch break – You can bring your own lunch, or enjoy a hot soup lunch provided here at church for a small donation.
-- 1:00 pm: Session 2
-Lock the date in your diaries, invite a friend, and we'll see you there!
 
 ### More to Discover: The Baptism Course
 #### Curious about faith? Ready for the next step?
