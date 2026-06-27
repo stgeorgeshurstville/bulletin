@@ -20,9 +20,6 @@ order: 2
 ### Prayer
 Dear God, thank you for letting us know you. Please help us learn from your word. Help us to serve and praise you. **Amen!**
 
-Job 38: 1-11
-Job 40: 6-14
-Job 42: 1-10, 16-17
 
 ### Job 38:1-11, 40:6-14 and 42:1-10, 16-17 (NIV) 
 
