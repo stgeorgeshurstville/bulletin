@@ -13,10 +13,14 @@ order: 5
 ## General
 
 ### The White Horse Inn
-_"Faith Seeking Understanding"_<br>
-Thank you to all of you who've joined the first two White Horse Inn.  I pray that it was a blessing to you as it was to me.<br>
-The WHite Horse Inn will run monthly on Sunday at 6pm in the seminar room in a similar way. I’ll be away for the first Sunday of the month, so the next meeting will be 12 July.<br>
-The last thing to mention is the setting of topics for discussion. I will create a slido the week leading up to 12 July that you can suggest topics and vote up and down on. The feedback will assist me in choosing a topic.<br>
+**Faith Seeking Understanding**
+
+Thank you to all of you who've joined the first two White Horse Inn.  I pray that it was a blessing to you as it was to me.
+
+The WHite Horse Inn will run monthly on Sunday at 6pm in the seminar room in a similar way. I’ll be away for the first Sunday of the month, so the next meeting will be 12 July.
+
+The last thing to mention is the setting of topics for discussion. I will create a slido the week leading up to 12 July that you can suggest topics and vote up and down on. The feedback will assist me in choosing a topic.
+
 - When: 6pm, 12th July
 - Where: The Seminar Room.
 
