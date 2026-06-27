@@ -7,33 +7,18 @@ order: 5
 
 | Date | Event | Time |
 | ---- | ---- | ---- |
-| 21st of June and then the first Sunday each month (5th July) | The White Horse Inn | 6:00PM |
-| Every Sunday from 7th June | The Baptism Course| 2:30 PM – 3:30 PM | 
+| 12 July | The White Horse Inn | 6:00PM |
 | Every Friday | The Bridge | 6:00PM - 7:30PM |
 
 ## General
 
 ### The White Horse Inn
 _"Faith Seeking Understanding"_<br>
-Theology wasn't meant to be handled in isolation—nor in anger. Too often, deep questions devolve into competitive arguments, gatekeeping, or superficial debates.<br>
-Launching on Sunday, 14th of June at 6:00 PM, The White Horse Inn is a new weekly, moderated forum dedicated to robust intellectual exploration wrapped in absolute mutual honor. Whether you are wrestling with tough questions or looking to dig deeper into your faith, you are welcome here. Bring your dinner, grab a seat, and let’s seek truth together.
-- When: Weekly at 6:00 PM, beginning 14th of June (unless notified).
+Thank you to all of you who've joined the first two White Horse Inn.  I pray that it was a blessing to you as it was to me.<br>
+The WHite Horse Inn will run monthly on Sunday at 6pm in the seminar room in a similar way. I’ll be away for the first Sunday of the month, so the next meeting will be 12 July.<br>
+The last thing to mention is the setting of topics for discussion. I will create a slido the week leading up to 12 July that you can suggest topics and vote up and down on. The feedback will assist me in choosing a topic.<br>
+- When: 6pm, 12th July
 - Where: The Seminar Room.
-- Fellowship: BYO Dinner! We will eat and discuss together.
-- Weeks 1 & 2: We will focus on establishing our vision and our core rules of engagement (Robust Inquiry, Absolute Honor, and Steelmanning Only).
-
-To submit topic requests, current affairs issues, or questions about sermon passages, please contact Brian. We look forward to seeing you there!
-
-### More to Discover: The Baptism Course
-#### Curious about faith? Ready for the next step?
-We are excited to announce our upcoming 4-week course, "More to Discover," starting this June. This series is designed with a dual purpose in mind:
-1. For the Curious <br> If you are starting to ask questions about the Christian faith or want to deepen your understanding of what it means to follow Jesus, you are so welcome here. There is no pressure—just an open space to explore the heart of the Gospel and see what the Christian life is all about.
-2. An Opportunity for Baptism <br> This course offers you the opportunity to be baptized at our upcoming service on Sunday, 19th July. Perhaps you have been a Christian for some time but have never taken that step to publicly declare your faith. We invite you to join us for these four weeks as we prepare our hearts and minds together for this special milestone.
-<br><br> Fill in the form if seeking to be baptised: https://forms.gle/1TQPay1EN9bhPjAn9
-<br> Because the sessions build on one another, we ask that those wishing to be baptized join us for the full four-week journey.
-- **Starts:** Every Sunday from 7th June (4 weeks total)
-- **Time:** 2:30 PM – 3:30 PM
-- **Location:** St George’s <br>
 
 ### New to the Family? Join "The Bridge"
 If you’ve recently moved into the area or have started making this your home church after moving from another congregation, we’d love to officially welcome you.
