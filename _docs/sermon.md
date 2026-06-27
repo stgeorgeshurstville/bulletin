@@ -26,7 +26,9 @@ Job 42: 1-10, 16-17
 
 ### Job 38:1-11, 40:6-14 and 42:1-10, 16-17 (NIV) 
 
-**The Lord Speaks**
+**38:1-11**
+
+The Lord Speaks
 
 ¹ Then the Lord spoke to Job out of the storm. He said:
 
