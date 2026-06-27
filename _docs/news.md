@@ -21,8 +21,8 @@ The WHite Horse Inn will run monthly on Sunday at 6pm in the seminar room in a s
 
 The last thing to mention is the setting of topics for discussion. I will create a slido the week leading up to 12 July that you can suggest topics and vote up and down on. The feedback will assist me in choosing a topic.
 
-- When: 6pm, 12th July
-- Where: The Seminar Room.
+- **When:** 6pm, 12th July
+- **Where:** The Seminar Room.
 
 ### New to the Family? Join "The Bridge"
 If you’ve recently moved into the area or have started making this your home church after moving from another congregation, we’d love to officially welcome you.
