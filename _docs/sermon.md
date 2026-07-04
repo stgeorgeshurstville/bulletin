@@ -40,6 +40,7 @@ Dear God, thank you for letting us know you. Please help us learn from your word
 ¹⁴ The heavens belong to the Lord your God. Even the highest heavens belong to him. He owns the earth and everything in it. ¹⁵ But the Lord loved your people of long ago very much. You are their children. And he chose you above all the other nations. His love and his promise remain with you to this very day. ¹⁶ So don’t be stubborn anymore. Obey the Lord. ¹⁷ The Lord your God is the greatest God of all. He is the greatest Lord of all. He is the great God. He is mighty and wonderful. He treats everyone the same. He doesn’t accept any money from those who want special favors. ¹⁸ He stands up for widows and for children whose fathers have died. He loves outsiders living among you. He gives them food and clothes. ¹⁹ So you also must love outsiders. Remember that you yourselves were outsiders in Egypt. ²⁰ Honor the Lord your God. Serve him. Remain true to him. When you make promises, do so in his name. ²¹ He is the one you should praise. He’s your God. With your own eyes you saw the great and amazing things he did for you. ²² Long ago, your people went down into Egypt. The total number of them was ⁷⁰ . And now the Lord your God has made you as many as the stars in the sky.
 
 **Love and Obey the Lord**
+
 ¹ Love the Lord your God. Do what he requires. Always obey his rules, laws and commands. 
 
 
