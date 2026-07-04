@@ -9,9 +9,9 @@ title: Welcome
 [comment]: ##### "where the sentence came from, e.g. Psalm 1:1"  
 [comment]: ----------------------------------------------------  
 
-## Job
-#### "God is in his holy habitation. God gives the desolate a home to dwell in; he gives power and strength to his people." 
-#####  Psalm 68: 5-6, 35
+## New City Catechism
+#### O people in Zion who dwell at Jerusalem; you shall weep no more. The Lord will surely be gracious to you at the sound of your cry; he will cause his majestic voice to be heard. 
+#####  Isaiah 30: 19a,30b
 
 
 ---
