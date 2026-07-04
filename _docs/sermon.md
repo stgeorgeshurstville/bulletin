@@ -21,92 +21,30 @@ order: 2
 Dear God, thank you for letting us know you. Please help us learn from your word. Help us to serve and praise you. **Amen!**
 
 
-### Job 38:1-11, 40:6-14 and 42:1-10, 16-17 (NIV) 
+### Deuteronomy 10:1-11:1 (NIRV)
 
-**38:1-11**
+**The New Stone Tablets**
 
-The Lord Speaks
+¹ At that time the Lord spoke to me. He said, “Carve out two stone tablets, just like the first ones. Then come up to me on the mountain. Also make a wooden ark. ² I will write on the tablets the words that were on the first tablets, which you broke. Then you must put the tablets in the ark.”
 
-¹ Then the Lord spoke to Job out of the storm. He said:
+³ So I made the ark out of acacia wood. I carved out two stone tablets that were just like the first ones. I went up the mountain. I carried the two tablets in my hands. ⁴ The Lord wrote on the tablets what he had written before. It was the Ten Commandments. He had announced them to you out of the fire on the mountain. It was on the day you had gathered together there. So the Lord gave the tablets to me. ⁵ Then I came back down the mountain. I put the tablets in the ark I had made, just as the Lord had commanded me. And that’s where they are now.
 
-² “Who is this that obscures my plans
-with words without knowledge?
-³ Brace yourself like a man;
-I will question you,
-and you shall answer me.
-⁴ “Where were you when I laid the earth’s foundation?
-Tell me, if you understand.
-⁵ Who marked off its dimensions? Surely you know!
-Who stretched a measuring line across it?
-⁶ On what were its footings set,
-or who laid its cornerstone—
-⁷ while the morning stars sang together
-and all the angels shouted for joy?
-⁸ “Who shut up the sea behind doors
-when it burst forth from the womb,
-⁹ when I made the clouds its garment
-and wrapped it in thick darkness,
-¹⁰ when I fixed limits for it
-and set its doors and bars in place,
-¹¹ when I said, ‘This far you may come and no farther;
-here is where your proud waves halt’?
+⁶ Remember how the Israelites traveled from the wells of Bene Jaakan to Moserah. That’s where Aaron died. And his body was buried there. His son Eleazar became the next priest after him. ⁷ From Moserah the people traveled to Gudgodah. Then they went on to Jotbathah. That land has streams of water. ⁸ At that time the Lord set the tribe of Levi apart. He appointed them to carry the ark of the covenant of the Lord. He wanted them to serve him. He told them to bless the people in his name. And they still do it today. ⁹ That’s why the Levites don’t have any part of the land the Lord gave the other tribes in Israel. They don’t have any share among them. The Lord himself is their share. That’s what the Lord your God told them.
 
-**40:6-14**
+¹⁰ I had stayed on the mountain for ⁴⁰ days and ⁴⁰ nights, just as I did the first time. The Lord listened to me that time also. He didn’t want to destroy you. ¹¹ “Go,” the Lord said to me. “Lead the people on their way. Then they can enter the land and take it over. I have given my word. I promised I would give the land to their fathers, to Abraham, Isaac and Jacob.”
 
-⁶ Then the Lord spoke to Job out of the storm:
+**Honor the Lord**
 
-⁷ “Brace yourself like a man;
-I will question you,
-and you shall answer me.
-⁸ “Would you discredit my justice?
-Would you condemn me to justify yourself?
-⁹ Do you have an arm like God’s,
-and can your voice thunder like his?
-¹⁰ Then adorn yourself with glory and splendor,
-and clothe yourself in honor and majesty.
-¹¹ Unleash the fury of your wrath,
-look at all who are proud and bring them low,
-¹² look at all who are proud and humble them,
-crush the wicked where they stand.
-¹³ Bury them all in the dust together;
-shroud their faces in the grave.
-¹⁴ Then I myself will admit to you
-that your own right hand can save you.
+¹² And now, Israel, what is the Lord your God asking you to do? Honor him. Live exactly as he wants you to live. Love him. Serve him with all your heart and with all your soul. ¹³ Obey the Lord’s commands and rules. I’m giving them to you today for your own good.
 
-**42:1-10**
+¹⁴ The heavens belong to the Lord your God. Even the highest heavens belong to him. He owns the earth and everything in it. ¹⁵ But the Lord loved your people of long ago very much. You are their children. And he chose you above all the other nations. His love and his promise remain with you to this very day. ¹⁶ So don’t be stubborn anymore. Obey the Lord. ¹⁷ The Lord your God is the greatest God of all. He is the greatest Lord of all. He is the great God. He is mighty and wonderful. He treats everyone the same. He doesn’t accept any money from those who want special favors. ¹⁸ He stands up for widows and for children whose fathers have died. He loves outsiders living among you. He gives them food and clothes. ¹⁹ So you also must love outsiders. Remember that you yourselves were outsiders in Egypt. ²⁰ Honor the Lord your God. Serve him. Remain true to him. When you make promises, do so in his name. ²¹ He is the one you should praise. He’s your God. With your own eyes you saw the great and amazing things he did for you. ²² Long ago, your people went down into Egypt. The total number of them was ⁷⁰ . And now the Lord your God has made you as many as the stars in the sky.
 
-¹ Then Job replied to the Lord:
+**Love and Obey the Lord**
+¹ Love the Lord your God. Do what he requires. Always obey his rules, laws and commands. 
 
-² “I know that you can do all things;
-no purpose of yours can be thwarted.
-³ You asked, ‘Who is this that obscures my plans without knowledge?’
-Surely I spoke of things I did not understand,
-things too wonderful for me to know.
-⁴ “You said, ‘Listen now, and I will speak;
-I will question you,
-and you shall answer me.’
-⁵ My ears had heard of you
-but now my eyes have seen you.
-⁶ Therefore I despise myself
-and repent in dust and ashes.”
-
-Epilogue
-
-⁷ After the Lord had said these things to Job, he said to Eliphaz the Temanite, “I am angry with you and your two friends, because you have not spoken the truth about me, as my servant Job has. ⁸ So now take seven bulls and seven rams and go to my servant Job and sacrifice a burnt offering for yourselves. My servant Job will pray for you, and I will accept his prayer and not deal with you according to your folly. You have not spoken the truth about me, as my servant Job has.” ⁹ So Eliphaz the Temanite, Bildad the Shuhite and Zophar the Naamathite did what the Lord told them; and the Lord accepted Job’s prayer.
-
-¹⁰ After Job had prayed for his friends, the Lord restored his fortunes and gave him twice as much as he had before. 
-
-**42:16-17**
-
-¹⁶ After this, Job lived a hundred and forty years; he saw his children and their children to the fourth generation. ¹⁷ And so Job died, an old man and full of years.
 
 ## Sermon Outline <br>
-* The problem of Evil
-* Reading the text flatly
-* The super-abundant tour of the grey
-* Thanos or Jesus
-* Final thoughts on Job 
-
+### How can we glorify God?
 
 
 ## Q&A
