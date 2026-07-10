@@ -37,6 +37,13 @@ The WHite Horse Inn will run monthly on Sunday at 6pm in the seminar room in a s
 
 The last thing to mention is the setting of topics for discussion. I will create a slido the week leading up to 12 July that you can suggest topics and vote up and down on. The feedback will assist me in choosing a topic. 
 
+### Baptism Celebration: Next Sunday at 4pm!
+Next Sunday is going to be an incredibly special day for our 4pm English Congregation! We have five people—Tiffany, Liam, Aidan, Tim, and Joey—publicly declaring that they belong to Jesus through baptism.
+
+- **Pray for them this week:** As they prepare to show their new faith in God, let’s be covering them in prayer over the coming week. Please pray that they will hold fast to Jesus, remembering how incredibly gracious He has been in bringing them back into relationship with God. 
+- **Hospitality & Parking Request:** Because we have five people getting baptised, we are expecting many visiting friends and family members to join us. To show them true hospitality and make them feel welcome, we are asking our regular congregation members to please park off-site.
+- **Where to park:** To help clear out our main spaces for our guests, you may like to use the nearby Council Car Park located at 7–11 The Avenue, Hurstville.
+
 ### New to the Family? Join "The Bridge"
 If you’ve recently moved into the area or have started making this your home church after moving from another congregation, we’d love to officially welcome you.
 
