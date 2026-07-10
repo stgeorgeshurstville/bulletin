@@ -9,9 +9,9 @@ title: Welcome
 [comment]: ##### "where the sentence came from, e.g. Psalm 1:1"  
 [comment]: ----------------------------------------------------  
 
-## New City Catechism
-#### O people in Zion who dwell at Jerusalem; you shall weep no more. The Lord will surely be gracious to you at the sound of your cry; he will cause his majestic voice to be heard. 
-#####  Isaiah 30: 19a,30b
+## New City Catechism - What Does the Law of God Require?
+#### O Lord God of hosts, hear our prayer; give ear, O God of Jacob. For a day in your courts is better than a thousand elsewhere.
+#####  Psalm 84: 8,10
 
 
 ---
