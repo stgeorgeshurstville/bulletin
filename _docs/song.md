@@ -12,10 +12,10 @@ order: 1
 **Scroll below for 9:30am song lyrics**
 
 ## 4:00pm
-1. Rise with the Sun
-2. His Mercy Is More
-3. Come Thou Fount of Every Blessing
-4. Trust and Obey
+1. 
+2. 
+3. 
+4. 
 
 ## 9:30am Song Lyrics <br><br>
 
