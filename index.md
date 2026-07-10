@@ -9,7 +9,7 @@ title: Welcome
 [comment]: ##### "where the sentence came from, e.g. Psalm 1:1"  
 [comment]: ----------------------------------------------------  
 
-## New City Catechism - What Does the Law of God Require?
+## New City Catechism 
 #### O Lord God of hosts, hear our prayer; give ear, O God of Jacob. For a day in your courts is better than a thousand elsewhere.
 #####  Psalm 84: 8,10
 
