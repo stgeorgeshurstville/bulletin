@@ -21,7 +21,7 @@ order: 2
 Dear God, thank you for letting us know you. Please help us learn from your word. Help us to serve and praise you. **Amen!**
 
 
-### Deuteronomy 22:37-40 (NIRV)
+### Matthew 22:37-40 (NIRV)
 
 ³⁷ Jesus replied, “ ‘Love the Lord your God with all your heart and with all your soul. Love him with all your mind.’ ³⁸ This is the first and most important commandment. ³⁹ And the second is like it. ‘Love your neighbor as you love yourself.’ ⁴⁰ Everything that is written in the Law and the Prophets is based on these two commandments.”
 
