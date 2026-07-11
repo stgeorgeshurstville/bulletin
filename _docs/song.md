@@ -12,10 +12,10 @@ order: 1
 **Scroll below for 9:30am song lyrics**
 
 ## 4:00pm
-1. 
-2. 
-3. 
-4. 
+1. Christ Our Hope In Life And Death
+2. Love the Lord your God
+3. When I Survey the Wondrous Cross
+4. Your Will be done
 
 ## 9:30am Song Lyrics <br><br>
 
