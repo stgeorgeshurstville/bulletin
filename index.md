@@ -10,8 +10,8 @@ title: Welcome
 [comment]: ----------------------------------------------------  
 
 ## New City Catechism 
-#### O Lord God of hosts, hear our prayer; give ear, O God of Jacob. For a day in your courts is better than a thousand elsewhere.
-#####  Psalm 84: 8,10
+#### The Lord shows us the path of life; in his presence there is fullness of joy, in his right hand are pleasures of evermore.
+#####  Psalm 16:11
 
 
 ---
