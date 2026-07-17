@@ -7,7 +7,6 @@ order: 5
 
 | Date | Event | Time |
 | ---- | ---- | ---- |
-| 12 July | The White Horse Inn | 6:00PM |
 | Every Friday | The Bridge | 6:00PM - 7:30PM |
 
 ## General
