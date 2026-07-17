@@ -4,18 +4,18 @@ order: 1
 ---
 
 ## 9:30am 
-1. His Mercy Is More
-2. Jesus Loves Me / A New Commandment
-3. Trust & Obey (CXMMXNS)
-4. Abide
+1. How Great is Our God
+2. Jesus, Strong and Kind
+3. Only a Holy God
+4. Pass it On
 
 **Scroll below for 9:30am song lyrics**
 
 ## 4:00pm
-1. Christ Our Hope In Life And Death
-2. Love the Lord your God
-3. When I Survey the Wondrous Cross
-4. Your Will be done
+1. Holy Forever
+2. Jesus Strong and Kind
+3. His Mercy is More
+4. Yet not I but through Christ in me
 
 ## 9:30am Song Lyrics <br><br>
 
