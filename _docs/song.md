@@ -66,57 +66,103 @@ Oh there is grace awaiting me
 CCLI 62951 (main copyright licence)
 CCLI 174113 (streaming licence)
 
+
+### 2. Sinking Deep<br>
+Standing here in Your presence
+In a grace so relentless
+I am won
+By perfect love
  
-© 2004 Christ Tomlin, Capitol CMG Publishing, Music Services, Reservoir Media Management, Inc<br>
-CCLI 62951 (main copyright licence)<br>
-CCLI 174113 (streaming licence)<br>
+Wrapped within the arms of heaven
+In a peace that lasts forever
+Sinking deep
+In mercy's sea
+ 
+I'm wide awake
+Drawing close
+Stirred by grace
+And all my heart is Yours
+ 
+All fear removed
+I breathe You in
+I lean into Your love
+Oh, Your love
+ 
+When I'm lost You pursue me
+Lift my head to see Your glory
+Lord of all
+So beautiful
+ 
+Here in You I find shelter
+Captivated by the splendor
+Of Your face
+My secret place
+ 
+I'm wide awake
+Drawing close
+Stirred by grace
+And all my heart is Yours
+ 
+All fear removed
+I breathe You in
+I lean into Your love
+Oh, Your love
+ 
+Your love so deep
+Is washing over me
+Your face is all I seek
+You are my everything
+ 
+Jesus Christ
+You are my one desire
+Lord hear my only cry
+To know You all my life
+ 
+Love so deep
+Is washing over me
+Your face is all I seek
+You are my everything
+ 
+Jesus Christ
+You are my one desire
+Lord hear my only cry
+To know You all my life
+ 
+I'm wide awake
+Drawing close
+Stirred by grace
+And all my heart is Yours
+ 
+All fear removed
+I breathe You in
+I lean into Your love
+Oh, Your love
+ 
+Love so deep
+Is washing over me
+Your face is all I seek
+You are my everything
+ 
+Jesus Christ
+You are my one desire
+Lord hear my only cry
+To know You all my life
+ 
+Love so deep
+Is washing over me
+Your face is all I seek
+You are my everything
+ 
+Jesus Christ
+You are my one desire
+Lord hear my only cry
+To know You all my life
+ 
+@ 2013 Hillsong, Young & Free album 
+CCLI 62951 (main copyright licence)
+CCLI 174113 (streaming licence) 
 
 
-### 2. Jesus, Strong and Kind
-Jesus said that if I thirst<br>
-I should come to him<br>
-No one else can satisfy<br>
-I should come to him<br>
-
-Jesus said if I am weak<br>
-I should come to him<br>
-No one else can be my strength<br>
-I should come to him<br>
-
-For the Lord is good and faithful<br>
-He will keep us day and night<br>
-We can always run to Jesus<br>
-Jesus, strong and kind<br>
-
-Jesus said that if I fear<br>
-I should come to him<br>
-No one else can be my shield<br>
-I should come to him<br>
-
-For the Lord is good and faithful<br>
-He will keep us day and night<br>
-We can always run to Jesus<br>
-Jesus, strong and kind<br>
-
-Jesus said if I am lost<br>
-He will come to me<br>
-And he showed me on that cross<br>
-He will come to me<br>
-
-For the Lord is good and faithful<br>
-He will keep us day and night<br>
-We can always run to Jesus<br>
-Jesus, strong and kind<br>
-
-For the Lord is good and faithful<br>
-He will keep us day and night<br>
-We can always run to Jesus<br>
-Jesus, strong and kind<br>
-Jesus, strong and kind<br>
-
-© 2019 CityAlight Music. Words and Music by COLIN BUCHANAN, MICHAEL FARREN, JONNY ROBINSON & RICH<br>
-CCLI 62951 (main copyright licence)<br>
-CCLI 174113 (streaming licence) <br>
 
 ### 3.  Only A Holy God <br>
 Who else commands all the hosts of heaven<br>
@@ -177,40 +223,62 @@ CCLI 174113 (streaming licence) <br>
 
 
 
-### 4. His Mercy Is More <br>
-What love could remember no wrongs we have done<br>
-Omniscient, all knowing, He counts not their sum<br>
-Thrown into a sea without bottom or shore<br>
-Our sins they are many, His mercy is more<br>
+### 4. Servants of the Gospel <br>
+Though we were undeserving
+ Christ died to wash us clean
+ He bore the Father's anger
+ While nailed upon the tree
+ In darkness and in turmoil
+ The judgment fell on Him
+ Bringing us forgiveness
+ That new life might begin
+ 
+As servants of the gospel
+ Christ's work we carry on
+ That through our prayer and witness
+ By grace we might win some
+ We call on every nation
+ To turn to Christ the Lord
+ Refuge in His mercy
+ And marvel at His love
+ 
+ The grave could not contain Him
+ From death the Son broke free
+ Exalted by His Father
+ To rule eternally
+ And in His grace He calls us
+ To be His chosen church
+ As His holy temple
+ His priests to all the earth
 
-Praise the Lord, His mercy is more<br>
-Stronger than darkness, new every morn<br>
-Our sins they are many, His mercy is more<br>
+As servants of the gospel
+ Christ's work we carry on
+ That through our prayer and witness
+ By grace we might win some
+ We call on every nation
+ To turn to Christ the Lord
+ Refuge in His mercy
+ And marvel at His love
 
+ Marked with His Holy Spirit
+ And guided by His word
+ Christ gathers us together
+ Prepares us for good works
+ And so with grace apportioned
+ We serve each other needs
+ Sharing in each blessing
+ And helping in our grief
 
-What patience would wait as we constantly roam<br>
-What Father, so tender, is calling us home<br>
-He welcomes the weakest, the vilest, the poor<br>
-Our sins they are many, His mercy is more<br>
+As servants of the gospel
+ Christ's work we carry on
+ That through our prayer and witness
+ By grace we might win some
+ We call on every nation
+ To turn to Christ the Lord
+ Refuge in His mercy
+ And marvel at His love
 
-Praise the Lord, His mercy is more<br>
-Stronger than darkness, new every morn<br>
-Our sins they are many, His mercy is more<br>
-
-What riches of kindness He lavished on us<br>
-His blood was the payment, His life was the cost<br>
-We stood 'neath a debt we could never afford<br>
-Our sins they are many, His mercy is more<br>
-
-Praise the Lord, His mercy is more<br>
-Stronger than darkness, new every morn<br>
-Our sins they are many, His mercy is more<br>
-
-Praise the Lord, His mercy is more<br>
-Stronger than darkness, new every morn<br>
-Our sins they are many, His mercy is more<br>
-
-©2016 Getty Music Hymns and Songs, Getty Music Publishing, Love Your Enemies Publishing, Messenger Hymns. CCLI #7065053<br>
-CCLI 62951 (main copyright licence)<br>
-CCLI 174113 (streaming licence)<br>
-
+ 
+CCLI Song # 3687240 | © 2002 Bryson Smith, Philip Percival | emumusic.com 
+CCLI 62951 (main copyright licence)
+CCLI 174113 (streaming licence)
