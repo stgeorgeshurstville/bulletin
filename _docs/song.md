@@ -4,16 +4,16 @@ order: 1
 ---
 
 ## 9:30am 
-1. How Great is Our God
-2. Jesus, Strong and Kind
-3. Only a Holy God
-4. Pass it On
+1. Grace Awaiting Me
+2. Sinking Deep
+3. Cornerstone
+4. Servants of the Gospel
 
 **Scroll below for 9:30am song lyrics**
 
 ## 4:00pm
-1. Holy Forever
-2. Jesus Strong and Kind
+1. All Creatures of Our God and King
+2. Better by Far
 3. His Mercy is More
 4. Yet not I but through Christ in me
 
