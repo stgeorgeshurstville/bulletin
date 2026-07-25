@@ -19,52 +19,57 @@ order: 1
 
 ## 9:30am Song Lyrics <br><br>
 
-### 1. How Great is Our God<br>
-The splendour of a King, clothed in majesty<br>
-Let all the Earth rejoice<br>
-All the Earth rejoice<br>
+### 1. Grace Awaiting Me<br>
+I will see the world to come
+For one has suffered in my place
+Now there is grace awaiting me, awaiting me.
+Judgement's done, atonements made
+The ransom's paid, no guilt remains
+Now there is grace awaiting me, awaiting me
  
-He wraps himself in light<br>
-And darkness tries to hide<br>
-And trembles at His voice<br>
-Trembles at His voice<br>
+Grace - a welcome from the Father
+Grace - forgiveness full and free
+Grace - that's greater than our failings
+Oh there is grace awaiting me
  
-How great is our God, sing with me<br>
-How great is our God, and all will see<br>
-How great, how great is our God<br>
+I take comfort in the hope
+ Of the thief upon the cross
+For I am worthy of as little love as he
+Like this man, I won't despair
+For life's ahead, what joy we'll share
+Now there is grace awaiting me, awaiting me
  
-Age to age He stands<br>
-And time is in His hands<br>
-Beginning and the end<br>
-Beginning and the end<br>
+Grace - a welcome from the Father
+Grace - forgiveness full and free
+Grace - that's greater than our failings
+Oh there is grace awaiting me
  
-The Godhead Three in One<br>
-Father Spirit and Son<br>
-The Lion and the Lamb<br>
-The Lion and the Lamb<br>
+Jesus you have loved and bought me
+By your death my debts are paid
+I am yours, I stand beside you
+Fearless face the coming day.
  
-How great is our God, sing with me<br>
-How great is our God, and all will see<br>
-How great, how great is our God<br>
+I will see the world to come
+Despite the sin that I have done
+For there is grace awaiting me, awaiting me
+All who call upon the Lord
+Will rise to life with peace assured
+For there is grace awaiting me, awaiting me.
  
-Name above all names <br>
-You are worthy of our praise <br>
-And my heart will sing<br>
-How great is our God<br>
+Grace - a welcome from the Father
+Grace - forgiveness full and free
+Grace - that's greater than our failings
+Oh there is grace awaiting me
+Oh there is grace awaiting me
  
-Name above all names <br>
-You are worthy of our praise <br>
-And my heart will sing<br>
-How great is our God<br>
- 
-How great is our God, sing with me<br>
-How great is our God, and all will see<br>
-How great, how great is our God<br>
+© CCLI Song # 7006994 | Philip Percival | Simone Richardson | © 2013 Percival, Philip (Admin. by Philip Gordon Percival) | Richardson, Simone | emumusic.com
+CCLI 62951 (main copyright licence)
+CCLI 174113 (streaming licence)
+
  
 © 2004 Christ Tomlin, Capitol CMG Publishing, Music Services, Reservoir Media Management, Inc<br>
 CCLI 62951 (main copyright licence)<br>
 CCLI 174113 (streaming licence)<br>
-
 
 
 ### 2. Jesus, Strong and Kind
