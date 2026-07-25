@@ -22,7 +22,7 @@ How easy is it to keep our guard up—with each other, and even with God? Starti
 *Join us next Sunday as we begin this journey together!*
 
 ### 📢 Compassion Sunday | Sunday, August 2nd
-Next Sunday, we are excited to welcome our friends from Compassion! Compassion is an organization that partners with local churches to help release children from poverty in Jesus' name. Over the years, our church family has sponsored over 60 children through this partnership. <br>
+Next Sunday, we are excited to welcome our friends from Compassion! Compassion is an organization that partners with local churches to help release children from poverty in Jesus' name. Over the years, our church family has sponsored over 60 children through this partnership. <br><br>
 Please take time in prayer this coming week to consider whether God might be leading you or your family to sponsor a child next Sunday.
 
 ### New to the Family? Join "The Bridge"
