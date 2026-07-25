@@ -49,7 +49,11 @@ Here are all the words God spoke. He said,
 
 
 ## Sermon Outline <br>
-### What is the Law of God as stated in the Ten Commandments?
+### Circling back to 2 Corinthians 
+- Don’t let go! 
+- Keep going 
+- He’s worthy 
+
 
 
 
