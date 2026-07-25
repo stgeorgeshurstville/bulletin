@@ -14,8 +14,8 @@ order: 1
 ## 4:00pm
 1. All Creatures of Our God and King
 2. Better by Far
-3. His Mercy is More
-4. Yet not I but through Christ in me
+3. Speak O Lord
+4. We belong to the day
 
 ## 9:30am Song Lyrics <br><br>
 
