@@ -9,9 +9,9 @@ title: Welcome
 [comment]: ##### "where the sentence came from, e.g. Psalm 1:1"  
 [comment]: ----------------------------------------------------  
 
-## New City Catechism 
-#### The Lord shows us the path of life; in his presence there is fullness of joy, in his right hand are pleasures of evermore.
-#####  Psalm 16:11
+## Open Hearts
+#### Turn to me, and be gracious to me; for I am lonely and afflicted. Consider my affliction and my trouble, and forgive all my sins.
+#####  Psalm 25:16,18
 
 
 ---
