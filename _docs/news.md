@@ -39,7 +39,7 @@ Please keep an eye out for these new signs as they go up!
 ### 💬 White Horse Inn Forum | Sunday, August 2nd @ 6:00 PM
 Join us in the **Block C Seminar Rooms** for our monthly White Horse Inn forum! This is a relaxed gathering for open, gracious conversation on big topics in the Christian life. <br><br>
 - Details: BYO Dinner.
-- Submit Topics: Have a question or topic you'd like discussed? Submit or vote for ideas on our Slido link ahead of time.
+- Submit Topics: Have a question or topic you'd like discussed? Submit or vote for ideas on our **Slido** link ahead of time.
 
 ### New to the Family? Join "The Bridge"
 If you’ve recently moved into the area or have started making this your home church after moving from another congregation, we’d love to officially welcome you.
