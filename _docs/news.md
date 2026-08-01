@@ -22,7 +22,7 @@ How easy is it to keep our guard up—with each other, and even with God? Starti
 *Join us next Sunday as we begin this journey together!*
 
 ### 🔥 White Horse Inn Forum | Sunday, August 2nd @ 6:00 PM
-Join us for our monthly White Horse Inn forum! We’re moving outdoors this month to gather around an open fire for relaxed, gracious conversation on big topics in the Christian life. <br><br>
+Join us for our monthly White Horse Inn forum! We’re moving outdoors this month to gather around an open fire for relaxed, gracious conversation on big topics in the Christian life. <br>
 - Where: Outside on the artificial grass 
 - Details: BYO Dinner
 - We’ve already got our topic locked in for the night, so just bring your dinner, pull up a seat by the fire, and join the conversation. See you there!
