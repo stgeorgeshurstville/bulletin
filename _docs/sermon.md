@@ -21,21 +21,17 @@ order: 2
 Dear God, thank you for letting us know you. Please help us learn from your word. Help us to serve and praise you. **Amen!**
 
 
-### 2 Corinthians 6:1-13 (NIV)
+### Exodus 34:4-10 (NIV)
 
-¹ As God’s co-workers we urge you not to receive God’s grace in vain. ² For he says,
+⁴ So Moses chiseled out two stone tablets like the first ones and went up Mount Sinai early in the morning, as the Lord had commanded him; and he carried the two stone tablets in his hands. ⁵ Then the Lord came down in the cloud and stood there with him and proclaimed his name, the Lord. ⁶ And he passed in front of Moses, proclaiming, “The Lord, the Lord, the compassionate and gracious God, slow to anger, abounding in love and faithfulness, ⁷ maintaining love to thousands, and forgiving wickedness, rebellion and sin. Yet he does not leave the guilty unpunished; he punishes the children and their children for the sin of the parents to the third and fourth generation.”
 
-“In the time of my favor I heard you,
-and in the day of salvation I helped you.” 
+⁸ Moses bowed to the ground at once and worshiped. ⁹ “Lord,” he said, “if I have found favor in your eyes, then let the Lord go with us. Although this is a stiff-necked people, forgive our wickedness and our sin, and take us as your inheritance.”
 
-I tell you, now is the time of God’s favor, now is the day of salvation.
+¹⁰ Then the Lord said: “I am making a covenant with you. Before all your people I will do wonders never before done in any nation in all the world. The people you live among will see how awesome is the work that I, the Lord, will do for you. 
 
-#### Paul’s Hardships
+### James 1:22-2:5 (NIV) 
 
-³ We put no stumbling block in anyone’s path, so that our ministry will not be discredited. ⁴ Rather, as servants of God we commend ourselves in every way: in great endurance; in troubles, hardships and distresses; ⁵ in beatings, imprisonments and riots; in hard work, sleepless nights and hunger; ⁶ in purity, understanding, patience and kindness; in the Holy Spirit and in sincere love; ⁷ in truthful speech and in the power of God; with weapons of righteousness in the right hand and in the left; ⁸ through glory and dishonor, bad report and good report; genuine, yet regarded as impostors; ⁹ known, yet regarded as unknown; dying, and yet we live on; beaten, and yet not killed; ¹⁰ sorrowful, yet always rejoicing; poor, yet making many rich; having nothing, and yet possessing everything.
-
-¹¹ We have spoken freely to you, Corinthians, and opened wide our hearts to you. ¹² We are not withholding our affection from you, but you are withholding yours from us. ¹³ As a fair exchange—I speak as to my children—open wide your hearts also.
-
+²² Do not merely listen to the word, and so deceive yourselves. Do what it says. ²³ Anyone who listens to the word but does not do what it says is like someone who looks at his face in a mirror ²⁴ and, after looking at himself, goes away and immediately forgets what he looks like. ²⁵ But whoever looks intently into the perfect law that gives freedom, and continues in it—not forgetting what they have heard, but doing it—they will be blessed in what they do.
 
 ## Sermon Outline <br>
 ### Circling back to 2 Corinthians 
