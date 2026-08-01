@@ -10,8 +10,8 @@ title: Welcome
 [comment]: ----------------------------------------------------  
 
 ## Open Hearts
-#### Turn to me, and be gracious to me; for I am lonely and afflicted. Consider my affliction and my trouble, and forgive all my sins.
-#####  Psalm 25:16,18
+#### We put our trust in the steadfast love of the Lord; our heart shall rejoice in his salvation. We will sing to the Lord, because he has dealt bountifully with us.
+#####  Psalm 13: 5-6
 
 
 ---
