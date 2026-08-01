@@ -4,18 +4,18 @@ order: 1
 ---
 
 ## 9:30am 
-1. Grace Awaiting Me
-2. Sinking Deep
-3. Cornerstone
+1. To God be the Glory
+2. Jerusalem
+3. Living Hope
 4. Servants of the Gospel
 
 **Scroll below for 9:30am song lyrics**
 
 ## 4:00pm
-1. All Creatures of Our God and King
-2. Better by Far
-3. Speak O Lord
-4. We belong to the day
+1. Only a Holy God	
+2. Come Behold the Wondrous Mystery
+3. How Can They Hear
+4. Rise with the Sun
 
 ## 9:30am Song Lyrics <br><br>
 
