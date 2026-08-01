@@ -34,10 +34,7 @@ Dear God, thank you for letting us know you. Please help us learn from your word
 ²² Do not merely listen to the word, and so deceive yourselves. Do what it says. ²³ Anyone who listens to the word but does not do what it says is like someone who looks at his face in a mirror ²⁴ and, after looking at himself, goes away and immediately forgets what he looks like. ²⁵ But whoever looks intently into the perfect law that gives freedom, and continues in it—not forgetting what they have heard, but doing it—they will be blessed in what they do.
 
 ## Sermon Outline <br>
-### Circling back to 2 Corinthians 
-- Don’t let go! 
-- Keep going 
-- He’s worthy 
+### 
 
 
 
