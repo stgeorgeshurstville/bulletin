@@ -19,206 +19,172 @@ order: 1
 
 ## 9:30am Song Lyrics <br><br>
 
-### 1. Grace Awaiting Me<br>
-I will see the world to come<br>
-For one has suffered in my place<br>
-Now there is grace awaiting me, awaiting me.<br>
-Judgement's done, atonements made<br>
-The ransom's paid, no guilt remains<br>
-Now there is grace awaiting me, awaiting me<br><br>
- 
-Grace - a welcome from the Father<br>
-Grace - forgiveness full and free<br>
-Grace - that's greater than our failings<br>
-Oh there is grace awaiting me<br><br>
- 
-I take comfort in the hope<br>
- Of the thief upon the cross<br>
-For I am worthy of as little love as he<br>
-Like this man, I won't despair<br>
-For life's ahead, what joy we'll share<br>
-Now there is grace awaiting me, awaiting me<br><br>
- 
-Grace - a welcome from the Father<br>
-Grace - forgiveness full and free<br>
-Grace - that's greater than our failings<br>
-Oh there is grace awaiting me<br><br>
- 
-Jesus you have loved and bought me<br>
-By your death my debts are paid<br>
-I am yours, I stand beside you<br>
-Fearless face the coming day.<br><br>
- 
-I will see the world to come<br>
-Despite the sin that I have done<br>
-For there is grace awaiting me, awaiting me<br>
-All who call upon the Lord<br>
-Will rise to life with peace assured<br>
-For there is grace awaiting me, awaiting me.<br><br>
- 
-Grace - a welcome from the Father<br>
-Grace - forgiveness full and free<br>
-Grace - that's greater than our failings<br>
-Oh there is grace awaiting me<br>
-Oh there is grace awaiting me<br><br>
- 
-© CCLI Song # 7006994 | Philip Percival | Simone Richardson | © 2013 Percival, Philip (Admin. by Philip Gordon Percival) | Richardson, Simone | emumusic.com<br>
+### 1. To God be the Glory<br>
+To God be the glory, great things He hath done,<br>
+so loved He the world that He gave us His Son,<br>
+who yielded His life an atonement for sin,<br>
+and opened the life-gate that all may go in<br><br>
+
+Praise the Lord, praise the Lord,<br>
+let the earth hear His voice!<br>
+Praise the Lord, praise the Lord,<br>
+let the people rejoice!<br>
+O come to the Father through Jesus the Son,<br>
+And give Him the glory, great things He hath done<br><br>
+
+O perfect redemption, the purchase of blood,<br>
+to ev'ry believer the promise of God;<br>
+the vilest offender who truly believes,<br>
+that moment from Jesus a pardon receives<br><br>
+
+Praise the Lord, praise the Lord,<br>
+let the earth hear His voice!<br>
+Praise the Lord, praise the Lord,<br>
+let the people rejoice!<br>
+O come to the Father through Jesus the Son,<br>
+And give Him the glory, great things He hath done<br><br>
+
+Great things He hath taught us, great things He hath done,<br>
+and great our rejoicing through Jesus the Son;<br>
+but purer, and higher, and greater will be<br>
+our wonder, our transport, when Jesus we see<br><br>
+
+Praise the Lord, praise the Lord,<br>
+let the earth hear His voice!<br>
+Praise the Lord, praise the Lord,<br>
+let the people rejoice!<br>
+O come to the Father through Jesus the Son,<br>
+And give Him the glory, great things He hath done<br><br>
+
+And give Him the glory, great things He hath done!<br><br>
+
+Fanny Crosby (1875)<br>
 CCLI 62951 (main copyright licence)<br>
 CCLI 174113 (streaming licence)<br><br>
 
 
-### 2. Sinking Deep<br>
-Standing here in Your presence<br>
-In a grace so relentless<br>
-I am won<br>
-By perfect love<br><br>
- 
-Wrapped within the arms of heaven<br>
-In a peace that lasts forever<br>
-Sinking deep<br>
-In mercy's sea<br><br>
- 
-I'm wide awake<br>
-Drawing close<br>
-Stirred by grace<br>
-And all my heart is Yours<br><br>
- 
-All fear removed<br>
-I breathe You in<br>
-I lean into Your love<br>
-Oh, Your love<br><br>
- 
-When I'm lost You pursue me<br>
-Lift my head to see Your glory<br>
-Lord of all<br>
-So beautiful<br><br>
- 
-Here in You I find shelter<br>
-Captivated by the splendor<br>
-Of Your face<br>
-My secret place<br><br>
- 
-I'm wide awake<br>
-Drawing close<br>
-Stirred by grace<br>
-And all my heart is Yours<br><br>
+### 2. Jerusalem<br>
+Verse 1<br>
+See Him in Jerusalem<br>
+Walking where the crowds are<br>
+Once these streets had sung to Him<br>
+Now they cry for murder<br>
+Such a frail and lonely Man<br>
+Holding up the heavy cross<br>
+See Him walking in Jerusalem<br>
+On the road to save us<br><br>
 
-All fear removed<br>
-I breathe You in<br>
-I lean into Your love<br>
-Oh, Your love<br><br>
- 
-Your love so deep<br>
-Is washing over me<br>
-Your face is all I seek<br>
-You are my everything<br><br>
- 
-Jesus Christ<br>
-You are my one desire<br>
-Lord hear my only cry<br>
-To know You all my life<br><br>
- 
-Love so deep<br>
-Is washing over me<br>
-Your face is all I seek<br>
-You are my everything<br><br>
- 
-Jesus Christ<br>
-You are my one desire<br>
-Lord hear my only cry<br>
-To know You all my life<br><br>
- 
-I'm wide awake<br>
-Drawing close<br>
-Stirred by grace<br>
-And all my heart is Yours<br><br>
- 
-All fear removed<br>
-I breathe You in<br>
-I lean into Your love<br>
-Oh, Your love<br><br>
- 
-Love so deep<br>
-Is washing over me<br>
-Your face is all I seek<br>
-You are my everything<br><br>
- 
-Jesus Christ<br>
-You are my one desire<br>
-Lord hear my only cry<br>
-To know You all my life<br><br>
- 
-Love so deep<br>
-Is washing over me<br>
-Your face is all I seek<br>
-You are my everything<br><br>
- 
-Jesus Christ<br>
-You are my one desire<br>
-Lord hear my only cry<br>
-To know You all my life<br><br>
- 
-@ 2013 Hillsong, Young & Free album <br>
+Verse 2<br>
+See Him there upon the hill<br>
+Hear the scorn and laughter<br>
+Silent as a lamb He waits<br>
+Praying to the Father<br>
+See the King who made the sun<br>
+And the moon and shining stars<br>
+Let the soldiers hold and nail Him down<br>
+So that He could save them<br><br>
+
+Verse 3<br>
+See Him there upon the cross<br>
+Now no longer breathing<br>
+Dust that formed the watching crowds<br>
+Takes the blood of Jesus<br>
+Feel the earth is shaking now<br>
+See the veil is split in two<br>
+And He stood before the wrath of God<br>
+Shielding sinners with His blood<br><br>
+
+Verse 4<br>
+See the empty tomb today<br>
+Death could not contain Him<br>
+Once the Servant of the world<br>
+Now in victory reigning<br>
+Lift your voices to the One<br>
+Who is seated on the throne<br>
+See Him in the New Jerusalem<br>
+Praise the One who saved us<br><br>
+
+Lift your voices to the One<br>
+Who is seated on the throne<br>
+See Him in the New Jerusalem<br>
+Praise the One who saved us<br>
+Praise the One who saved us!<br><br>
+
+
+CityAlight ‧ 2015; Jonny Robinson, Rich Thompson, Tiarne Kleyn<br>
 CCLI 62951 (main copyright licence)<br>
-CCLI 174113 (streaming licence) <br>
-<br>
+CCLI 174113 (streaming licence) <br><br>
 
 
-### 3.  Cornerstone <br>
-My hope is built on nothing less<br>
-Than Jesus blood and righteousness<br>
-I dare not trust the sweetest frame<br>
-But wholly trust in Jesus name<br>
-My hope is built on nothing less<br>
-Than Jesus blood and righteousness<br>
-I dare not trust the sweetest frame<br>
-But wholly trust in Jesus name<br><br>
- 
-Christ alone, Cornerstone<br>
-Weak made strong in the Saviour's love<br>
-Through the storm, He is Lord<br>
-Lord of all<br><br>
- 
-When darkness seems to hide His face<br>
-I rest on His unchanging grace<br>
-In every high and stormy gale<br>
-My anchor holds within the veil<br>
-My anchor holds within the veil<br><br>
- 
-Christ alone, Cornerstone<br>
-Weak made strong in the Saviour's love<br>
-Through the storm, He is Lord<br>
-Lord of all<br>
-He is Lord, Lord of all<br><br>
- 
-Christ alone, Cornerstone<br>
-Weak made strong in the Saviour's love<br>
-Through the storm, He is Lord<br>
-Lord of all<br><br>
- 
-Christ alone, Cornerstone<br>
-Weak made strong in the Saviour's love<br>
-Through the storm, He is Lord<br>
-Lord of all<br><br>
- 
-When He shall come with trumpet sound<br>
-Oh may I then in Him be found<br>
-Dressed in His righteousness alone<br>
-Faultless stand before the throne<br><br>
- 
-Christ alone, Cornerstone<br>
-Weak made strong in the Saviour's love<br>
-Through the storm, He is Lord<br>
-Lord of all<br><br>
- 
-Christ alone, Cornerstone<br>
-Weak made strong in the Saviour's love<br>
-Through the storm, He is Lord<br>
-Lord of all<br><br>
- 
- 
-@ 2012 Hillsong worship | Reuben Morgan, Andrew Crawford <br>
-CCLI 62951 (main copyright licence)<br><br>
+
+### 3. Living Hope <br>
+Verse 1<br>
+How great the chasm that lay between us<br>
+How high the mountain I could not climb<br>
+In desperation, I turned to heaven<br>
+And spoke Your name into the night<br>
+Then through the darkness, Your loving kindness<br>
+Tore through the shadows of my soul<br>
+The work is ﬁnished, the end is written<br>
+Jesus Christ, my living hope<br><br>
+
+Verse 2<br>
+Who could imagine, so great a mercy?<br>
+What heart could fathom such boundless grace?<br>
+The God of ages stepped down from glory<br>
+To wear my sin and bear my shame<br>
+The cross has spoken, I am forgiven<br>
+The King of kings calls me His own<br>
+Beautiful Savior, I'm Yours forever<br>
+Jesus Christ, my living hope<br><br>
+
+Chorus<br>
+Hallelujah, praise the One who set me free<br>
+Hallelujah, death has lost its grip on me<br>
+You have broken every chain<br>
+There's salvation in Your name<br>
+Jesus Christ, my living hope<br><br>
+
+Chorus<br>
+Hallelujah, praise the One who set me free<br>
+Hallelujah, death has lost its grip on me<br>
+You have broken every chain<br>
+There's salvation in Your name<br>
+Jesus Christ, my living hope<br><br>
+
+Verse 3<br>
+Then came the morning that sealed the promise<br>
+Your buried body began to breathe<br>
+Out of the silence, the Roaring Lion<br>
+Declared the grave has no claim on me<br><br>
+
+Verse 4<br>
+Then came the morning that sealed the promise<br>
+Your buried body began to breathe<br>
+Out of the silence, the Roaring Lion<br>
+Declared the grave has no claim on me<br>
+Jesus, Yours is the victory!<br><br>
+
+Chorus<br>
+Hallelujah, praise the One who set me free<br>
+Hallelujah, death has lost its grip on me<br>
+You have broken every chain<br>
+There's salvation in Your name<br>
+Jesus Christ, my living hope<br><br>
+
+Chorus<br>
+Hallelujah, praise the One who set me free<br>
+Hallelujah, death has lost its grip on me<br>
+You have broken every chain<br>
+There's salvation in Your name<br>
+Jesus Christ, my living hope<br>
+Jesus Christ, my living hope<br>
+Oh God, You are my living hope<br><br>
+
+
+Phil Wickham, 2018<br>
+CCLI 62951 (main copyright licence)<br>
+CCLI 174113 (streaming licence) <br><br>
 
 
 ### 4. Servants of the Gospel <br>
