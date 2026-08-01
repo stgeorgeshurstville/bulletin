@@ -21,25 +21,11 @@ How easy is it to keep our guard up—with each other, and even with God? Starti
 
 *Join us next Sunday as we begin this journey together!*
 
-### 📢 Compassion Sunday | Sunday, August 2nd
-Next Sunday, we are excited to welcome our friends from **Compassion!** Compassion is an organization that partners with local churches to help release children from poverty in Jesus' name. Over the years, our church family has sponsored over 60 children through this partnership. <br><br>
-Please take time in prayer this coming week to consider whether God might be leading you or your family to sponsor a child next Sunday.
-
-### 🧹 Church Working Bee | Saturday, August 1st (9:00 AM – 12:00 PM)
-Join us this Saturday as we care for our church home! We have a few key spaces on site that need a good clean. Good stewardship of our facility ensures our church remains a welcoming space for effective ministry. <br><br>
-Any amount of time you can give is a huge help. Please sign your name and availability on the clipboard that will be handed around after the service. 
-
-### 🗺️ New Site Signage & Renamed Spaces
-Over the next few weeks, you will notice new directional signage around our property to make navigation easier for visitors and community groups. As part of this update, several key spaces have been renamed: <br><br>
-- Block A: Formerly known as 'The Chapel'
-- Block B: The Hall Area
-- Block C: Ministry Seminar Rooms <br><br>
-Please keep an eye out for these new signs as they go up!
-
-### 💬 White Horse Inn Forum | Sunday, August 2nd @ 6:00 PM
-Join us in the **Block C Seminar Rooms** for our monthly White Horse Inn forum! This is a relaxed gathering for open, gracious conversation on big topics in the Christian life. <br><br>
-- Details: BYO Dinner.
-- Submit Topics: Have a question or topic you'd like discussed? Submit or vote for ideas on our **Slido** link ahead of time.
+### 🔥 White Horse Inn Forum | Sunday, August 2nd @ 6:00 PM
+Join us for our monthly White Horse Inn forum! We’re moving outdoors this month to gather around an open fire for relaxed, gracious conversation on big topics in the Christian life. <br><br>
+- Where: Outside on the artificial grass 
+- Details: BYO Dinner
+- We’ve already got our topic locked in for the night, so just bring your dinner, pull up a seat by the fire, and join the conversation. See you there!
 
 ### New to the Family? Join "The Bridge"
 If you’ve recently moved into the area or have started making this your home church after moving from another congregation, we’d love to officially welcome you.
