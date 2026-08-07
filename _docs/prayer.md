@@ -4,7 +4,7 @@ order: 4
 ---
 
 ## Collect
-Almighty God, whose never-failing providence governs all things in heaven and earth: we humbly ask you to put away from us all hurtful things, and give us whatever may be profitable for us through Jesus Christ our Lord. Amen.
+Let your merciful ears, Lord God, be open to the prayers of your people; and so that they may obtain their petitions, make them to ask such things as will please you; through Jesus Christ our Lord. Amen.
 
 ## Week A
 
