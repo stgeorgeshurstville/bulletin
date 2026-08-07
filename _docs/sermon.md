@@ -21,18 +21,30 @@ order: 2
 Dear God, thank you for letting us know you. Please help us learn from your word. Help us to serve and praise you. **Amen!**
 
 
-### Exodus 34:4-10 (NIV)
+### 2 Corintians 6:14-7:1 (NIV)
 
-⁴ So Moses chiseled out two stone tablets like the first ones and went up Mount Sinai early in the morning, as the Lord had commanded him; and he carried the two stone tablets in his hands. ⁵ Then the Lord came down in the cloud and stood there with him and proclaimed his name, the Lord. ⁶ And he passed in front of Moses, proclaiming, “The Lord, the Lord, the compassionate and gracious God, slow to anger, abounding in love and faithfulness, ⁷ maintaining love to thousands, and forgiving wickedness, rebellion and sin. Yet he does not leave the guilty unpunished; he punishes the children and their children for the sin of the parents to the third and fourth generation.”
+¹⁴ Do not be yoked together with unbelievers. For what do righteousness and wickedness have in common? Or what fellowship can light have with darkness? ¹⁵ What harmony is there between Christ and Belial ? Or what does a believer have in common with an unbeliever? ¹⁶ What agreement is there between the temple of God and idols? For we are the temple of the living God. As God has said:
 
-⁸ Moses bowed to the ground at once and worshiped. ⁹ “Lord,” he said, “if I have found favor in your eyes, then let the Lord go with us. Although this is a stiff-necked people, forgive our wickedness and our sin, and take us as your inheritance.”
+“I will live with them
+and walk among them,
+and I will be their God,
+and they will be my people.” 
 
-¹⁰ Then the Lord said: “I am making a covenant with you. Before all your people I will do wonders never before done in any nation in all the world. The people you live among will see how awesome is the work that I, the Lord, will do for you. 
+¹⁷ Therefore,
 
-### James 1:22-2:5 (NIV) 
+“Come out from them
+and be separate,
+says the Lord.
+Touch no unclean thing,
+and I will receive you.” 
 
-²² Do not merely listen to the word, and so deceive yourselves. Do what it says. ²³ Anyone who listens to the word but does not do what it says is like someone who looks at his face in a mirror ²⁴ and, after looking at himself, goes away and immediately forgets what he looks like. ²⁵ But whoever looks intently into the perfect law that gives freedom, and continues in it—not forgetting what they have heard, but doing it—they will be blessed in what they do.
+¹⁸ And,
 
+“I will be a Father to you,
+and you will be my sons and daughters,
+says the Lord Almighty.” 
+
+**7**¹ Therefore, since we have these promises, dear friends, let us purify ourselves from everything that contaminates body and spirit, perfecting holiness out of reverence for God.
 ## Sermon Outline <br>
 ### 
 
