@@ -19,8 +19,6 @@ Brian will be on long service leave starting this coming Monday, returning on Se
 
 We live in a world of infinite connection. We can reach anyone, search anything, and share our lives with hundreds of people at the tap of a screen.<br>Yet, there is a quiet ache so many of us feel. We are highly visible, but deeply unseen. We spend so much time curating our profiles—putting on a mask to make sure we look okay to the world—while worrying that if people saw who we really are behind the screen, they might walk away.<br>Real peace doesn't come from being liked by a crowd. It comes from being known.<br>On September 5th, we are hosting a music night called KNOWN. It's a night of praise and worship in which we celebrate God seeing our true selves—knowing us completely, and yet still loving us.<br>Whether you are a long-time member of our community, a skeptic, or simply someone looking for a space to breathe and enjoy live music, you are entirely welcome here. You don't have to perform or pretend. Come and experience what it is to be seen and not rejected.
 
-
-
 ### New Bible Series: 'Open Hearts'
 
 **The Radical Call of 2 Corinthians 6–13** <br>
