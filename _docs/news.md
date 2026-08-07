@@ -11,6 +11,16 @@ order: 5
 
 ## General
 
+### Long Service Leave
+
+Brian will be on long service leave starting this coming Monday, returning on September 14th. Please be in prayer for him during this time—that his time away from ministry will be deeply refreshing as he takes a well-deserved break. If you need any assistance while Brian is away, please don't hesitate to contact Ben on 0431 978 673 
+ 
+### KNOWN: Seen and not rejected
+
+We live in a world of infinite connection. We can reach anyone, search anything, and share our lives with hundreds of people at the tap of a screen.<br>Yet, there is a quiet ache so many of us feel. We are highly visible, but deeply unseen. We spend so much time curating our profiles—putting on a mask to make sure we look okay to the world—while worrying that if people saw who we really are behind the screen, they might walk away.<br>Real peace doesn't come from being liked by a crowd. It comes from being known.<br>On September 5th, we are hosting a music night called KNOWN. It's a night of praise and worship in which we celebrate God seeing our true selves—knowing us completely, and yet still loving us.<br>Whether you are a long-time member of our community, a skeptic, or simply someone looking for a space to breathe and enjoy live music, you are entirely welcome here. You don't have to perform or pretend. Come and experience what it is to be seen and not rejected.
+
+
+
 ### New Bible Series: 'Open Hearts'
 
 **The Radical Call of 2 Corinthians 6–13** <br>
@@ -20,12 +30,6 @@ order: 5
 How easy is it to keep our guard up—with each other, and even with God? Starting next Sunday and running throughout Term 3, we are diving into a new teaching series through the latter half of Paul’s second letter to the Corinthians. In this series, we will explore Paul's raw, vulnerable appeal to the church. Just as he poured out his life to them, he asks them to receive his message with that same open-hearted trust. Over the coming weeks, our hope is that we will lay down our defenses, open our hearts to God and his message, and allow our lives to be fully transformed by the radical grace of the gospel.<br> 
 
 *Join us next Sunday as we begin this journey together!*
-
-### 🔥 White Horse Inn Forum | Sunday, August 2nd @ 6:00 PM
-Join us for our monthly White Horse Inn forum! We’re moving outdoors this month to gather around an open fire for relaxed, gracious conversation on big topics in the Christian life. <br>
-- Where: Outside on the artificial grass 
-- Details: BYO Dinner
-- We’ve already got our topic locked in for the night, so just bring your dinner, pull up a seat by the fire, and join the conversation. See you there!
 
 ### New to the Family? Join "The Bridge"
 If you’ve recently moved into the area or have started making this your home church after moving from another congregation, we’d love to officially welcome you.
