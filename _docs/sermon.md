@@ -46,7 +46,9 @@ Dear God, thank you for letting us know you. Please help us learn from your word
 
 **7**¹ Therefore, since we have these promises, dear friends, let us purify ourselves from everything that contaminates body and spirit, perfecting holiness out of reverence for God.
 ## Sermon Outline <br>
-### 
+- **The Danger**: Being a windchime
+- **The Promise**: A sandwich
+- **The Action**: A bar of soap
 
 
 
