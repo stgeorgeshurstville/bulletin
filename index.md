@@ -10,8 +10,7 @@ title: Welcome
 [comment]: ----------------------------------------------------  
 
 ## Open Hearts
-#### Lord, be a rock of refuge for me, a strong fortress to save me; for your Name’s sake lead me and guide me.
-##### Psalm 31:2-3
+#### All that you have done to us, Lord, you have done in true judgement; for we have sinned in all things and have not obeyed your commandments; give glory to your Name, O Lord, and deal with us in your forbearance. Song of the Three Young Men 8,17,20,19, RSV
 
 
 ---
