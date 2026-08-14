@@ -5,8 +5,8 @@ order: 1
 
 ## 9:30am 
 1. His Mercy is More
-2. N/A
-3. Behold the Throne of God Above 
+2. Behold the Throne of God Above
+3. Yet Not I but Through Christ in Me
 4. His Glory is My Good
 
 **Scroll below for 9:30am song lyrics**
@@ -61,7 +61,7 @@ order: 1
 
 
 
-### Song 3  (9:30am): Behold the Throne of God Above
+### Song 2  (9:30am): Behold the Throne of God Above
 
 <br>Before the throne of God above
 <br>I have a strong and perfect plea
@@ -98,6 +98,60 @@ order: 1
 <br>CCLI 174113 (streaming licence) <br>
  
 
+### Song 3  (9:30am): Yet Not I but Through Christ in Me
+
+<br>What gift of grace is Jesus my redeemer
+<br>There is no more for heaven now to give
+<br>He is my joy, my righteousness, and freedom
+<br>My steadfast love, my deep and boundless peace
+ 
+<br>To this I hold, my hope is only Jesus
+<br>For my life is wholly bound to his
+<br>Oh how strange and divine, I can sing: all is mine!
+<br>Yet not I, but through Christ in me
+ 
+<br>The night is dark but I am not forsaken
+<br>For by my side, the Saviour He will stay
+<br>I labour on in weakness and rejoicing
+<br>For in my need, His power is displayed
+ 
+<br>To this I hold, my Shepherd will defend me
+<br>Through the deepest valley He will lead
+<br>Oh the night has been won, and I shall overcome!
+<br>Yet not I, but through Christ in me
+ 
+<br>No fate I dread, I know I am forgiven
+<br>The future sure, the price it has been paid
+<br>For Jesus bled and suffered for my pardon
+<br>And He was raised to overthrow the grave
+ 
+<br>To this I hold, my sin has been defeated
+<br>Jesus now and ever is my plea
+<br>Oh the chains are released, I can sing: I am free!
+<br>Yet not I, but through Christ in me
+ 
+<br>With every breath I long to follow Jesus
+<br>For He has said that He will bring me home
+<br>And day by day I know He will renew me
+<br>Until I stand with joy before the throne
+ 
+<br>To this I hold, my hope is only Jesus
+<br>All the glory evermore to Him
+<br>When the race is complete, still my lips shall repeat:
+<br>Yet not I, but through Christ in me!
+ 
+<br>To this I hold, my hope is only Jesus
+<br>All the glory evermore to Him
+<br>When the race is complete, still my lips shall repeat:
+<br>Yet not I, but through Christ in me!
+<br>When the race is complete, still my lips shall repeat:
+<br>Yet not I, but through Christ in me!
+<br>Yet not I, but through Christ in me!
+<br>Yet not I, but through Christ in me!
+ 
+<br>© 2018 CityAlight Music CCLI #7121852
+<br>CCLI 62951 (main copyright licence)
+<br>CCLI 174113 (streaming licence) 
 
 
 ### Song 4 (9:30am): His Glory is My Good
