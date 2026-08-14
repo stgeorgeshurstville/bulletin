@@ -55,7 +55,7 @@ order: 1
  
 <br>© 2018 Publishing, Getty Music Publishing, Getty Music Hymns And Songs
 <br>CCLI 62951 (main copyright licence)
-<br>CCLI 174113 (streaming licence)
+<br>CCLI 174113 (streaming licence)<br>
 
 
 
@@ -95,7 +95,7 @@ order: 1
  
 <br>CCLI: #2306412 @ 1997 Sovereign Grace Music
 <br>CCLI 62951 (main copyright licence)
-<br>CCLI 174113 (streaming licence) 
+<br>CCLI 174113 (streaming licence) <br>
  
 
 
