@@ -4,9 +4,9 @@ order: 4
 ---
 
 ## Collect
-Let your merciful ears, Lord God, be open to the prayers of your people; and so that they may obtain their petitions, make them to ask such things as will please you; through Jesus Christ our Lord. Amen.
+Lord God, you declare your almighty power chiefly in showing mercy and pity: grant us such a measure of your grace that, running in the way of your commandments, we may obtain your promises, and share in heavenly treasure; through Jesus Christ our Lord. Amen.
 
-## Week A
+## Week B
 
 | **Section** | **Content** |
 |--------------|-------------|
