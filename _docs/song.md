@@ -59,7 +59,8 @@ order: 1
 
 
 
-<br>
+
+
 ### Song 3  (9:30am): Behold the Throne of God Above
 
 <br>Before the throne of God above
@@ -97,7 +98,8 @@ order: 1
 <br>CCLI 174113 (streaming licence) 
  
 
-<br>
+
+
 ### Song 4 (9:30am): His Glory is My Good
 <br>I have seen my Father's glory
 <br>Revealed in Jesus Christ
