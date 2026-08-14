@@ -99,4 +99,70 @@ order: 1
 
 
 ### Song 4 (9:30am): His Glory is My Good
+<br>I have seen my Father's glory
+<br>Revealed in Jesus Christ
+<br>And the more that I behold Him
+<br>The more He satisfies
+<br>When I gaze upon His beauty
+<br>When I see Him as I should
+<br>Then my eyes are lifted upward
+<br>For His glory and my good
+ 
+<br>There is hope in every trial
+<br>For I can trust the Lord
+<br>He will turn my heart towards Him
+<br>And help me bear the thorn
+<br>So in faith I follow Jesus
+<br>On the road not understood
+<br>For I know that He is working
+<br>For His glory and my good
+ 
+<br>To our God be the glory
+<br>To our God be praise
+<br>He alone, the name above all names
+<br>I will boast ever only in the Lord my God
+<br>For I know His glory is my good
+ 
+<br>See the open arms of Jesus
+<br>Upon the cross that day
+<br>What they understood as weakness
+<br>Deserves my every praise
+<br>For the charge that was against me
+<br>It was nailed into the wood
+<br>Yes I know that He has saved me
+<br>For His glory and my good
+ 
+<br>To our God be the glory
+<br>To our God be praise
+<br>He alone, the name above all names
+<br>I will boast ever only in the Lord my God
+<br>For I know His glory is my good
+ 
+<br>Would I gladly be made nothing
+<br>That Christ would be made more
+<br>Would I seek the only kingdom
+<br>That far outweighs them all
+<br>I will stand before my Father
+<br>Where the faithful saints have stood
+<br>And with joy my heart shall praise Him
+<br>For His glory and my good
+
+<br>And with joy my heart shall praise Him
+<br>For His glory and my good
+<br>To our God be the glory
+<br>To our God be praise
+<br>He alone, the name above all names
+<br>I will boast ever only in the Lord my God
+<br>For I know His glory is my good
+ 
+<br>To our God be the glory
+<br>To our God be praise
+<br>He alone, the name above all names
+<br>I will boast ever only in the Lord my God
+<br>For I know His glory is my good
+<br>Yes I know His glory is my good
+ 
+<br>© Integrity Music, 2024 City Alight
+<br>CCLI 62951 (main copyright licence)
+<br>CCLI 174113 (streaming licence)
 
