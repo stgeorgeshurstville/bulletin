@@ -4,10 +4,10 @@ order: 1
 ---
 
 ## 9:30am 
-1. His Mercy is More
+1. Have Mercy on Me
 2. Behold the Throne of God Above
 3. Yet Not I but Through Christ in Me
-4. His Glory is My Good
+4. All Glory Be to Christ
 
 **Scroll below for 9:30am song lyrics**
 
@@ -19,43 +19,44 @@ order: 1
 
 ## 9:30am Song Lyrics <br>
 
-### Song 1 (9:30am): His Mercy is More
+### Song 1 (9:30am): Have Mercy on Me
 
-<br>What love could remember no wrongs we have done
-<br>Omniscient, all knowing, He counts not their sum
-<br>Thrown into a sea without bottom or shore
-<br>Our sins they are many, His mercy is more
+<br>I am a sinner; You’re blameless, Lord
+<br>My sins against You can’t be ignored
+<br>They will be punished, I know they must
+<br>Your law demands it, for You are just
  
-<br>Praise the Lord, His mercy is more
-<br>Stronger than darkness, new every morn
-<br>Our sins they are many, His mercy is more
+<br>If You would count
+<br>Everything that I’ve done wrong
+<br>Who could stand?
+<br>But there’s forgiveness with You, God
  
-<br>What patience would wait as we constantly roam
-<br>What Father, so tender, is calling us home
-<br>He welcomes the weakest, the vilest, the poor
-<br>Our sins they are many, His mercy is more
+<br>Have mercy on me, have mercy on me
+<br>A broken and a contrite heart
+<br>You won’t turn away
+<br>Have mercy on me, have mercy on me
+<br>Because of Your steadfast love
  
-<br>Praise the Lord, His mercy is more
-<br>Stronger than darkness, new every morn
-<br>Our sins they are many, His mercy is more
+<br>Father of mercy, You gave Your Son
+<br>To make atonement for wrongs I have done
+<br>What You required, Jesus fulfilled
+<br>I don’t deserve it— I never will
  
-<br>What riches of kindness He lavished on us
-<br>His blood was the payment, His life was the cost
-<br>We stood 'neath a debt we could never afford
-<br>Our sins they are many, His mercy is more
+<br>If You would count
+<br>Everything that I’ve done wrong
+<br>Who could stand?
+<br>But there’s forgiveness with You, God
  
-<br>Praise the Lord, His mercy is more
-<br>Stronger than darkness, new every morn
-<br>Our sins they are many, His mercy is more
+<br>Have mercy on me, have mercy on me
+<br>A broken and a contrite heart
+<br>You won’t turn away
+<br>Have mercy on me, have mercy on me
+<br>Because of Your steadfast love
  
-<br>Praise the Lord, His mercy is more
-<br>Stronger than darkness, new every morn
-<br>Our sins they are many, His mercy is more
-<br>Our sins they are many, His mercy is mоre
- 
-<br>© 2018 Publishing, Getty Music Publishing, Getty Music Hymns And Songs
+<br>© 2011 Sovereign Grace Praise/BMI, Sovereign Grace Worship
 <br>CCLI 62951 (main copyright licence)
-<br>CCLI 174113 (streaming licence)<br>
+<br>CCLI 174113 (streaming licence)
+
 
 
 
@@ -154,71 +155,59 @@ order: 1
 <br>CCLI 174113 (streaming licence) 
 
 
-### Song 4 (9:30am): His Glory is My Good
-<br>I have seen my Father's glory
-<br>Revealed in Jesus Christ
-<br>And the more that I behold Him
-<br>The more He satisfies
-<br>When I gaze upon His beauty
-<br>When I see Him as I should
-<br>Then my eyes are lifted upward
-<br>For His glory and my good
+### Song 4 (9:30am): All Glory Be to Christ
+<br>Should nothing of our efforts stand
+<br>No legacy survive
+<br>Unless the Lord does raise the house
+<br>In vain it's builders strive
  
-<br>There is hope in every trial
-<br>For I can trust the Lord
-<br>He will turn my heart towards Him
-<br>And help me bear the thorn
-<br>So in faith I follow Jesus
-<br>On the road not understood
-<br>For I know that He is working
-<br>For His glory and my good
+<br>To you who boast tomorrow's gain
+<br>Tell me, What is your life?
+<br>A mist that vanishes at dawn
+<br>All glory be to Christ!
  
-<br>To our God be the glory
-<br>To our God be praise
-<br>He alone, the name above all names
-<br>I will boast ever only in the Lord my God
-<br>For I know His glory is my good
+<br>All glory be to Christ our king!
+<br>All glory be to Christ!
+<br>His rule and reign we'll ever sing
+<br>All glory be to Christ!
  
-<br>See the open arms of Jesus
-<br>Upon the cross that day
-<br>What they understood as weakness
-<br>Deserves my every praise
-<br>For the charge that was against me
-<br>It was nailed into the wood
-<br>Yes I know that He has saved me
-<br>For His glory and my good
+<br>His will be done, His kingdom come
+<br>On earth as is above
+<br>Who is Himself our daily bread
+<br>Praise Him, the Lord of love
  
-<br>To our God be the glory
-<br>To our God be praise
-<br>He alone, the name above all names
-<br>I will boast ever only in the Lord my God
-<br>For I know His glory is my good
+<br>Let living water satisfy
+<br>The thirsty without price
+<br>We'll take a cup of kindness yet
+<br>All glory be to Christ!
  
-<br>Would I gladly be made nothing
-<br>That Christ would be made more
-<br>Would I seek the only kingdom
-<br>That far outweighs them all
-<br>I will stand before my Father
-<br>Where the faithful saints have stood
-<br>And with joy my heart shall praise Him
-<br>For His glory and my good
+<br>All glory be to Christ our king!
+<br>All glory be to Christ!
+<br>His rule and reign we'll ever sing
+<br>All glory be to Christ!
+ 
+<br>When on the day the great I Am
+<br>The faithful and the true
+<br>The Lamb who was for sinners slain
+<br>Is making all things new
+ 
+<br>Behold our God shall live with us
+<br>And be our steadfast light
+<br>And we shall e'er his people be
+<br>All glory be to Christ!
+ 
+<br>All glory be to Christ our king!
+<br>All glory be to Christ!
+<br>His rule and reign we'll ever sing
+<br>All glory be to Christ!
+ 
+<br>All glory be to Christ our king!
+<br>All glory be to Christ!
+<br>His rule and reign we'll ever sing
+<br>All glory be to Christ!
 
-<br>And with joy my heart shall praise Him
-<br>For His glory and my good
-<br>To our God be the glory
-<br>To our God be praise
-<br>He alone, the name above all names
-<br>I will boast ever only in the Lord my God
-<br>For I know His glory is my good
- 
-<br>To our God be the glory
-<br>To our God be praise
-<br>He alone, the name above all names
-<br>I will boast ever only in the Lord my God
-<br>For I know His glory is my good
-<br>Yes I know His glory is my good
- 
-<br>© Integrity Music, 2024 City Alight
+<br>Words: Dustin Kensrue. Music: Auld Lang Syne - Scottish traditional. © 2012 We Are Younger We Are Faster (ASCAP)/Dead Bird Theology (ASCAP) (adm. by Music Services) CCLI song 7008232
 <br>CCLI 62951 (main copyright licence)
 <br>CCLI 174113 (streaming licence)
+
 
