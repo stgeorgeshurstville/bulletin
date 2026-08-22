@@ -10,8 +10,8 @@ title: Welcome
 [comment]: ----------------------------------------------------  
 
 ## Open Hearts
-#### All that you have done to us, Lord, you have done in true judgement; for we have sinned in all things and have not obeyed your commandments; give glory to your Name, O Lord, and deal with us in your forbearance. Song of the Three Young Men 8,17,20,19, RSV
-
+#### Be gracious to me, O Lord, for to you do I cry all the day long. You, O Lord, are good and forgiving, abounding in steadfast love to all who call on you.
+##### Psalm 86: 3,5
 
 ---
 - We are gathering in person! For people who can’t gather in person, you can watch online [here](https://stgeorgeshurstville.org.au/sunday-english-online)
