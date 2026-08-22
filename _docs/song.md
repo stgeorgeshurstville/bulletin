@@ -163,59 +163,43 @@ CCLI 174113 (streaming licence) <br><br>
 <br>CCLI 174113 (streaming licence) 
 
 
-### Song 4 (9:30am): All Glory Be to Christ
-<br>Should nothing of our efforts stand
-<br>No legacy survive
-<br>Unless the Lord does raise the house
-<br>In vain it's builders strive
- 
-<br>To you who boast tomorrow's gain
-<br>Tell me, What is your life?
-<br>A mist that vanishes at dawn
-<br>All glory be to Christ!
- 
-<br>All glory be to Christ our king!
-<br>All glory be to Christ!
-<br>His rule and reign we'll ever sing
-<br>All glory be to Christ!
- 
-<br>His will be done, His kingdom come
-<br>On earth as is above
-<br>Who is Himself our daily bread
-<br>Praise Him, the Lord of love
- 
-<br>Let living water satisfy
-<br>The thirsty without price
-<br>We'll take a cup of kindness yet
-<br>All glory be to Christ!
- 
-<br>All glory be to Christ our king!
-<br>All glory be to Christ!
-<br>His rule and reign we'll ever sing
-<br>All glory be to Christ!
- 
-<br>When on the day the great I Am
-<br>The faithful and the true
-<br>The Lamb who was for sinners slain
-<br>Is making all things new
- 
-<br>Behold our God shall live with us
-<br>And be our steadfast light
-<br>And we shall e'er his people be
-<br>All glory be to Christ!
- 
-<br>All glory be to Christ our king!
-<br>All glory be to Christ!
-<br>His rule and reign we'll ever sing
-<br>All glory be to Christ!
- 
-<br>All glory be to Christ our king!
-<br>All glory be to Christ!
-<br>His rule and reign we'll ever sing
-<br>All glory be to Christ!
+### Song 4 (9:30am): O breath of life
 
-<br>Words: Dustin Kensrue. Music: Auld Lang Syne - Scottish traditional. © 2012 We Are Younger We Are Faster (ASCAP)/Dead Bird Theology (ASCAP) (adm. by Music Services) CCLI song 7008232
-<br>CCLI 62951 (main copyright licence)
-<br>CCLI 174113 (streaming licence)
+O Breath of Life come sweeping through us<br>
+Revive Your church with life and power<br>
+O Breath of Life come cleanse renew us<br>
+And fit Your church to meet this hour<br><br>
 
+O Breath of Love come breathe within<br>
+Renewing thought and will and heart<br>
+Come love of Christ afresh to win<br>
+Revive Your church in every part<br><br>
 
+O Wind of God come bend us break us<br>
+Till humbly we confess our need<br>
+Then in Your tenderness remake us<br>
+Revive restore for this we plead<br><br>
+
+O Breath of Love come breathe within<br>
+Renewing thought and will and heart<br>
+Come love of Christ afresh to win<br>
+Revive Your church in every part<br><br>
+
+Revive us Lord is zeal abating<br>
+While harvest fields are vast and ripe<br>
+Revive us Lord the world is waiting<br>
+Equip Your church to spread the light<br><br>
+
+O Breath of Love come breathe within<br>
+Renewing thought and will and heart<br>
+Come love of Christ afresh to win<br>
+Revive Your church in every part<br><br>
+
+O Breath of Love come breathe within<br>
+Renewing thought and will and heart<br>
+Come love of Christ afresh to win<br>
+Revive Your church in every part<br><br>
+
+— © Words: Elizabeth Ann Porter Head - Public Domain Music: 2009 Hodge, Trevor<br>
+CCLI 62951 (main copyright licence)<br>
+CCLI 174113 (streaming licence)<br>
