@@ -4,100 +4,108 @@ order: 1
 ---
 
 ## 9:30am 
-1. Have Mercy on Me
-2. Behold the Throne of God Above
+1. Good & Gracious King
+2. Amazing Grace (My Chains Are Gone)
 3. Yet Not I but Through Christ in Me
-4. All Glory Be to Christ
+4. The Servant King
 
 **Scroll below for 9:30am song lyrics**
 
 ## 4:00pm
-1. Here we stand
-2. Jesus Strong and Kind 
-3. We are One
-4. Rock of Ages
+1. All Creatures of Our God and King	
+2. Come Behold the Wondrous Mystery
+3. O breath of life
+4. We are One
 
 ## 9:30am Song Lyrics <br>
 
-### Song 1 (9:30am): Have Mercy on Me
+### Song 1 (9:30am): Good & Gracious King
 
-<br>I am a sinner; You’re blameless, Lord
-<br>My sins against You can’t be ignored
-<br>They will be punished, I know they must
-<br>Your law demands it, for You are just
- 
-<br>If You would count
-<br>Everything that I’ve done wrong
-<br>Who could stand?
-<br>But there’s forgiveness with You, God
- 
-<br>Have mercy on me, have mercy on me
-<br>A broken and a contrite heart
-<br>You won’t turn away
-<br>Have mercy on me, have mercy on me
-<br>Because of Your steadfast love
- 
-<br>Father of mercy, You gave Your Son
-<br>To make atonement for wrongs I have done
-<br>What You required, Jesus fulfilled
-<br>I don’t deserve it— I never will
- 
-<br>If You would count
-<br>Everything that I’ve done wrong
-<br>Who could stand?
-<br>But there’s forgiveness with You, God
- 
-<br>Have mercy on me, have mercy on me
-<br>A broken and a contrite heart
-<br>You won’t turn away
-<br>Have mercy on me, have mercy on me
-<br>Because of Your steadfast love
- 
-<br>© 2011 Sovereign Grace Praise/BMI, Sovereign Grace Worship
-<br>CCLI 62951 (main copyright licence)
-<br>CCLI 174113 (streaming licence)
+I approach the throne of glory<br>
+Nothing in my hands I bring<br>
+But the promise of acceptance<br>
+From a good and gracious King<br><br>
 
+I will give to You my burden<br>
+As You give to me Your strength<br>
+Come and fill me with Your Spirit<br>
+As I sing to You this praise<br><br>
 
+You deserve the greater glory, and overcome, I lift my voice<br>
+To the King in need of nothing, empty handed I rejoice<br>
+You deserve the greater glory, and overcome with joy I sing<br>
+By Your love, I am accepted, 'cause You're a good and gracious King<br><br>
 
+And O what grace that You would see me<br>
+As Your child and as Your friend<br>
+Safe, secure in You forever<br>
+I pour out my praise again<br><br>
 
+'Cause You deserve the greater glory, and overcome, I lift my voice<br>
+To the King in need of nothing, empty handed I rejoice<br>
+'Cause You deserve the greater glory, and overcome with joy I sing<br>
+By Your love, I am accepted, 'cause You're a good and gracious King<br><br>
 
+Holy, holy, Lord Almighty<br>
+Good and gracious, good and gracious<br>
+Holy, holy, Lord Almighty<br>
+Good and gracious King<br>
+Holy, holy, Lord Almighty<br>
+Good and gracious, good and gracious<br>
+Holy, holy, Lord Almighty<br>
+Good and gracious King<br><br>
 
-### Song 2  (9:30am): Behold the Throne of God Above
+You deserve the greater glory, and overcome, I lift my voice<br>
+To the King in need of nothing, empty handed I rejoice<br>
+You deserve the greater glory, and overcome with joy I sing<br>
+By Your love, I am accepted, You're a good and gracious King<br><br>
 
-<br>Before the throne of God above
-<br>I have a strong and perfect plea
-<br>A great High Priest whose name is love
-<br>Who ever lives and pleads for me
-<br>My name is graven on His hands
-<br>My name is written on His heart
-<br>I know that while in heav’n He stands
-<br>No tongue can bid me thence depart
-<br>No tongue can bid me thence depart
+You're a good and gracious King<br><br>
 
-<br>When Satan tempts me to despair
-<br>And tells me of the guilt within
-<br>Upward I look and see Him there
-<br>Who made an end to all my sin
-<br>Because the sinless Savior died
-<br>My sinful soul is counted free
-<br>For God the Just is satisfied
-<br>To look on Him and pardon me
-<br>To look on Him and pardon me
+CCLI 62951 (main copyright licence)<br>
+CCLI 174113 (streaming licence)<br><br>
 
-<br> Behold Him there, the risen Lamb
-<br> My perfect, spotless Righteousness
-<br> The great unchangeable I AM
-<br>The King of glory and of grace
-<br>One with Himself, I cannot die
-<br>My soul is purchased by His blood
-<br>My life is hid with Christ on high
-<br>With Christ my Savior and my God
-<br>With Christ my Savior and my God
- 
-<br>CCLI: #2306412 @ 1997 Sovereign Grace Music
-<br>CCLI 62951 (main copyright licence)
-<br>CCLI 174113 (streaming licence) <br>
- 
+### Song 2  (9:30am): Amazing Grace (My Chains Are Gone)
+
+Amazing grace, how sweet the sound<br>
+That saved a wretch like me<br>
+I once was lost, but now I'm found<br>
+Was blind, but now I see<br><br>
+
+'Twas grace that taught my heart to fear<br>
+And grace my fears relieved<br>
+How precious did that grace appear<br>
+The hour I first believed<br><br>
+
+My chains are gone, I've been set free<br>
+My God, my Savior has ransomed me<br>
+And like a flood His mercy reigns<br>
+Unending love, amazing grace<br><br>
+
+The Lord has promised good to me<br>
+His word my hope secures<br>
+He will my shield and portion be<br>
+As long as life endures<br><br>
+
+My chains are gone, I've been set free<br>
+My God, my Savior has ransomed me<br>
+And like a flood His mercy reigns<br>
+Unending love, amazing grace<br><br>
+
+My chains are gone, I've been set free<br>
+My God, my Savior has ransomed me<br>
+And like a flood His mercy reigns<br>
+Unending love, amazing grace<br><br>
+
+The earth shall soon dissolve like snow<br>
+The sun forbear to shine<br>
+But God who called me here below<br>
+Will be forever mine<br>
+You are forever mine<br><br>
+
+John Newton (1779); Chris Tomlin, Louie Giglio (2007)<br>
+CCLI 62951 (main copyright licence)<br>
+CCLI 174113 (streaming licence) <br><br>
 
 ### Song 3  (9:30am): Yet Not I but Through Christ in Me
 
