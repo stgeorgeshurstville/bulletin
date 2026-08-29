@@ -99,99 +99,84 @@ Copyright © 1866 Public Domain, S.J.Stone<br>
 CCLI 62951 (main copyright licence)<br>
 CCLI 174113 (streaming licence) <br><br>
 
-### Song 3  (9:30am): Yet Not I but Through Christ in Me
+### Song 3 Servants of The Gospel 
 
-<br>What gift of grace is Jesus my redeemer
-<br>There is no more for heaven now to give
-<br>He is my joy, my righteousness, and freedom
-<br>My steadfast love, my deep and boundless peace
+Verse 1<br>
+Though we were undeserving<br>
+ Christ died to wash us clean<br>
+ He bore the Father's anger<br>
+ While nailed upon the tree<br>
+ In darkness and in turmoil<br>
+ The judgment fell on Him<br>
+ Bringing us forgiveness<br>
+ That new life might begin<br><br>
  
-<br>To this I hold, my hope is only Jesus
-<br>For my life is wholly bound to his
-<br>Oh how strange and divine, I can sing: all is mine!
-<br>Yet not I, but through Christ in me
+Chorus:<br>
+As servants of the gospel<br>
+ Christ's work we carry on<br>
+ That through our prayer and witness<br>
+ By grace we might win some<br>
+ We call on every nation<br>
+ To turn to Christ the Lord<br>
+ Refuge in His mercy<br>
+ And marvel at His love<br><br>
  
-<br>The night is dark but I am not forsaken
-<br>For by my side, the Saviour He will stay
-<br>I labour on in weakness and rejoicing
-<br>For in my need, His power is displayed
+Verse 2<br><br>
+ The grave could not contain Him<br>
+ From death the Son broke free<br>
+ Exalted by His Father<br>
+ To rule eternally<br>
+ And in His grace He calls us<br>
+ To be His chosen church<br>
+ As His holy temple<br>
+ His priests to all the earth<br><br>
  
-<br>To this I hold, my Shepherd will defend me
-<br>Through the deepest valley He will lead
-<br>Oh the night has been won, and I shall overcome!
-<br>Yet not I, but through Christ in me
+Verse 3<br>
+ Marked with His Holy Spirit<br>
+ And guided by His word<br>
+ Christ gathers us together<br>
+ Prepares us for good works<br>
+ And so with grace apportioned<br>
+ We serve each other needs<br>
+ Sharing in each blessing<br>
+ And helping in our grief<br><br>
  
-<br>No fate I dread, I know I am forgiven
-<br>The future sure, the price it has been paid
-<br>For Jesus bled and suffered for my pardon
-<br>And He was raised to overthrow the grave
- 
-<br>To this I hold, my sin has been defeated
-<br>Jesus now and ever is my plea
-<br>Oh the chains are released, I can sing: I am free!
-<br>Yet not I, but through Christ in me
- 
-<br>With every breath I long to follow Jesus
-<br>For He has said that He will bring me home
-<br>And day by day I know He will renew me
-<br>Until I stand with joy before the throne
- 
-<br>To this I hold, my hope is only Jesus
-<br>All the glory evermore to Him
-<br>When the race is complete, still my lips shall repeat:
-<br>Yet not I, but through Christ in me!
- 
-<br>To this I hold, my hope is only Jesus
-<br>All the glory evermore to Him
-<br>When the race is complete, still my lips shall repeat:
-<br>Yet not I, but through Christ in me!
-<br>When the race is complete, still my lips shall repeat:
-<br>Yet not I, but through Christ in me!
-<br>Yet not I, but through Christ in me!
-<br>Yet not I, but through Christ in me!
- 
-<br>© 2018 CityAlight Music CCLI #7121852
-<br>CCLI 62951 (main copyright licence)
-<br>CCLI 174113 (streaming licence) 
-
-
-### Song 4 (9:30am): O breath of life
-
-O Breath of Life come sweeping through us<br>
-Revive Your church with life and power<br>
-O Breath of Life come cleanse renew us<br>
-And fit Your church to meet this hour<br><br>
-
-O Breath of Love come breathe within<br>
-Renewing thought and will and heart<br>
-Come love of Christ afresh to win<br>
-Revive Your church in every part<br><br>
-
-O Wind of God come bend us break us<br>
-Till humbly we confess our need<br>
-Then in Your tenderness remake us<br>
-Revive restore for this we plead<br><br>
-
-O Breath of Love come breathe within<br>
-Renewing thought and will and heart<br>
-Come love of Christ afresh to win<br>
-Revive Your church in every part<br><br>
-
-Revive us Lord is zeal abating<br>
-While harvest fields are vast and ripe<br>
-Revive us Lord the world is waiting<br>
-Equip Your church to spread the light<br><br>
-
-O Breath of Love come breathe within<br>
-Renewing thought and will and heart<br>
-Come love of Christ afresh to win<br>
-Revive Your church in every part<br><br>
-
-O Breath of Love come breathe within<br>
-Renewing thought and will and heart<br>
-Come love of Christ afresh to win<br>
-Revive Your church in every part<br><br>
-
-— © Words: Elizabeth Ann Porter Head - Public Domain Music: 2009 Hodge, Trevor<br>
+CCLI Song # 3687240 | © 2002 Bryson Smith, Philip Percival | emumusic.com <br>
 CCLI 62951 (main copyright licence)<br>
-CCLI 174113 (streaming licence)<br>
+CCLI 174113 (streaming licence) <br><br>
+
+
+### Song 4 (9:30am): My Heart is filled with Thankfulness
+
+My heart is filled with thankfulness<br>
+ To Him who bore my pain;<br>
+ Who plumbed the depths of my disgrace<br>
+ And gave me life again.<br>
+ Who crushed my curse of sinfulness,<br>
+ And clothed me with His light,<br>
+ And wrote His law of righteousness<br>
+ With power upon my heart.<br><br>
+ 
+ My heart is filled with thankfulness<br>
+ To Him who walks beside;<br>
+ Who floods my weaknesses with strength<br>
+ And causes fears to fly;<br>
+ Whose every promise is enough<br>
+ For every step I take,<br>
+ Sustaining me with arms of love<br>
+ And crowning me with grace.<br><br>
+ 
+ My heart is filled with thankfulness<br>
+ To Him who reigns above;<br>
+ Whose wisdom is my perfect peace,<br>
+ Whose every thought is love.<br>
+ For every day I have on earth<br>
+ Is given by the King.<br>
+ So I will give my life, my all,<br>
+ To love and follow Him.<br><br>
+
+Stuart Townend & Keith Getty Copyright © 2004 Thankyou Music <br>
+CCLI 62951 (main copyright licence)<br>
+CCLI 174113 (streaming licence)<br><br>
+
+
