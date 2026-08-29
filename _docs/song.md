@@ -4,10 +4,10 @@ order: 1
 ---
 
 ## 9:30am 
-1. Good & Gracious King
-2. Amazing Grace (My Chains Are Gone)
-3. Yet Not I but Through Christ in Me
-4. The Servant King
+1. O Praise The Name (Anastasis)
+2. The Church’s One Foundation
+3. Servants of The Gospel
+4. My Heart is filled with Thankfulness
 
 **Scroll below for 9:30am song lyrics**
 
@@ -19,91 +19,83 @@ order: 1
 
 ## 9:30am Song Lyrics <br>
 
-### Song 1 (9:30am): Good & Gracious King
+### Song 1 (9:30am): O Praise The Name (Anastasis)
 
-I approach the throne of glory<br>
-Nothing in my hands I bring<br>
-But the promise of acceptance<br>
-From a good and gracious King<br><br>
-
-I will give to You my burden<br>
-As You give to me Your strength<br>
-Come and fill me with Your Spirit<br>
-As I sing to You this praise<br><br>
-
-You deserve the greater glory, and overcome, I lift my voice<br>
-To the King in need of nothing, empty handed I rejoice<br>
-You deserve the greater glory, and overcome with joy I sing<br>
-By Your love, I am accepted, 'cause You're a good and gracious King<br><br>
-
-And O what grace that You would see me<br>
-As Your child and as Your friend<br>
-Safe, secure in You forever<br>
-I pour out my praise again<br><br>
-
-'Cause You deserve the greater glory, and overcome, I lift my voice<br>
-To the King in need of nothing, empty handed I rejoice<br>
-'Cause You deserve the greater glory, and overcome with joy I sing<br>
-By Your love, I am accepted, 'cause You're a good and gracious King<br><br>
-
-Holy, holy, Lord Almighty<br>
-Good and gracious, good and gracious<br>
-Holy, holy, Lord Almighty<br>
-Good and gracious King<br>
-Holy, holy, Lord Almighty<br>
-Good and gracious, good and gracious<br>
-Holy, holy, Lord Almighty<br>
-Good and gracious King<br><br>
-
-You deserve the greater glory, and overcome, I lift my voice<br>
-To the King in need of nothing, empty handed I rejoice<br>
-You deserve the greater glory, and overcome with joy I sing<br>
-By Your love, I am accepted, You're a good and gracious King<br><br>
-
-You're a good and gracious King<br><br>
-
+I cast my mind to Calvary<br>
+Where Jesus bled and died for me<br>
+I see His wounds, His hands, His feet<br>
+My Saviour on that cursed tree<br>
+His body bound and drenched in tears<br>
+They laid Him down in Joseph's tomb<br>
+The entrance sealed by heavy stone<br>
+Messiah still and all alone<br><br>
+ 
+O praise the Name of the Lord our God<br>
+O praise His Name forevermore<br>
+For endless days we will sing Your praise<br>
+Oh Lord, oh Lord our God<br><br>
+ 
+Then on the third at break of dawn<br>
+The Son of heaven rose again<br>
+O trampled death, where is your sting?<br>
+The angels roar for Christ the King<br><br>
+ 
+O praise the Name of the Lord our God<br>
+O praise His Name forevermore<br>
+For endless days we will sing Your praise<br>
+Oh Lord, oh Lord our God<br><br>
+ 
+He shall return in robes of white<br>
+The blazing sun shall pierce the night<br>
+And I will rise among the saints<br>
+My gaze transfixed on Jesus' face<br><br>
+ 
+O praise the Name of the Lord our God<br>
+O praise His Name forevermore<br>
+For endless days we will sing Your praise<br>
+Oh Lord, oh Lord our God<br><br>
+ 
+O praise the Name of the Lord our God<br>
+O praise His Name forevermore<br>
+For endless days we will sing Your praise<br>
+Oh Lord, oh Lord our God<br>
+Oh Lord, oh Lord our God<br><br>
+ 
+© 2015 © Hillsong Music Publishing Australia<br>
 CCLI 62951 (main copyright licence)<br>
 CCLI 174113 (streaming licence)<br><br>
 
-### Song 2  (9:30am): Amazing Grace (My Chains Are Gone)
 
-Amazing grace, how sweet the sound<br>
-That saved a wretch like me<br>
-I once was lost, but now I'm found<br>
-Was blind, but now I see<br><br>
+### Song 2 (9:30am): The Church’s One Foundation
 
-'Twas grace that taught my heart to fear<br>
-And grace my fears relieved<br>
-How precious did that grace appear<br>
-The hour I first believed<br><br>
+ The Church's one foundation<br>
+ Is Jesus Christ her Lord;<br>
+ She is his new creation,<br>
+ By spirit and the word;<br>
+ From Heav'n he came and sought her<br>
+ To be his holy bride;<br>
+ With his own blood he bought her,<br>
+ And for her life he died.<br><br>
+ 
+ Elect from ev'ry nation,<br>
+ Yet one o'er all the Earth,<br>
+ Her charter of salvation<br>
+ One Lord, one faith, one birth;<br>
+ One holy name she blesses,<br>
+ Partakes one holy food,<br>
+ And to one hope she presses,<br>
+ With ev'ry grace endued.<br><br>
+ 
+ Mid toil and tribulation<br>
+ And tumult of her war,<br>
+ She waits the consummation<br>
+ Of peace forever more;<br>
+ Till with the vision glorious<br>
+ Her longing eyes are blest,<br>
+ And the great Church victorious<br>
+ Shall be the Church at rest.<br><br>
 
-My chains are gone, I've been set free<br>
-My God, my Savior has ransomed me<br>
-And like a flood His mercy reigns<br>
-Unending love, amazing grace<br><br>
-
-The Lord has promised good to me<br>
-His word my hope secures<br>
-He will my shield and portion be<br>
-As long as life endures<br><br>
-
-My chains are gone, I've been set free<br>
-My God, my Savior has ransomed me<br>
-And like a flood His mercy reigns<br>
-Unending love, amazing grace<br><br>
-
-My chains are gone, I've been set free<br>
-My God, my Savior has ransomed me<br>
-And like a flood His mercy reigns<br>
-Unending love, amazing grace<br><br>
-
-The earth shall soon dissolve like snow<br>
-The sun forbear to shine<br>
-But God who called me here below<br>
-Will be forever mine<br>
-You are forever mine<br><br>
-
-John Newton (1779); Chris Tomlin, Louie Giglio (2007)<br>
+Copyright © 1866 Public Domain, S.J.Stone<br>
 CCLI 62951 (main copyright licence)<br>
 CCLI 174113 (streaming licence) <br><br>
 
