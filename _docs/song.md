@@ -19,7 +19,7 @@ order: 1
 
 ## 9:30am Song Lyrics <br>
 
-### Mighty to Save
+### Song 1: Mighty to Save
 
 [Verse 1]<br>
 Well, everyone needs compassion<br>
@@ -80,7 +80,7 @@ CCLI 62951 (main copyright licence)<br>
 CCLI 174113 (streaming licence)<br>
 
 
-### Rock of Ages
+### Song 2: Rock of Ages
 
 Rock of ages, cleft for me.<br>
 Hide me now, my refuge be.<br>
@@ -115,7 +115,7 @@ CCLI 62951 (main copyright licence)<br>
 CCLI 174113 (streaming licence)<br>
 
 
-### When I Survey Wondrous Cross
+### Song 3: When I Survey Wondrous Cross
 
 When I survey the wondrous cross<br>
 on which the Prince of glory died,<br>
@@ -144,7 +144,7 @@ CCLI 62951 (main copyright licence)<br>
 CCLI 174113 (streaming licence) <br>
 
 
-### On That Day
+### Song 4: On That Day
 
 I believe in Christ, risen from the dead<br>
 He now reigns victorious, His kingdom knows no end<br>
