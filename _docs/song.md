@@ -8,6 +8,7 @@ order: 1
 2. Rock of Ages
 3. When I Survey the Wondrous Cross
 4. On That Day
+
 **Scroll below for 9:30am song lyrics**
 
 ## 4:00pm
