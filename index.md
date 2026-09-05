@@ -10,8 +10,8 @@ title: Welcome
 [comment]: ----------------------------------------------------  
 
 ## Open Hearts
-#### "The sinner cries to God: Do not forsake me, O Lord. O my God, be not far from me, Make haste to help me, O Lord, my salvation.”
-##### Psalm 38: 21-22
+#### "Let the heart of those who seek the Lord rejoice. Seek the Lord and his strength, seek his presence continually."
+##### Psalm 105: 3-4
 
 ---
 - We are gathering in person! For people who can’t gather in person, you can watch online [here](https://stgeorgeshurstville.org.au/sunday-english-online)
