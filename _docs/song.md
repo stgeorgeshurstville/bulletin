@@ -4,179 +4,201 @@ order: 1
 ---
 
 ## 9:30am 
-1. O Praise The Name (Anastasis)
-2. The Church’s One Foundation
-3. Servants of The Gospel
-4. My Heart is filled with Thankfulness
-
+1. Mighty To Save
+2. Rock of Ages
+3. When I Survey the Wondrous Cross
+4. On That Day
 **Scroll below for 9:30am song lyrics**
 
 ## 4:00pm
-1. All Creatures of Our God and King	
-2. Come Behold the Wondrous Mystery
-3. O breath of life
-4. We are One
+1. The Love of the Father
+2. No Other Name
+3. His Mercy is More
+4. All I have is Christ
 
 ## 9:30am Song Lyrics <br>
 
-### Song 1 (9:30am): O Praise The Name (Anastasis)
+### Mighty to Save
 
-I cast my mind to Calvary<br>
-Where Jesus bled and died for me<br>
-I see His wounds, His hands, His feet<br>
-My Saviour on that cursed tree<br>
-His body bound and drenched in tears<br>
-They laid Him down in Joseph's tomb<br>
-The entrance sealed by heavy stone<br>
-Messiah still and all alone<br><br>
- 
-O praise the Name of the Lord our God<br>
-O praise His Name forevermore<br>
-For endless days we will sing Your praise<br>
-Oh Lord, oh Lord our God<br><br>
- 
-Then on the third at break of dawn<br>
-The Son of heaven rose again<br>
-O trampled death, where is your sting?<br>
-The angels roar for Christ the King<br><br>
- 
-O praise the Name of the Lord our God<br>
-O praise His Name forevermore<br>
-For endless days we will sing Your praise<br>
-Oh Lord, oh Lord our God<br><br>
- 
-He shall return in robes of white<br>
-The blazing sun shall pierce the night<br>
-And I will rise among the saints<br>
-My gaze transfixed on Jesus' face<br><br>
- 
-O praise the Name of the Lord our God<br>
-O praise His Name forevermore<br>
-For endless days we will sing Your praise<br>
-Oh Lord, oh Lord our God<br><br>
- 
-O praise the Name of the Lord our God<br>
-O praise His Name forevermore<br>
-For endless days we will sing Your praise<br>
-Oh Lord, oh Lord our God<br>
-Oh Lord, oh Lord our God<br><br>
- 
-© 2015 © Hillsong Music Publishing Australia<br>
+[Verse 1]<br>
+Well, everyone needs compassion<br>
+A love that's never failing<br>
+Let mercy fall on me<br>
+Well, everyone needs forgiveness<br>
+The kindness of a Saviour<br>
+The hope of nations<br>
+
+[Chorus]<br>
+Saviour, He can move the mountains<br>
+And my God is mighty to save, He is mighty to save<br>
+Forever, Author of Salvation<br>
+He rose and conquered the grave<br>
+Jesus conquered the grave<br>
+
+[Verse 2]<br>
+So take me as You find me<br>
+All my fears and failures<br>
+And fill my life again<br>
+I give my life to follow<br>
+Everything I believe in<br>
+And now I surrender, I surrender<br>
+
+[Chorus]<br>
+Saviour, He can move the mountains<br>
+My God is mighty to save, He is mighty to save<br>
+Forever, Author of Salvation<br>
+He rose and conquered the grave<br>
+Jesus conquered the grave<br>
+
+Saviour, He can move the mountains<br>
+My God is mighty to save, He is mighty to save<br>
+Forever, Author of Salvation<br>
+He rose and conquered the grave<br>
+Jesus conquered the grave<br>
+
+[Bridge]<br>
+Shine your light and let the whole world see<br>
+We're singing for the glory of the risen King, Jesus<br>
+Shine your light and let the whole world see<br>
+We're singing for the glory of the risen King<br>
+
+Shine your light and let the whole world see<br>
+We're singing for the glory of the risen King, Jesus<br>
+Shine your light and let the whole world see<br>
+We're singing for the glory of the risen King<br>
+
+[Chorus]<br>
+Saviour, He can move the mountains<br>
+My God is mighty to save, He is mighty to save<br>
+Forever, Author of Salvation<br>
+He rose and conquered the grave<br>
+Jesus conquered the grave<br>
+
+Hillsong Worship, Reuben Morgan, Ben Fielding; 2006<br>
 CCLI 62951 (main copyright licence)<br>
-CCLI 174113 (streaming licence)<br><br>
+CCLI 174113 (streaming licence)<br>
 
 
-### Song 2 (9:30am): The Church’s One Foundation
+### Rock of Ages
 
- The Church's one foundation<br>
- Is Jesus Christ her Lord;<br>
- She is his new creation,<br>
- By spirit and the word;<br>
- From Heav'n he came and sought her<br>
- To be his holy bride;<br>
- With his own blood he bought her,<br>
- And for her life he died.<br><br>
- 
- Elect from ev'ry nation,<br>
- Yet one o'er all the Earth,<br>
- Her charter of salvation<br>
- One Lord, one faith, one birth;<br>
- One holy name she blesses,<br>
- Partakes one holy food,<br>
- And to one hope she presses,<br>
- With ev'ry grace endued.<br><br>
- 
- Mid toil and tribulation<br>
- And tumult of her war,<br>
- She waits the consummation<br>
- Of peace forever more;<br>
- Till with the vision glorious<br>
- Her longing eyes are blest,<br>
- And the great Church victorious<br>
- Shall be the Church at rest.<br><br>
+Rock of ages, cleft for me.<br>
+Hide me now, my refuge be.<br>
+Let the water and the blood<br>
+From your wounded side which flowed,<br>
+Be for sin the double cure.<br>
+Cleanse me from its guilt and power.<br>
 
-Copyright © 1866 Public Domain, S.J.Stone<br>
+Not the labors of my hands<br>
+Can fulfill your law’s demands.<br>
+Could my zeal no respite know,<br>
+Could my tears forever flow,<br>
+All for sin could not atone;<br>
+You must save, and You alone.<br>
+
+Nothing in my hand I bring,<br>
+Simply to your cross I cling;<br>
+Naked come to You for dress;<br>
+Helpless look to You for grace,<br>
+Stained by sin to You I cry.<br>
+Wash me, Savior or I die.<br>
+
+While I draw this fleeting breath;<br>
+When my eyelids close in death;<br>
+When I soar to realms unknown,<br>
+Bow before the judgment throne,<br>
+Hide me now my refuge be;<br>
+Rock of ages, cleft for me.<br>
+
+Rock of Ages Words by Rev A.M. Toplady, Music by Ruth Buchanan © 1998<br>
 CCLI 62951 (main copyright licence)<br>
-CCLI 174113 (streaming licence) <br><br>
+CCLI 174113 (streaming licence)<br>
 
-### Song 3 Servants of The Gospel 
 
-Verse 1<br>
-Though we were undeserving<br>
- Christ died to wash us clean<br>
- He bore the Father's anger<br>
- While nailed upon the tree<br>
- In darkness and in turmoil<br>
- The judgment fell on Him<br>
- Bringing us forgiveness<br>
- That new life might begin<br><br>
- 
-Chorus:<br>
-As servants of the gospel<br>
- Christ's work we carry on<br>
- That through our prayer and witness<br>
- By grace we might win some<br>
- We call on every nation<br>
- To turn to Christ the Lord<br>
- Refuge in His mercy<br>
- And marvel at His love<br><br>
- 
-Verse 2<br><br>
- The grave could not contain Him<br>
- From death the Son broke free<br>
- Exalted by His Father<br>
- To rule eternally<br>
- And in His grace He calls us<br>
- To be His chosen church<br>
- As His holy temple<br>
- His priests to all the earth<br><br>
- 
-Verse 3<br>
- Marked with His Holy Spirit<br>
- And guided by His word<br>
- Christ gathers us together<br>
- Prepares us for good works<br>
- And so with grace apportioned<br>
- We serve each other needs<br>
- Sharing in each blessing<br>
- And helping in our grief<br><br>
- 
-CCLI Song # 3687240 | © 2002 Bryson Smith, Philip Percival | emumusic.com <br>
+### When I Survey Wondrous Cross
+
+When I survey the wondrous cross<br>
+on which the Prince of glory died,<br>
+my richest gain I count but loss,<br>
+and pour contempt on all my pride.<br>
+
+Forbid it, Lord, that I should boast<br>
+save in the death of Christ, my God!<br>
+All the vain things that charm me most,<br>
+I sacrifice them through his blood.<br>
+
+See, from his head, his hands, his feet,<br>
+sorrow and love flow mingled down.<br>
+Did e'er such love and sorrow meet,<br>
+or thorns compose so rich a crown?<br>
+Were the whole realm of nature mine,<br>
+that were a present far too small.<br>
+Love so amazing, so divine,<br>
+demands my soul, my life, my all.<br>
+
+Love so amazing, so divine,<br>
+demands my soul, my life, my all.<br>
+
+Isaac Watts (1707)<br>
 CCLI 62951 (main copyright licence)<br>
-CCLI 174113 (streaming licence) <br><br>
+CCLI 174113 (streaming licence) <br>
 
 
-### Song 4 (9:30am): My Heart is filled with Thankfulness
+### On That Day
 
-My heart is filled with thankfulness<br>
- To Him who bore my pain;<br>
- Who plumbed the depths of my disgrace<br>
- And gave me life again.<br>
- Who crushed my curse of sinfulness,<br>
- And clothed me with His light,<br>
- And wrote His law of righteousness<br>
- With power upon my heart.<br><br>
- 
- My heart is filled with thankfulness<br>
- To Him who walks beside;<br>
- Who floods my weaknesses with strength<br>
- And causes fears to fly;<br>
- Whose every promise is enough<br>
- For every step I take,<br>
- Sustaining me with arms of love<br>
- And crowning me with grace.<br><br>
- 
- My heart is filled with thankfulness<br>
- To Him who reigns above;<br>
- Whose wisdom is my perfect peace,<br>
- Whose every thought is love.<br>
- For every day I have on earth<br>
- Is given by the King.<br>
- So I will give my life, my all,<br>
- To love and follow Him.<br><br>
+I believe in Christ, risen from the dead<br>
+He now reigns victorious, His kingdom knows no end<br>
+Through His resurrection, death has lost its hold<br>
+I know on that final day, I'll rise as Jesus rose<br>
 
-Stuart Townend & Keith Getty Copyright © 2004 Thankyou Music <br>
+On that day, we will see You<br>
+Shining brighter than the sun<br>
+On that day, we will know You<br>
+As we lift our voice as one<br>
+'Til that day, we will praise You<br>
+For Your never-ending grace<br>
+And we will keep on singing on that glorious day<br>
+
+What a blessed hope, though now tired and worn<br>
+We will spend eternity around our Saviour's throne<br>
+Though we grieve our losses, we grieve not in vain<br>
+For we know our crown of glory waits beyond the grave<br>
+
+On that day, we will see You<br>
+Shining brighter than the sun<br>
+On that day, we will know You<br>
+As we lift our voice as one<br>
+'Til that day, we will praise You<br>
+For Your never-ending grace<br>
+And we will keep on singing on that glorious day<br>
+
+Hallelujah, what a day it will be!<br>
+For at home with You, my joy is complete<br>
+As I run into Your arms open wide, I will see<br>
+My Father who is waiting for me<br>
+
+Hallelujah what a day it will be!<br>
+For at home with You, my joy is complete<br>
+As I run into Your arms open wide, I will see<br>
+My Father who is waiting for me<br>
+My Father who is waiting for me<br>
+
+On that day, we will see You<br>
+Shining brighter than the sun<br>
+On that day, we will know You<br>
+As we lift our voice as one<br>
+'Til that day, we will praise You<br>
+For Your never ending-grace<br>
+And we will keep on singing on that glorious day<br>
+
+On that day, we will see You<br>
+Shining brighter than the sun<br>
+On that day, we will know You<br>
+As we lift our voice as one<br>
+'Til that day, we will praise You<br>
+For Your never-ending grace<br>
+And we will keep on singing on that glorious day<br>
+And we will keep on singing on that glorious day<br>
+
+CityAlight ‧ 2022<br>
 CCLI 62951 (main copyright licence)<br>
-CCLI 174113 (streaming licence)<br><br>
-
-
+CCLI 174113 (streaming licence)<br>
