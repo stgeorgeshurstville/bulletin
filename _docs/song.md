@@ -16,6 +16,7 @@ order: 1
 2. How Deep the Father's Love for Us
 3. Be Thou My Vision
 4. Yet Not I but Through Christ in Me
+   
 
 ## 9:30am Song Lyrics <br>
 
