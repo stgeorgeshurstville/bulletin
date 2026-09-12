@@ -10,8 +10,9 @@ title: Welcome
 [comment]: ----------------------------------------------------  
 
 ## Open Hearts
-#### "Let the heart of those who seek the Lord rejoice. Seek the Lord and his strength, seek his presence continually."
-##### Psalm 105: 3-4
+#### "The Lord was my strength; he brought me forth into a broad place; he delivered me, because he delighted in me."
+
+##### Psalm 18: 18,19
 
 ---
 - We are gathering in person! For people who can’t gather in person, you can watch online [here](https://stgeorgeshurstville.org.au/sunday-english-online)
