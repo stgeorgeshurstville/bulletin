@@ -4,202 +4,188 @@ order: 1
 ---
 
 ## 9:30am 
-1. Mighty To Save
-2. Rock of Ages
-3. When I Survey the Wondrous Cross
-4. On That Day
+1. God is Our Strength and Refuge
+2. We Belong to the Day
+3. You are My All in All
+4. In Christ Alone
 
 **Scroll below for 9:30am song lyrics**
 
 ## 4:00pm
-1. The Love of the Father
-2. No Other Name
-3. His Mercy is More
-4. All I have is Christ
+1. Completely Known, Completely Loved
+2. How Deep the Father's Love for Us
+3. Be Thou My Vision
+4. Yet Not I but Through Christ in Me
 
 ## 9:30am Song Lyrics <br>
 
-### Song 1: Mighty to Save
+### Song 1: God is Our Strength and Refuge
 
-[Verse 1]<br>
-Well, everyone needs compassion<br>
-A love that's never failing<br>
-Let mercy fall on me<br>
-Well, everyone needs forgiveness<br>
-The kindness of a Saviour<br>
-The hope of nations<br>
-
-[Chorus]<br>
-Saviour, He can move the mountains<br>
-And my God is mighty to save, He is mighty to save<br>
-Forever, Author of Salvation<br>
-He rose and conquered the grave<br>
-Jesus conquered the grave<br>
-
-[Verse 2]<br>
-So take me as You find me<br>
-All my fears and failures<br>
-And fill my life again<br>
-I give my life to follow<br>
-Everything I believe in<br>
-And now I surrender, I surrender<br>
-
-[Chorus]<br>
-Saviour, He can move the mountains<br>
-My God is mighty to save, He is mighty to save<br>
-Forever, Author of Salvation<br>
-He rose and conquered the grave<br>
-Jesus conquered the grave<br>
-
-Saviour, He can move the mountains<br>
-My God is mighty to save, He is mighty to save<br>
-Forever, Author of Salvation<br>
-He rose and conquered the grave<br>
-Jesus conquered the grave<br>
-
-[Bridge]<br>
-Shine your light and let the whole world see<br>
-We're singing for the glory of the risen King, Jesus<br>
-Shine your light and let the whole world see<br>
-We're singing for the glory of the risen King<br>
-
-Shine your light and let the whole world see<br>
-We're singing for the glory of the risen King, Jesus<br>
-Shine your light and let the whole world see<br>
-We're singing for the glory of the risen King<br>
-
-[Chorus]<br>
-Saviour, He can move the mountains<br>
-My God is mighty to save, He is mighty to save<br>
-Forever, Author of Salvation<br>
-He rose and conquered the grave<br>
-Jesus conquered the grave<br>
-
-Hillsong Worship, Reuben Morgan, Ben Fielding; 2006<br>
+God is our strength and refuge,<br>
+Our present help in trouble;<br>
+and we therefore will not fear,<br>
+though the earth should change!<br>
+Though mountains shake and tremble,<br>
+though swirling floods are raging,<br>
+God the Lord of hosts is with us evermore!<br>
+ 
+There is a flowing river,<br>
+Within God's holy city;<br>
+God is in the midst of her -<br>
+she shall not be moved!<br>
+God's help is swiftly given,<br>
+thrones vanish at his presence -<br>
+God the Lord of hosts is with us evermore!<br>
+ 
+Come, see the works of our maker,<br>
+learn of His deeds all powerful;<br>
+wars will cease across the world<br>
+when He shatters the spear!<br>
+Be still and know your creator,<br>
+uplift Him in the nations -<br>
+God the Lord of hosts is with us evermore!<br>
+ 
+© 1973  Hope Publishing Co. | Richard Bewes<br>
 CCLI 62951 (main copyright licence)<br>
 CCLI 174113 (streaming licence)<br>
 
 
-### Song 2: Rock of Ages
+### Song 2: We Belong to the Day
 
-Rock of ages, cleft for me.<br>
-Hide me now, my refuge be.<br>
-Let the water and the blood<br>
-From your wounded side which flowed,<br>
-Be for sin the double cure.<br>
-Cleanse me from its guilt and power.<br>
-
-Not the labors of my hands<br>
-Can fulfill your law’s demands.<br>
-Could my zeal no respite know,<br>
-Could my tears forever flow,<br>
-All for sin could not atone;<br>
-You must save, and You alone.<br>
-
-Nothing in my hand I bring,<br>
-Simply to your cross I cling;<br>
-Naked come to You for dress;<br>
-Helpless look to You for grace,<br>
-Stained by sin to You I cry.<br>
-Wash me, Savior or I die.<br>
-
-While I draw this fleeting breath;<br>
-When my eyelids close in death;<br>
-When I soar to realms unknown,<br>
-Bow before the judgment throne,<br>
-Hide me now my refuge be;<br>
-Rock of ages, cleft for me.<br>
-
-Rock of Ages Words by Rev A.M. Toplady, Music by Ruth Buchanan © 1998<br>
-CCLI 62951 (main copyright licence)<br>
-CCLI 174113 (streaming licence)<br>
-
-
-### Song 3: When I Survey Wondrous Cross
-
-When I survey the wondrous cross<br>
-on which the Prince of glory died,<br>
-my richest gain I count but loss,<br>
-and pour contempt on all my pride.<br>
-
-Forbid it, Lord, that I should boast<br>
-save in the death of Christ, my God!<br>
-All the vain things that charm me most,<br>
-I sacrifice them through his blood.<br>
-
-See, from his head, his hands, his feet,<br>
-sorrow and love flow mingled down.<br>
-Did e'er such love and sorrow meet,<br>
-or thorns compose so rich a crown?<br>
-Were the whole realm of nature mine,<br>
-that were a present far too small.<br>
-Love so amazing, so divine,<br>
-demands my soul, my life, my all.<br>
-
-Love so amazing, so divine,<br>
-demands my soul, my life, my all.<br>
-
-Isaac Watts (1707)<br>
+We belong to the day<br>
+To the day that is to come<br>
+When the night falls away<br>
+And our Saviour will return<br>
+For the glory of the King is in our hearts<br>
+On that day we will be seen for what we are<br>
+ 
+We belong to the day<br>
+Let us journey in the light<br>
+Put on faith, put on love<br>
+As our armour for the fight<br>
+And the promise of salvation in our eyes<br>
+On that day the proud will fall, the faithful rise<br>
+ 
+Strong as a mighty rock<br>
+Our refuge in the coming wrath<br>
+The heart of the bride belongs to Jesus, Jesus<br>
+The earth in its turning stops<br>
+To marvel at the Son of God<br>
+And all of that day belongs to Jesus, Jesus<br>
+ 
+We belong to the day<br>
+We were bought with Jesus’ blood<br>
+Soon he comes as the judge<br>
+In the power of his word<br>
+We must tell of his salvation while we wait<br>
+For the day when Jesus comes will be too late<br>
+ 
+Strong as a mighty rock<br>
+Our re in the coming wrath<br>
+The heart of the bride belongs to Jesus, Jesus<br>
+The earth in its turning stops<br>
+To marvel at the Son of God<br>
+And all of that day belongs to Jesus, Jesus<br>
+ 
+Oh, if ten thousand years go by we will wait<br>
+Let us tell of his great love, he will come<br>
+For his patience means salvation<br>
+ 
+Strong as a mighty rock<br>
+Our refuge in the coming wrath<br>
+The heart of the bride belongs to Jesus, Jesus<br>
+The earth in its turning stops<br>
+To marvel at the Son of God<br>
+And all of that day belongs to Jesus, Jesus<br>
+ 
+CCLI Song # 4778282 | Michael Morrow | © 2006 Morrow, Michael | emumusic.com<br>
 CCLI 62951 (main copyright licence)<br>
 CCLI 174113 (streaming licence) <br>
 
 
-### Song 4: On That Day
+### Song 3: You are My All in All
 
-I believe in Christ, risen from the dead<br>
-He now reigns victorious, His kingdom knows no end<br>
-Through His resurrection, death has lost its hold<br>
-I know on that final day, I'll rise as Jesus rose<br>
+You are my strength when I am weak<br>
+You are the treasure that I seek<br>
+You are my all in all<br>
+Seeking You like a precious jewel<br>
+Lord, to give up I'd be a fool<br>
+You are my all in all<br>
 
-On that day, we will see You<br>
-Shining brighter than the sun<br>
-On that day, we will know You<br>
-As we lift our voice as one<br>
-'Til that day, we will praise You<br>
-For Your never-ending grace<br>
-And we will keep on singing on that glorious day<br>
+Jesus, Lamb of God<br>
+Worthy is Your name<br>
+Jesus, Lamb of God<br>
+Worthy is Your name<br>
+ 
+Taking my sin, my cross, my shame<br>
+Raising again I praise Your name<br>
+You are my all in all<br>
+When I fall down You pick me up<br>
+When I run dry You fill my cup<br>
+You are my all in all<br>
 
-What a blessed hope, though now tired and worn<br>
-We will spend eternity around our Saviour's throne<br>
-Though we grieve our losses, we grieve not in vain<br>
-For we know our crown of glory waits beyond the grave<br>
+Jesus, Lamb of God<br>
+Worthy is Your name<br>
+Jesus, Lamb of God<br>
+Worthy is Your name<br>
 
-On that day, we will see You<br>
-Shining brighter than the sun<br>
-On that day, we will know You<br>
-As we lift our voice as one<br>
-'Til that day, we will praise You<br>
-For Your never-ending grace<br>
-And we will keep on singing on that glorious day<br>
-
-Hallelujah, what a day it will be!<br>
-For at home with You, my joy is complete<br>
-As I run into Your arms open wide, I will see<br>
-My Father who is waiting for me<br>
-
-Hallelujah what a day it will be!<br>
-For at home with You, my joy is complete<br>
-As I run into Your arms open wide, I will see<br>
-My Father who is waiting for me<br>
-My Father who is waiting for me<br>
-
-On that day, we will see You<br>
-Shining brighter than the sun<br>
-On that day, we will know You<br>
-As we lift our voice as one<br>
-'Til that day, we will praise You<br>
-For Your never ending-grace<br>
-And we will keep on singing on that glorious day<br>
-
-On that day, we will see You<br>
-Shining brighter than the sun<br>
-On that day, we will know You<br>
-As we lift our voice as one<br>
-'Til that day, we will praise You<br>
-For Your never-ending grace<br>
-And we will keep on singing on that glorious day<br>
-And we will keep on singing on that glorious day<br>
-
-CityAlight ‧ 2022<br>
+Jesus, Lamb of God<br>
+Worthy is Your name<br>
+Jesus, Lamb of God<br>
+Worthy is Your name<br>
+ 
+CCLI #825356 @1991 Shepherd Heart Music, Inc. (Admin. by PraiseCharts Publishing, Inc.)<br>
 CCLI 62951 (main copyright licence)<br>
 CCLI 174113 (streaming licence)<br>
+
+
+### Song 4: In Christ Alone
+
+In Christ alone my hope is found,<br>
+He is my light, my strength, my song;<br>
+This Cornerstone, this solid Ground,<br>
+Firm through the fiercest drought and storm.<br>
+ 
+What heights of love, what depths of peace,<br>
+When fears are stilled, when strivings cease!<br>
+My Comforter, my All in All,<br>
+Here in the love of Christ I stand.<br>
+ 
+In Christ alone! – who took on flesh,<br>
+Fullness of God in helpless babe.<br>
+This gift of love and righteousness,<br>
+Scorned by the ones He came to save:<br>
+ 
+Till on that cross as Jesus died,<br>
+The wrath of God was satisfied <br>
+For every sin on Him was laid;<br>
+Here in the death of Christ I live.<br>
+ 
+There in the ground His body lay,<br>
+Light of the world by darkness slain:<br>
+Then bursting forth in glorious day<br>
+Up from the grave He rose again!<br>
+ 
+And as He stands in victory<br>
+Sin’s curse has lost its grip on me,<br>
+For I am His and He is mine<br>
+Bought with the precious blood of Christ.<br>
+ 
+No guilt in life, no fear in death,<br>
+This is the power of Christ in me<br>
+From life’s first cry to final breath,<br>
+Jesus commands my destiny.<br>
+ 
+No power of hell, no scheme of man,<br>
+Can ever pluck me from His hand:<br>
+Till He returns or calls me home,<br>
+Here in the power of Christ I’ll stand.<br>
+ 
+No power of hell, no scheme of man,<br>
+Can ever pluck me from His hand:<br>
+Till He returns or calls me home,<br>
+Here in the power of Christ I’ll stand.<br>
+ 
+CCLI #:3350395;  Stuart Townend & Keith Getty Copyright © 2001 Thankyou Music<br>
+CCLI 62951 (main copyright licence)<br>
+CCLI 174113 (streaming licence)
