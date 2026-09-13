@@ -22,7 +22,7 @@ Dear God, thank you for letting us know you. Please help us learn from your word
 
 
 ### 2 Corinthians 10:1-18 (NIV)
-Paul’s Defense of His Ministry
+* Paul’s Defense of His Ministry *
 
 ¹ By the humility and gentleness of Christ, I appeal to you—I, Paul, who am “timid” when face to face with you, but “bold” toward you when away! ² I beg you that when I come I may not have to be as bold as I expect to be toward some people who think that we live by the standards of this world. ³ For though we live in the world, we do not wage war as the world does. ⁴ The weapons we fight with are not the weapons of the world. On the contrary, they have divine power to demolish strongholds. ⁵ We demolish arguments and every pretension that sets itself up against the knowledge of God, and we take captive every thought to make it obedient to Christ. ⁶ And we will be ready to punish every act of disobedience, once your obedience is complete.
 
