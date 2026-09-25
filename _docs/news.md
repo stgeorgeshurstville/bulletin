@@ -7,13 +7,20 @@ order: 5
 
 | Date | Event | Time |
 | ---- | ---- | ---- |
+| 12th of October | Kids Holiday Hub | 9:00AM - 3:00PM |
 | Every Friday | The Bridge | 6:00PM - 7:30PM |
 
 ## General
 
-### Long Service Leave
+### Kids Holiday Hub 
 
-Brian will be on long service leave starting this coming Monday, returning on September 14th. Please be in prayer for him during this time—that his time away from ministry will be deeply refreshing as he takes a well-deserved break. If you need any assistance while Brian is away, please don't hesitate to contact Ben on 0431 978 673 
+A pupil-free day of LEGO games, building challenges & learning how Jesus brings new life! Morning tea & lunch provided. After two weeks of school holidays, you might be running out of options to keep the kids entertained. This pupil-free day on October 12th, we’ve got you covered! <br><br> Our Kids Holiday Hub is back for a full day of hands-on fun as we dive into the world of LEGO. Kids will tackle creative building challenges, team up for fun games, and discover how Jesus was raised from the dead—showing us that new life and hope can be built out of anything! We’ll wrap up the day relaxing with a G-rated movie. Morning tea and lunch are fully included, so your young builder is all set for an awesome, hassle-free day!
+- **Date:** 12th of October
+- **Time:** Check in 9:00am (program starting at 9:30) 
+- **Finish time:** 3:00pm 
+- **Who:** Kindy to Year 6
+- **Registration link:** https://www.eventbrite.com/e/kids-holiday-hub-tickets-1999440147304?aff=ebdsoporgprofile
+
 
 ### New Bible Series: 'Open Hearts'
 
