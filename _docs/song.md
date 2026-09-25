@@ -4,18 +4,18 @@ order: 1
 ---
 
 ## 9:30am 
-1. God is Our Strength and Refuge
-2. We Belong to the Day
-3. You are My All in All
-4. In Christ Alone
+1. His Mercy is More
+2. Knowing You, Jesus
+3. -
+4. -
 
 **Scroll below for 9:30am song lyrics**
 
 ## 4:00pm
-1. Completely Known, Completely Loved
-2. How Deep the Father's Love for Us
-3. Be Thou My Vision
-4. Yet Not I but Through Christ in Me
+1. The God we Love (Nicene Creed)
+2. Christ Our Wisdom
+3. When I survey the wondrous cross
+4. Before the Throne of God Above
    
 
 ## 9:30am Song Lyrics <br>
