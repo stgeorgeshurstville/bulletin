@@ -20,21 +20,20 @@ order: 2
 ### Prayer
 Dear God, thank you for letting us know you. Please help us learn from your word. Help us to serve and praise you. **Amen!**
 
+### 2 Corinthians 11:16-33 (NIV)
+*Paul’s Sufferings as an Apostle*
 
-### 2 Corinthians 10:1-18 (NIV)
-*Paul’s Defense of His Ministry*
+I repeat: Let no one take me for a fool. But if you do, then tolerate me just as you would a fool, so that I may do a little boasting. ¹⁷ In this self-confident boasting I am not talking as the Lord would, but as a fool. ¹⁸ Since many are boasting in the way the world does, I too will boast. ¹⁹ You gladly put up with fools since you are so wise! ²⁰ In fact, you even put up with anyone who enslaves you or exploits you or takes advantage of you or puts on airs or slaps you in the face. ²¹ To my shame I admit that we were too weak for that!
 
-¹ By the humility and gentleness of Christ, I appeal to you—I, Paul, who am “timid” when face to face with you, but “bold” toward you when away! ² I beg you that when I come I may not have to be as bold as I expect to be toward some people who think that we live by the standards of this world. ³ For though we live in the world, we do not wage war as the world does. ⁴ The weapons we fight with are not the weapons of the world. On the contrary, they have divine power to demolish strongholds. ⁵ We demolish arguments and every pretension that sets itself up against the knowledge of God, and we take captive every thought to make it obedient to Christ. ⁶ And we will be ready to punish every act of disobedience, once your obedience is complete.
+Whatever anyone else dares to boast about—I am speaking as a fool—I also dare to boast about. ²² Are they Hebrews? So am I. Are they Israelites? So am I. Are they Abraham’s descendants? So am I. ²³ Are they servants of Christ? (I am out of my mind to talk like this.) I am more. I have worked much harder, been in prison more frequently, been flogged more severely, and been exposed to death again and again. ²⁴ Five times I received from the Jews the forty lashes minus one. ²⁵ Three times I was beaten with rods, once I was pelted with stones, three times I was shipwrecked, I spent a night and a day in the open sea, ²⁶ I have been constantly on the move. I have been in danger from rivers, in danger from bandits, in danger from my fellow Jews, in danger from Gentiles; in danger in the city, in danger in the country, in danger at sea; and in danger from false believers. ²⁷ I have labored and toiled and have often gone without sleep; I have known hunger and thirst and have often gone without food; I have been cold and naked. ²⁸ Besides everything else, I face daily the pressure of my concern for all the churches. ²⁹ Who is weak, and I do not feel weak? Who is led into sin, and I do not inwardly burn?
 
-⁷ You are judging by appearances. If anyone is confident that they belong to Christ, they should consider again that we belong to Christ just as much as they do. ⁸ So even if I boast somewhat freely about the authority the Lord gave us for building you up rather than tearing you down, I will not be ashamed of it. ⁹ I do not want to seem to be trying to frighten you with my letters. ¹⁰ For some say, “His letters are weighty and forceful, but in person he is unimpressive and his speaking amounts to nothing.” ¹¹ Such people should realize that what we are in our letters when we are absent, we will be in our actions when we are present.
-
-¹² We do not dare to classify or compare ourselves with some who commend themselves. When they measure themselves by themselves and compare themselves with themselves, they are not wise. ¹³ We, however, will not boast beyond proper limits, but will confine our boasting to the sphere of service God himself has assigned to us, a sphere that also includes you. ¹⁴ We are not going too far in our boasting, as would be the case if we had not come to you, for we did get as far as you with the gospel of Christ. ¹⁵ Neither do we go beyond our limits by boasting of work done by others. Our hope is that, as your faith continues to grow, our sphere of activity among you will greatly expand, ¹⁶ so that we can preach the gospel in the regions beyond you. For we do not want to boast about work already done in someone else’s territory. ¹⁷ But, “Let the one who boasts boast in the Lord.” ¹⁸ For it is not the one who commends himself who is approved, but the one whom the Lord commends.
-
+³⁰ If I must boast, I will boast of the things that show my weakness. ³¹ The God and Father of the Lord Jesus, who is to be praised forever, knows that I am not lying. ³² In Damascus the governor under King Aretas had the city of the Damascenes guarded in order to arrest me. ³³ But I was lowered in a basket from a window in the wall and slipped through his hands.
 
 ## Sermon Outline <br>
-1. Christian leadership isn't self-aggrandizing, but humble in fighting for the truth (vv. 1–6).
-2. Christian leadership doesn't manufacture rumors, but is consistent in building others up (vv. 7–11).
-3. Christian leadership isn't self-exalting, but boasts in the Lord (vv. 12–18).
+1. Going straight into the pool room
+2. Paul brags
+3. Just copying
+4. Conclusions
 
 
 
