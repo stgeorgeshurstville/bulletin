@@ -26,7 +26,6 @@ order: 1
 <html lang="en">
 <head>
 <meta charset="utf-8">
-<title>Lyrics</title>
 </head>
 <body style="font-family:Georgia,serif;max-width:480px;margin:2rem auto;padding:0 1rem;">
 <p style="margin-top:2.5rem;font-size:.85rem;color:#555;line-height:1.5;">O Lord my God<br>
