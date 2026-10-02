@@ -151,41 +151,36 @@ CCLI 174113 (streaming licence)</p>
 
 ### Song 3: The Servant King
 
-From heaven you came helpless babe
-Entered our world, your glory veiled
-Not to be served but to serve
-And give Your life that we might live
-
-This is our God, The Servant King
-He calls us now to follow Him
-To bring our lives as a daily offering
-Of worship to The Servant King
-
-There in the garden of tears
-My heavy load he chose to bear
-His heart with sorrow was torn
-'Yet not My will but Yours, ' He said
-
-This is our God, The Servant King
-He calls us now to follow Him
-To bring our lives as a daily offering
-Of worship to The Servant King
-
-Come see His hands and His feet
-The scars that speak of sacrifice
-Hands that flung stars into space
-To cruel nails surrendered
-
-This is our God, The Servant King
-He calls us now to follow Him
-To bring our lives as a daily offering
-Of worship to The Servant King
-
-Of worship to The Servant King
-
-Graham Kendrick ‧ 1988
-CCLI 62951 (main copyright licence)
-CCLI 174113 (streaming licence)
+<body style="font-family:Georgia,serif;max-width:480px;margin:2rem auto;padding:0 1rem;">
+<p style="margin-top:2.5rem;font-size:.85rem;color:#555;line-height:1.5;">From heaven you came helpless babe<br>
+Entered our world, your glory veiled<br>
+Not to be served but to serve<br>
+And give Your life that we might live</p>
+<p style="margin-top:2.5rem;font-size:.85rem;color:#555;line-height:1.5;">This is our God, The Servant King<br>
+He calls us now to follow Him<br>
+To bring our lives as a daily offering<br>
+Of worship to The Servant King</p>
+<p style="margin-top:2.5rem;font-size:.85rem;color:#555;line-height:1.5;">There in the garden of tears<br>
+My heavy load he chose to bear<br>
+His heart with sorrow was torn<br>
+'Yet not My will but Yours, ' He said</p>
+<p style="margin-top:2.5rem;font-size:.85rem;color:#555;line-height:1.5;">This is our God, The Servant King<br>
+He calls us now to follow Him<br>
+To bring our lives as a daily offering<br>
+Of worship to The Servant King</p>
+<p style="margin-top:2.5rem;font-size:.85rem;color:#555;line-height:1.5;">Come see His hands and His feet<br>
+The scars that speak of sacrifice<br>
+Hands that flung stars into space<br>
+To cruel nails surrendered</p>
+<p style="margin-top:2.5rem;font-size:.85rem;color:#555;line-height:1.5;">This is our God, The Servant King<br>
+He calls us now to follow Him<br>
+To bring our lives as a daily offering<br>
+Of worship to The Servant King</p>
+<p style="margin-top:2.5rem;font-size:.85rem;color:#555;line-height:1.5;">Of worship to The Servant King</p>
+<p style="margin-top:2.5rem;font-size:.85rem;color:#555;line-height:1.5;">Graham Kendrick ‧ 1988<br>
+CCLI 62951 (main copyright licence)<br>
+CCLI 174113 (streaming licence)</p>
+</body>
 
 ### Song 4: Yet Not I
 
