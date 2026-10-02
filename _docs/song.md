@@ -8,6 +8,7 @@ order: 1
 2. God Always Keeps His Promises
 3. The Servant King
 4. Yet Not I
+5. As For Me & My House
 
 **Scroll below for 9:30am song lyrics**
 
@@ -228,5 +229,51 @@ Yet not I, but through Christ in me!</p>
 <p style="margin-top:2.5rem;font-size:.85rem;color:#555;line-height:1.5;">CityAlight Music,  2018<br>
 CCLI 62951 (main copyright licence)<br>
 CCLI 174113 (streaming licence)</p>
+</body>
+</html>
+
+
+### Song 5: As For Me & My House
+
+
+<body style="font-family:Georgia,serif;max-width:480px;margin:2rem auto;padding:0 1rem;">
+<p style="margin-top:2.5rem;font-size:.85rem;color:#555;line-height:1.5;">Oh, choose you this day whom you will serve<br>
+The kingdom of heaven or the powers of earth<br>
+Has He not spoken? Have you not heard?<br>
+There is but one true God</p>
+<p style="margin-top:2.5rem;font-size:.85rem;color:#555;line-height:1.5;">The God of our fathers set us free<br>
+His Son paid the price for our covenant peace<br>
+Through generations His mercy speaks<br>
+We trust in one true God</p>
+<p style="margin-top:2.5rem;font-size:.85rem;color:#555;line-height:1.5;">As for me and my house<br>
+We will serve, serve the Lord<br>
+As for me and my house<br>
+We will serve the Lord our God</p>
+<p style="margin-top:2.5rem;font-size:.85rem;color:#555;line-height:1.5;">This house is the Lord's and all within<br>
+May we be pleasing and holy to Him<br>
+Joined by His Spirit His people sing<br>
+Great is the one true God<br>
+Oh, great Is the living God</p>
+<p style="margin-top:2.5rem;font-size:.85rem;color:#555;line-height:1.5;">As for me and my house<br>
+We will serve, serve the Lord<br>
+As for me and my house<br>
+We will serve the Lord our God</p>
+<p style="margin-top:2.5rem;font-size:.85rem;color:#555;line-height:1.5;">Oh, praise the Father, praise the Son<br>
+Praise the Spirit now in us<br>
+Let every heart and every tongue<br>
+Praise the one true God</p>
+<p style="margin-top:2.5rem;font-size:.85rem;color:#555;line-height:1.5;">Oh, praise the Father, praise the Son<br>
+Praise the Spirit now in us<br>
+Let every heart and every tongue<br>
+Praise the one true God</p>
+<p style="margin-top:2.5rem;font-size:.85rem;color:#555;line-height:1.5;">As for me and my house<br>
+We will serve, serve the Lord<br>
+As for me and my house<br>
+We will serve the Lord our God</p>
+<p style="margin-top:2.5rem;font-size:.85rem;color:#555;line-height:1.5;">As for me and my house<br>
+We will serve, serve the Lord<br>
+As for me and my house<br>
+We will serve the Lord our God</p>
+<p style="margin-top:2.5rem;font-size:.85rem;color:#555;line-height:1.5;">Cochren &amp; Co., Keith &amp; Kristyn Getty, 2025</p>
 </body>
 </html>
