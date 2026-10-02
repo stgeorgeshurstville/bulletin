@@ -222,45 +222,44 @@ CCLI 174113 (streaming licence)
 <html lang="en">
 <head>
 <meta charset="utf-8">
-<title>Lyrics</title>
 </head>
 <body style="font-family:Georgia,serif;max-width:480px;margin:2rem auto;padding:0 1rem;">
-<p style="margin-top:2.5rem;font-size:.85rem;color:#555;line-height:1.5;">[Verse 1]<br>
+<p style="margin-top:2.5rem;font-size:.85rem;color:#555;line-height:1.5;"><br>
 What gift of grace is Jesus, my redeemer<br>
 There is no more for heaven now to give<br>
 He is my joy, my righteousness, and freedom<br>
 My steadfast love, my deep and boundless peace</p>
-<p style="margin-top:2.5rem;font-size:.85rem;color:#555;line-height:1.5;">[Chorus 1]<br>
+<p style="margin-top:2.5rem;font-size:.85rem;color:#555;line-height:1.5;"><br>
 To this I hold, my hope is only Jesus<br>
 For my life is wholly bound to His<br>
 Oh, how strange and divine, I can sing: All is mine!<br>
 Yet not I, but through Christ in me</p>
-<p style="margin-top:2.5rem;font-size:.85rem;color:#555;line-height:1.5;">[Verse 2]<br>
+<p style="margin-top:2.5rem;font-size:.85rem;color:#555;line-height:1.5;"><br>
 The night is dark but I am not forsaken<br>
 For by my side, the Saviour He will stay<br>
 I labour on in weakness and rejoicing<br>
 For in my need, His power is displayed</p>
-<p style="margin-top:2.5rem;font-size:.85rem;color:#555;line-height:1.5;">[Chorus 2]<br>
+<p style="margin-top:2.5rem;font-size:.85rem;color:#555;line-height:1.5;"><br>
 To this I hold, my Shepherd will defend me<br>
 Through the deepest valley, He will lead<br>
 Oh, the night has been won, and I shall overcome<br>
 Yet not I, but through Christ in me</p>
-<p style="margin-top:2.5rem;font-size:.85rem;color:#555;line-height:1.5;">[Verse 3]<br>
+<p style="margin-top:2.5rem;font-size:.85rem;color:#555;line-height:1.5;"><br>
 No fate I dread, I know I am forgiven<br>
 The future sure, the price it has been paid<br>
 For Jesus bled and suffered for my pardon<br>
 And He was raised to overthrow the grave</p>
-<p style="margin-top:2.5rem;font-size:.85rem;color:#555;line-height:1.5;">[Chorus 3]<br>
+<p style="margin-top:2.5rem;font-size:.85rem;color:#555;line-height:1.5;"><br>
 To this I hold, my sin has been defeated<br>
 Jesus now and ever is my plea<br>
 Oh, the chains are released, I can sing: I am free!<br>
 Yet not I, but through Christ in me</p>
-<p style="margin-top:2.5rem;font-size:.85rem;color:#555;line-height:1.5;">[Verse 4]<br>
+<p style="margin-top:2.5rem;font-size:.85rem;color:#555;line-height:1.5;"><br>
 With every breath, I long to follow Jesus<br>
 For He has said that He will bring me home<br>
 And day by day I know He will renew me<br>
 Until I stand with joy before the throne</p>
-<p style="margin-top:2.5rem;font-size:.85rem;color:#555;line-height:1.5;">[Chorus 4]<br>
+<p style="margin-top:2.5rem;font-size:.85rem;color:#555;line-height:1.5;"><br>
 To this I hold, my hope is only Jesus<br>
 All the glory evermore to Him<br>
 When the race is complete, still my lips shall repeat:<br>
