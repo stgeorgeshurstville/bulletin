@@ -113,100 +113,108 @@ How great Thou art!</p>
 <div class="credits"><p>Carl Boberg, 1886<br>CCLI 62951 (main copyright licence)<br>CCLI 174113 (streaming licence)</p></div>
 
 
-### Song 2: Knowing You, Jesus
+### Song 2: God Always Keeps His Promises
 
-All I once held dear, built my life upon<br>
-All this world reveres, and wars to own<br>
-All I once thought gain I have counted loss<br>
-Spent and worthless now, compared to this<br>
- 
-Knowing You, Jesus<br>
-Knowing You<br>
-There is no greater thing<br>
-You're my all, You're the best<br>
-You're my joy, my righteousness<br>
-And I love You, Lord<br>
- 
-Now my heart's desire is to know You more<br>
-To be found in You and known as Yours<br>
-To possess by faith what I could not earn<br>
-All-surpassing gift of righteousness<br>
- 
-Knowing You, Jesus<br>
-Knowing You<br>
-There is no greater thing<br>
-You're my all, You're the best<br>
-You're my joy, my righteousness<br>
-And I love You, Lord<br>
- 
-Oh, to know the power of Your risen life<br>
-And to know You in Your sufferings<br>
-To become like You in Your death, my Lord<br>
-So with You to live and never die<br>
- 
-Knowing You, Jesus<br>
-Knowing You<br>
-There is no greater thing<br>
-You're my all, You're the best<br>
-You're my joy, my righteousness<br>
-And I love You, Lord<br>
- 
-Knowing You, Jesus<br>
-Knowing You<br>
-There is no greater thing<br>
-You're my all, You're the best<br>
-You're my joy, my righteousness<br>
- 
-You're my all, You're the best<br>
-You're my joy, my righteousness<br>
-And I love You, Lord<br>
-And I love You, Lord<br>
- 
-© 1995 Graham Kendrick,Make Way Music<br>
-CCLI 62951 (main copyright licence)<br>
-CCLI 174113 (streaming licence)<br>
+<div class="section">
+<p class="label">VERSE 1</p>
+<p class="lines">Oh, God He always keeps His promises
+He said the sons of Abraham
+Would be more than the grains of sand
+And so, his family grew
+Underneath the Pharaoh’s rule</p>
+</div>
+<div class="section">
+<p class="label">VERSE 2</p>
+<p class="lines">Oh, God He always keeps His promises
+He said the blood upon the door
+Would keep the Israelites secure
+And so, He stayed His hand
+And led them to the Promised Land</p>
+</div>
+<div class="section chorus">
+<p class="label">CHORUS</p>
+<p class="lines">Our God is good and true
+He cannot lie to me and you
+We can be sure of this:
+God always keeps His promises</p>
+</div>
+<div class="section">
+<p class="label">VERSE 3</p>
+<p class="lines">Oh, God He always keeps His promises
+He gave us laws to be obeyed
+And we broke every one He made
+But when we ran from Him
+God said He’d take care of our sin</p>
+</div>
+<div class="section chorus">
+<p class="label">CHORUS</p>
+<p class="lines">Our God is good and true
+He cannot lie to me and you
+We can be sure of this:
+God always keeps His promises</p>
+</div>
+<div class="section">
+<p class="label">VERSE 4</p>
+<p class="lines">Oh, God He always keeps His promises
+He said His Son would set us free
+Through His death at Calvary
+He suffered in our place
+And then He rose up from the grave</p>
+</div>
+<div class="section chorus">
+<p class="label">CHORUS</p>
+<p class="lines">Our God is good and true
+He cannot lie to me and you
+We can be sure of this:
+God always keeps His promises</p>
+</div>
+<div class="section chorus">
+<p class="label">CHORUS</p>
+<p class="lines">Our God is good and true
+He cannot lie to me and you
+We can be sure of this:
+God always keeps His promises</p>
+</div>
+<div class="credits"><p>Music and words by Jon Althoff and Bob Kauflin. © 2015 Sovereign Grace<br>CCLI 62951 (main copyright licence)<br>CCLI 174113 (streaming licence)</p></div>
 
 
-### Song 3: Nothing can I boast in
+### Song 3: The Servant King
 
-Verse 1<br>
- At God’s perfect timing,<br>
- Christ died for fallen man.<br>
- He wore a crown of thorns,<br>
- Nails driven through his hands.<br>
- Christ willingly endured it,<br>
- To death he chose to go.<br>
- He broke his body for us,<br>
- Shed blood to make us whole.<br>
- 
-Verse 2<br>
- Nothing can I boast in,<br>
- My life is scarred with sin.<br>
- My works are filthy rags,<br>
- No merit can I bring.<br>
- Yet mercy filled Christ’s heart,<br>
- Love took him to the tree.<br>
- It’s grace alone which saves me;<br>
- Christ’s blood that sets me free.<br>
- 
-Verse 3<br>
- So if I am boasting,<br>
- I’ll speak of my disgrace.<br>
- For my weak self displays<br>
- The power of God’s grace.<br>
- Christ’s Spirit works within me,<br>
- In weakness he is strong.<br>
- So I look to my Saviour<br>
- To safely bring me home.<br>
- 
-Christ’s Spirit works within me,<br>
- In weakness he is strong.<br>
- So I look to my Saviour<br>
- To safely bring me home.<br>
- 
-CCLI Song # 2149181 © 1996 Bryson Smith, Philip Percival<br>
-CCLI 62951 (main copyright licence)<br>
-CCLI 174113 (streaming licence)<br>
+From heaven you came helpless babe
+Entered our world, your glory veiled
+Not to be served but to serve
+And give Your life that we might live
+
+This is our God, The Servant King
+He calls us now to follow Him
+To bring our lives as a daily offering
+Of worship to The Servant King
+
+There in the garden of tears
+My heavy load he chose to bear
+His heart with sorrow was torn
+'Yet not My will but Yours, ' He said
+
+This is our God, The Servant King
+He calls us now to follow Him
+To bring our lives as a daily offering
+Of worship to The Servant King
+
+Come see His hands and His feet
+The scars that speak of sacrifice
+Hands that flung stars into space
+To cruel nails surrendered
+
+This is our God, The Servant King
+He calls us now to follow Him
+To bring our lives as a daily offering
+Of worship to The Servant King
+
+Of worship to The Servant King
+
+Graham Kendrick ‧ 1988
+CCLI 62951 (main copyright licence)
+CCLI 174113 (streaming licence)
 
 ### Song 4: When I survey the wondrous cross
 
