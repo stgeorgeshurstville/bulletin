@@ -100,67 +100,53 @@ CCLI 174113 (streaming licence)</p>
 
 ### Song 2: God Always Keeps His Promises
 
-<div class="section">
-<p class="label">VERSE 1</p>
-<p class="lines">Oh, God He always keeps His promises
-He said the sons of Abraham
-Would be more than the grains of sand
-And so, his family grew
+<!DOCTYPE html>
+<html lang="en">
+<head>
+<meta charset="utf-8">
+</head>
+<body style="font-family:Georgia,serif;max-width:480px;margin:2rem auto;padding:0 1rem;">
+<p style="margin-top:2.5rem;font-size:.85rem;color:#555;line-height:1.5;">Oh, God He always keeps His promises<br>
+He said the sons of Abraham<br>
+Would be more than the grains of sand<br>
+And so, his family grew<br>
 Underneath the Pharaoh’s rule</p>
-</div>
-<div class="section">
-<p class="label">VERSE 2</p>
-<p class="lines">Oh, God He always keeps His promises
-He said the blood upon the door
-Would keep the Israelites secure
-And so, He stayed His hand
+<p style="margin-top:2.5rem;font-size:.85rem;color:#555;line-height:1.5;">Oh, God He always keeps His promises<br>
+He said the blood upon the door<br>
+Would keep the Israelites secure<br>
+And so, He stayed His hand<br>
 And led them to the Promised Land</p>
-</div>
-<div class="section chorus">
-<p class="label">CHORUS</p>
-<p class="lines">Our God is good and true
-He cannot lie to me and you
-We can be sure of this:
+<p style="margin-top:2.5rem;font-size:.85rem;color:#555;line-height:1.5;">Our God is good and true<br>
+He cannot lie to me and you<br>
+We can be sure of this:<br>
 God always keeps His promises</p>
-</div>
-<div class="section">
-<p class="label">VERSE 3</p>
-<p class="lines">Oh, God He always keeps His promises
-He gave us laws to be obeyed
-And we broke every one He made
-But when we ran from Him
+<p style="margin-top:2.5rem;font-size:.85rem;color:#555;line-height:1.5;">Oh, God He always keeps His promises<br>
+He gave us laws to be obeyed<br>
+And we broke every one He made<br>
+But when we ran from Him<br>
 God said He’d take care of our sin</p>
-</div>
-<div class="section chorus">
-<p class="label">CHORUS</p>
-<p class="lines">Our God is good and true
-He cannot lie to me and you
-We can be sure of this:
+<p style="margin-top:2.5rem;font-size:.85rem;color:#555;line-height:1.5;">Our God is good and true<br>
+He cannot lie to me and you<br>
+We can be sure of this:<br>
 God always keeps His promises</p>
-</div>
-<div class="section">
-<p class="label">VERSE 4</p>
-<p class="lines">Oh, God He always keeps His promises
-He said His Son would set us free
-Through His death at Calvary
-He suffered in our place
+<p style="margin-top:2.5rem;font-size:.85rem;color:#555;line-height:1.5;">Oh, God He always keeps His promises<br>
+He said His Son would set us free<br>
+Through His death at Calvary<br>
+He suffered in our place<br>
 And then He rose up from the grave</p>
-</div>
-<div class="section chorus">
-<p class="label">CHORUS</p>
-<p class="lines">Our God is good and true
-He cannot lie to me and you
-We can be sure of this:
+<p style="margin-top:2.5rem;font-size:.85rem;color:#555;line-height:1.5;">Our God is good and true<br>
+He cannot lie to me and you<br>
+We can be sure of this:<br>
 God always keeps His promises</p>
-</div>
-<div class="section chorus">
-<p class="label">CHORUS</p>
-<p class="lines">Our God is good and true
-He cannot lie to me and you
-We can be sure of this:
+<p style="margin-top:2.5rem;font-size:.85rem;color:#555;line-height:1.5;">Our God is good and true<br>
+He cannot lie to me and you<br>
+We can be sure of this:<br>
 God always keeps His promises</p>
-</div>
-<div class="credits"><p>Music and words by Jon Althoff and Bob Kauflin. © 2015 Sovereign Grace<br>CCLI 62951 (main copyright licence)<br>CCLI 174113 (streaming licence)</p></div>
+<p style="margin-top:2.5rem;font-size:.85rem;color:#555;line-height:1.5;">Music and words by Jon Althoff and Bob Kauflin. © 2015 Sovereign Grace<br>
+CCLI 62951 (main copyright licence)<br>
+CCLI 174113 (streaming licence)</p>
+</body>
+</html>
 
 
 ### Song 3: The Servant King
