@@ -30,10 +30,11 @@ Whatever anyone else dares to boast about—I am speaking as a fool—I also dar
 ³⁰ If I must boast, I will boast of the things that show my weakness. ³¹ The God and Father of the Lord Jesus, who is to be praised forever, knows that I am not lying. ³² In Damascus the governor under King Aretas had the city of the Damascenes guarded in order to arrest me. ³³ But I was lowered in a basket from a window in the wall and slipped through his hands.
 
 ## Sermon Outline <br>
-1. Going straight into the pool room
-2. Paul brags
-3. Just copying
-4. Conclusions
+- Something people don’t know 
+- Paul in a basket 
+- Paul in pain 
+- God at work 
+
 
 
 
