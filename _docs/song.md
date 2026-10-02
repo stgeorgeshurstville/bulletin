@@ -4,18 +4,18 @@ order: 1
 ---
 
 ## 9:30am 
-1. His Mercy is More
-2. Knowing You, Jesus
-3. Nothing can I boast in
-4. This Life I Live
+1. How Great Thou Art
+2. God Always Keeps His Promises
+3. The Servant King
+4. Yet Not I
 
 **Scroll below for 9:30am song lyrics**
 
 ## 4:00pm
-1. The God we Love (Nicene Creed)
-2. Christ Our Wisdom
-3. When I survey the wondrous cross
-4. Before the Throne of God Above
+1. Jerusalem
+2. Jesus Strong and Kind
+3. Nothing can I boast in
+4. Completely known, completely loved
    
 
 ## 9:30am Song Lyrics <br>
