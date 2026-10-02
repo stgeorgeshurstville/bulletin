@@ -20,43 +20,97 @@ order: 1
 
 ## 9:30am Song Lyrics <br>
 
-### Song 1: His Mercy is More
+### Song 1: How Great Thou Art
 
-What love could remember no wrongs we have done<br>
-Omniscient, all knowing, He counts not their sum<br>
-Thrown into a sea without bottom or shore<br>
-Our sins they are many, His mercy is more<br>
- 
-Praise the Lord, His mercy is more<br>
-Stronger than darkness, new every morn<br>
-Our sins they are many, His mercy is more<br>
- 
-What patience would wait as we constantly roam<br>
-What Father, so tender, is calling us home<br>
-He welcomes the weakest, the vilest, the poor<br>
-Our sins they are many, His mercy is more<br>
- 
-Praise the Lord, His mercy is more<br>
-Stronger than darkness, new every morn<br>
-Our sins they are many, His mercy is more<br>
- 
-What riches of kindness He lavished on us<br>
-His blood was the payment, His life was the cost<br>
-We stood 'neath a debt we could never afford<br>
-Our sins they are many, His mercy is more<br>
- 
-Praise the Lord, His mercy is more<br>
-Stronger than darkness, new every morn<br>
-Our sins they are many, His mercy is more<br>
- 
-Praise the Lord, His mercy is more<br>
-Stronger than darkness, new every morn<br>
-Our sins they are many, His mercy is more<br>
-Our sins they are many, His mercy is mоre<br>
-
-© 2018 Publishing, Getty Music Publishing, Getty Music Hymns And Songs <br>
-CCLI 62951 (main copyright licence)<br>
-CCLI 174113 (streaming licence)<br>
+<div class="section">
+<p class="label">Verse 1</p>
+<p class="lines">O Lord my God
+When I in awesome wonder
+Consider all the works
+Thy hands have made,
+I see the stars,
+I hear the rolling thunder,
+Thy pow'r throughout
+The universe displayed!</p>
+</div>
+<div class="section chorus">
+<p class="label">Chorus</p>
+<p class="lines">Then sings my soul,
+My Savior God, to Thee;
+How great Thou art,
+How great Thou art!
+Then sings my soul,
+My Savior God, to Thee;
+How great Thou art,
+How great Thou art!</p>
+</div>
+<div class="section">
+<p class="label">Verse 2</p>
+<p class="lines">When thru the woods
+And forest glades I wander
+And hear the birds
+Sing sweetly in the trees,
+When I look down
+From lofty mountain grandeur
+And hear the brook
+And feel the gentle breeze,</p>
+</div>
+<div class="section chorus">
+<p class="label">Chorus</p>
+<p class="lines">Then sings my soul,
+My Savior God, to Thee;
+How great Thou art,
+How great Thou art!
+Then sings my soul,
+My Savior God, to Thee;
+How great Thou art,
+How great Thou art!</p>
+</div>
+<div class="section">
+<p class="label">Verse 3</p>
+<p class="lines">And when I think
+That God, His Son not sparing,
+Sent Him to die,
+I scarce can take it in -
+That on the cross,
+My burden gladly bearing,
+He bled and died
+To take away my sin!</p>
+</div>
+<div class="section chorus">
+<p class="label">Chorus</p>
+<p class="lines">Then sings my soul,
+My Savior God, to Thee;
+How great Thou art,
+How great Thou art!
+Then sings my soul,
+My Savior God, to Thee;
+How great Thou art,
+How great Thou art!</p>
+</div>
+<div class="section">
+<p class="label">Verse 4</p>
+<p class="lines">When Christ shall come
+With shout of acclamation
+And take me home,
+What joy shall fill my heart!
+Then I shall bow
+In humble adoration
+And there proclaim,
+My God, how great Thou art!</p>
+</div>
+<div class="section chorus">
+<p class="label">Chorus</p>
+<p class="lines">Then sings my soul,
+My Savior God, to Thee;
+How great Thou art,
+How great Thou art!
+Then sings my soul,
+My Savior God, to Thee;
+How great Thou art,
+How great Thou art!</p>
+</div>
+<div class="credits"><p>Carl Boberg, 1886<br>CCLI 62951 (main copyright licence)<br>CCLI 174113 (streaming licence)</p></div>
 
 
 ### Song 2: Knowing You, Jesus
