@@ -22,11 +22,6 @@ order: 1
 
 ### Song 1: How Great Thou Art
 
-<!DOCTYPE html>
-<html lang="en">
-<head>
-<meta charset="utf-8">
-</head>
 <body style="font-family:Georgia,serif;max-width:480px;margin:2rem auto;padding:0 1rem;">
 <p style="margin-top:2.5rem;font-size:.85rem;color:#555;line-height:1.5;">O Lord my God<br>
 When I in awesome wonder<br>
@@ -96,7 +91,6 @@ How great Thou art!</p>
 CCLI 62951 (main copyright licence)<br>
 CCLI 174113 (streaming licence)</p>
 </body>
-</html>
 
 ### Song 2: God Always Keeps His Promises
 
