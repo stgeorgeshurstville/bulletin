@@ -216,33 +216,58 @@ Graham Kendrick ‧ 1988
 CCLI 62951 (main copyright licence)
 CCLI 174113 (streaming licence)
 
-### Song 4: When I survey the wondrous cross
+### Song 4: Yet Not I
 
-When I survey the wondrous cross<br>
-On which the Prince of glory died,<br>
-My richest gain I count but loss,<br>
-And pour contempt on all my pride.<br>
-
-
-Forbid it, Lord, that I should boast,<br>
-Save in the death of Christ my God!<br>
-All the vain things that charm me most,<br>
-I sacrifice them to His blood.<br>
-
-
-See from His head, His hands, His feet,<br>
-Sorrow and love flow mingled down!<br>
-Did e’er such love and sorrow meet,<br>
-Or thorns compose so rich a crown?<br>
-
-
-Were the whole realm of nature mine,<br>
-That were an off’ring far too small;<br>
-Love so amazing, so divine,<br>
-Demands my soul, my life, my all.<br>
-
-
-Love so amazing, so divine,<br>
-Demands my soul, my life, my all.<br><br>
-
-Public Domain. Words and melody by Isaac Watts. CCLI #3296590<br>
+<!DOCTYPE html>
+<html lang="en">
+<head>
+<meta charset="utf-8">
+<title>Lyrics</title>
+</head>
+<body style="font-family:Georgia,serif;max-width:480px;margin:2rem auto;padding:0 1rem;">
+<p style="margin-top:2.5rem;font-size:.85rem;color:#555;line-height:1.5;">[Verse 1]<br>
+What gift of grace is Jesus, my redeemer<br>
+There is no more for heaven now to give<br>
+He is my joy, my righteousness, and freedom<br>
+My steadfast love, my deep and boundless peace</p>
+<p style="margin-top:2.5rem;font-size:.85rem;color:#555;line-height:1.5;">[Chorus 1]<br>
+To this I hold, my hope is only Jesus<br>
+For my life is wholly bound to His<br>
+Oh, how strange and divine, I can sing: All is mine!<br>
+Yet not I, but through Christ in me</p>
+<p style="margin-top:2.5rem;font-size:.85rem;color:#555;line-height:1.5;">[Verse 2]<br>
+The night is dark but I am not forsaken<br>
+For by my side, the Saviour He will stay<br>
+I labour on in weakness and rejoicing<br>
+For in my need, His power is displayed</p>
+<p style="margin-top:2.5rem;font-size:.85rem;color:#555;line-height:1.5;">[Chorus 2]<br>
+To this I hold, my Shepherd will defend me<br>
+Through the deepest valley, He will lead<br>
+Oh, the night has been won, and I shall overcome<br>
+Yet not I, but through Christ in me</p>
+<p style="margin-top:2.5rem;font-size:.85rem;color:#555;line-height:1.5;">[Verse 3]<br>
+No fate I dread, I know I am forgiven<br>
+The future sure, the price it has been paid<br>
+For Jesus bled and suffered for my pardon<br>
+And He was raised to overthrow the grave</p>
+<p style="margin-top:2.5rem;font-size:.85rem;color:#555;line-height:1.5;">[Chorus 3]<br>
+To this I hold, my sin has been defeated<br>
+Jesus now and ever is my plea<br>
+Oh, the chains are released, I can sing: I am free!<br>
+Yet not I, but through Christ in me</p>
+<p style="margin-top:2.5rem;font-size:.85rem;color:#555;line-height:1.5;">[Verse 4]<br>
+With every breath, I long to follow Jesus<br>
+For He has said that He will bring me home<br>
+And day by day I know He will renew me<br>
+Until I stand with joy before the throne</p>
+<p style="margin-top:2.5rem;font-size:.85rem;color:#555;line-height:1.5;">[Chorus 4]<br>
+To this I hold, my hope is only Jesus<br>
+All the glory evermore to Him<br>
+When the race is complete, still my lips shall repeat:<br>
+Yet not I, but through Christ in me!</p>
+<p style="margin-top:2.5rem;font-size:.85rem;color:#555;line-height:1.5;">Yet not I, but through Christ in me!</p>
+<p style="margin-top:2.5rem;font-size:.85rem;color:#555;line-height:1.5;">CityAlight Music,  2018<br>
+CCLI 62951 (main copyright licence)<br>
+CCLI 174113 (streaming licence)</p>
+</body>
+</html>
