@@ -14,7 +14,11 @@ order: 5
 
 ### Kids Holiday Hub 
 
-A pupil-free day of LEGO games, building challenges & learning how Jesus brings new life! Morning tea & lunch provided. After two weeks of school holidays, you might be running out of options to keep the kids entertained. This pupil-free day on October 12th, we’ve got you covered! <br><br> Our Kids Holiday Hub is back for a full day of hands-on fun as we dive into the world of LEGO. Kids will tackle creative building challenges, team up for fun games, and discover how Jesus was raised from the dead—showing us that new life and hope can be built out of anything! We’ll wrap up the day relaxing with a G-rated movie. Morning tea and lunch are fully included, so your young builder is all set for an awesome, hassle-free day!
+Kids Holiday Hub: A pupil-free day of LEGO games, building challenges & learning how Jesus brings new life! Morning tea & lunch provided. <br><br>
+After two weeks of school holidays, you might be running out of options to keep the kids entertained. This pupil-free day on October 12th, we’ve got you covered! <br><br>
+Our Kids Holiday Hub is back for a full day of hands-on fun as we dive into the world of LEGO. Kids will tackle creative building challenges, team up for fun games, and discover how Jesus was raised from the dead—showing us that new life and hope can be built out of anything! <br><br>
+We’ll wrap up the day relaxing with a G-rated movie. Morning tea and lunch are fully included, so your young builder is all set for an awesome, hassle-free day!
+
 - **Date:** 12th of October
 - **Time:** Check in 9:00am (program starting at 9:30) 
 - **Finish time:** 3:00pm 
