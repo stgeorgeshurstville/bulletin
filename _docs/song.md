@@ -22,96 +22,82 @@ order: 1
 
 ### Song 1: How Great Thou Art
 
-<div class="section">
-<p class="label">Verse 1</p>
-<p class="lines">O Lord my God
-When I in awesome wonder
-Consider all the works
-Thy hands have made,
-I see the stars,
-I hear the rolling thunder,
-Thy pow'r throughout
+<!DOCTYPE html>
+<html lang="en">
+<head>
+<meta charset="utf-8">
+<title>Lyrics</title>
+</head>
+<body style="font-family:Georgia,serif;max-width:480px;margin:2rem auto;padding:0 1rem;">
+<p style="margin-top:2.5rem;font-size:.85rem;color:#555;line-height:1.5;">O Lord my God<br>
+When I in awesome wonder<br>
+Consider all the works<br>
+Thy hands have made,<br>
+I see the stars,<br>
+I hear the rolling thunder,<br>
+Thy pow'r throughout<br>
 The universe displayed!</p>
-</div>
-<div class="section chorus">
-<p class="label">Chorus</p>
-<p class="lines">Then sings my soul,
-My Savior God, to Thee;
-How great Thou art,
-How great Thou art!
-Then sings my soul,
-My Savior God, to Thee;
-How great Thou art,
+<p style="margin-top:2.5rem;font-size:.85rem;color:#555;line-height:1.5;">Then sings my soul,<br>
+My Savior God, to Thee;<br>
+How great Thou art,<br>
+How great Thou art!<br>
+Then sings my soul,<br>
+My Savior God, to Thee;<br>
+How great Thou art,<br>
 How great Thou art!</p>
-</div>
-<div class="section">
-<p class="label">Verse 2</p>
-<p class="lines">When thru the woods
-And forest glades I wander
-And hear the birds
-Sing sweetly in the trees,
-When I look down
-From lofty mountain grandeur
-And hear the brook
+<p style="margin-top:2.5rem;font-size:.85rem;color:#555;line-height:1.5;">When thru the woods<br>
+And forest glades I wander<br>
+And hear the birds<br>
+Sing sweetly in the trees,<br>
+When I look down<br>
+From lofty mountain grandeur<br>
+And hear the brook<br>
 And feel the gentle breeze,</p>
-</div>
-<div class="section chorus">
-<p class="label">Chorus</p>
-<p class="lines">Then sings my soul,
-My Savior God, to Thee;
-How great Thou art,
-How great Thou art!
-Then sings my soul,
-My Savior God, to Thee;
-How great Thou art,
+<p style="margin-top:2.5rem;font-size:.85rem;color:#555;line-height:1.5;">Then sings my soul,<br>
+My Savior God, to Thee;<br>
+How great Thou art,<br>
+How great Thou art!<br>
+Then sings my soul,<br>
+My Savior God, to Thee;<br>
+How great Thou art,<br>
 How great Thou art!</p>
-</div>
-<div class="section">
-<p class="label">Verse 3</p>
-<p class="lines">And when I think
-That God, His Son not sparing,
-Sent Him to die,
-I scarce can take it in -
-That on the cross,
-My burden gladly bearing,
-He bled and died
+<p style="margin-top:2.5rem;font-size:.85rem;color:#555;line-height:1.5;">And when I think<br>
+That God, His Son not sparing,<br>
+Sent Him to die,<br>
+I scarce can take it in -<br>
+That on the cross,<br>
+My burden gladly bearing,<br>
+He bled and died<br>
 To take away my sin!</p>
-</div>
-<div class="section chorus">
-<p class="label">Chorus</p>
-<p class="lines">Then sings my soul,
-My Savior God, to Thee;
-How great Thou art,
-How great Thou art!
-Then sings my soul,
-My Savior God, to Thee;
-How great Thou art,
+<p style="margin-top:2.5rem;font-size:.85rem;color:#555;line-height:1.5;">Then sings my soul,<br>
+My Savior God, to Thee;<br>
+How great Thou art,<br>
+How great Thou art!<br>
+Then sings my soul,<br>
+My Savior God, to Thee;<br>
+How great Thou art,<br>
 How great Thou art!</p>
-</div>
-<div class="section">
-<p class="label">Verse 4</p>
-<p class="lines">When Christ shall come
-With shout of acclamation
-And take me home,
-What joy shall fill my heart!
-Then I shall bow
-In humble adoration
-And there proclaim,
+<p style="margin-top:2.5rem;font-size:.85rem;color:#555;line-height:1.5;">When Christ shall come<br>
+With shout of acclamation<br>
+And take me home,<br>
+What joy shall fill my heart!<br>
+Then I shall bow<br>
+In humble adoration<br>
+And there proclaim,<br>
 My God, how great Thou art!</p>
-</div>
-<div class="section chorus">
-<p class="label">Chorus</p>
-<p class="lines">Then sings my soul,
-My Savior God, to Thee;
-How great Thou art,
-How great Thou art!
-Then sings my soul,
-My Savior God, to Thee;
-How great Thou art,
+<p style="margin-top:2.5rem;font-size:.85rem;color:#555;line-height:1.5;">Then sings my soul,<br>
+My Savior God, to Thee;<br>
+How great Thou art,<br>
+How great Thou art!<br>
+Then sings my soul,<br>
+My Savior God, to Thee;<br>
+How great Thou art,<br>
 How great Thou art!</p>
-</div>
-<div class="credits"><p>Carl Boberg, 1886<br>CCLI 62951 (main copyright licence)<br>CCLI 174113 (streaming licence)</p></div>
-
+<p style="margin-top:2.5rem;font-size:.85rem;color:#555;line-height:1.5;">Carl Boberg, 1886<br>
+CCLI 62951 (main copyright licence)<br>
+CCLI 174113 (streaming licence)</p>
+</body>
+</html>
 
 ### Song 2: God Always Keeps His Promises
 
