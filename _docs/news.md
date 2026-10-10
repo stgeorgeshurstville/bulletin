@@ -26,21 +26,15 @@ We’ll wrap up the day relaxing with a G-rated movie. Morning tea and lunch are
 - **Registration link:** https://www.eventbrite.com/e/kids-holiday-hub-tickets-1999440147304?aff=ebdsoporgprofile
 
 
-### New Bible Series: 'Open Hearts'
+### Mission Partner Visit: Berkeley Life Centre
+<br>
+On **Sunday, 25th October**, we have the privilege of welcoming Pastor Beejai Abrahams, Senior Pastor at Berkeley Life Centre. He will be sharing about the wonderful work God is doing in Berkeley, as well as the unique opportunities and challenges of ministry in a low socio-economic, marginalized community.<br>
+**Op Shop Clothing Drive:**<br>
 
-**The Radical Call of Corinthians 6-13** <br>
-"We have spoken freely to you, Corinthians; our heart is wide open. You are not restricted by us, but you are restricted in your own affections. In return... widen your hearts also." 
-<br>— 2 Corinthians 6:11-13 <br> 
+As part of his visit, we are collecting summer clothing to support their local Op Shop.
+- **Items Needed:** If you'd like a list of specific items that BLC is after, please click on the link.
+- **Drop-offs:** Please contact Ben on **0431 978 673** to arrange a drop-off time prior to 25th October.
 
-How easy is it to keep our guard up—with each other, and even with God?
-
-Starting next Sunday and running throughout Term 3, we are diving into a new teaching series through the latter half of Paul’s second letter to the Corinthians.
-
-In this series, we will explore Paul's raw, vulnerable appeal to the church. Just as he poured out his life to them, he asks them to receive his message with that same open-hearted trust.
-
-Over the coming weeks, our hope is that we will lay down our defenses, open our hearts to God and his message, and allow our lives to be fully transformed by the radical grace of the gospel. 
-
-Join us next Sunday as we begin this journey together!
 
 ### New to the Family? Join "The Bridge"
 If you’ve recently moved into the area or have started making this your home church after moving from another congregation, we’d love to officially welcome you.
