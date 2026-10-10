@@ -25,9 +25,9 @@ We’ll wrap up the day relaxing with a G-rated movie. Morning tea and lunch are
 - **Who:** Kindy to Year 6
 - **Registration link:** https://www.eventbrite.com/e/kids-holiday-hub-tickets-1999440147304?aff=ebdsoporgprofile
 
-
-### Mission Partner Visit: Berkeley Life Centre
 <br>
+### Mission Partner Visit: Berkeley Life Centre
+
 On Sunday, 25th October, we have the privilege of welcoming Pastor Beejai Abrahams, Senior Pastor at Berkeley Life Centre. He will be sharing about the wonderful work God is doing in Berkeley, as well as the unique opportunities and challenges of ministry in a low socio-economic, marginalized community.<br>
 
 **Op Shop Clothing Drive:**
