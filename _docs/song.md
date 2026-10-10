@@ -92,51 +92,42 @@ CCLI 62951 (main copyright licence)<br>
 CCLI 174113 (streaming licence)</p>
 </body>
 
-### Song 2: God Always Keeps His Promises
+### Song 2: Jesus, Strong and Kind 
 
-<!DOCTYPE html>
-<html lang="en">
-<head>
-<meta charset="utf-8">
-</head>
-<body style="font-family:Georgia,serif;max-width:480px;margin:2rem auto;padding:0 1rem;">
-<p style="margin-top:2.5rem;font-size:.85rem;color:#555;line-height:1.5;">Oh, God He always keeps His promises<br>
-He said the sons of Abraham<br>
-Would be more than the grains of sand<br>
-And so, his family grew<br>
-Underneath the Pharaoh’s rule</p>
-<p style="margin-top:2.5rem;font-size:.85rem;color:#555;line-height:1.5;">Oh, God He always keeps His promises<br>
-He said the blood upon the door<br>
-Would keep the Israelites secure<br>
-And so, He stayed His hand<br>
-And led them to the Promised Land</p>
-<p style="margin-top:2.5rem;font-size:.85rem;color:#555;line-height:1.5;">Our God is good and true<br>
-He cannot lie to me and you<br>
-We can be sure of this:<br>
-God always keeps His promises</p>
-<p style="margin-top:2.5rem;font-size:.85rem;color:#555;line-height:1.5;">Oh, God He always keeps His promises<br>
-He gave us laws to be obeyed<br>
-And we broke every one He made<br>
-But when we ran from Him<br>
-God said He’d take care of our sin</p>
-<p style="margin-top:2.5rem;font-size:.85rem;color:#555;line-height:1.5;">Our God is good and true<br>
-He cannot lie to me and you<br>
-We can be sure of this:<br>
-God always keeps His promises</p>
-<p style="margin-top:2.5rem;font-size:.85rem;color:#555;line-height:1.5;">Oh, God He always keeps His promises<br>
-He said His Son would set us free<br>
-Through His death at Calvary<br>
-He suffered in our place<br>
-And then He rose up from the grave</p>
-<p style="margin-top:2.5rem;font-size:.85rem;color:#555;line-height:1.5;">Our God is good and true<br>
-He cannot lie to me and you<br>
-We can be sure of this:<br>
-God always keeps His promises</p>
-<p style="margin-top:2.5rem;font-size:.85rem;color:#555;line-height:1.5;">Our God is good and true<br>
-He cannot lie to me and you<br>
-We can be sure of this:<br>
-God always keeps His promises</p>
-<p style="margin-top:2.5rem;font-size:.85rem;color:#555;line-height:1.5;">Music and words by Jon Althoff and Bob Kauflin. © 2015 Sovereign Grace<br>
+<p style="margin-top:2.5rem;font-size:.85rem;color:#555;line-height:1.5;">Jesus said that if I thirst<br>
+I should come to him<br>
+No one else can satisfy<br>
+I should come to him</p>
+<p style="margin-top:2.5rem;font-size:.85rem;color:#555;line-height:1.5;">Jesus said if I am weak<br>
+I should come to him<br>
+No one else can be my strength<br>
+I should come to him</p>
+<p style="margin-top:2.5rem;font-size:.85rem;color:#555;line-height:1.5;">For the Lord is good and faithful<br>
+He will keep us day and night<br>
+We can always run to Jesus<br>
+Jesus, strong and kind</p>
+<p style="margin-top:2.5rem;font-size:.85rem;color:#555;line-height:1.5;">Jesus said that if I fear<br>
+I should come to him<br>
+No one else can be my shield<br>
+I should come to him</p>
+<p style="margin-top:2.5rem;font-size:.85rem;color:#555;line-height:1.5;">For the Lord is good and faithful<br>
+He will keep us day and night<br>
+We can always run to Jesus<br>
+Jesus, strong and kind</p>
+<p style="margin-top:2.5rem;font-size:.85rem;color:#555;line-height:1.5;">Jesus said if I am lost<br>
+He will come to me<br>
+And he showed me on that cross<br>
+He will come to me</p>
+<p style="margin-top:2.5rem;font-size:.85rem;color:#555;line-height:1.5;">For the Lord is good and faithful<br>
+He will keep us day and night<br>
+We can always run to Jesus<br>
+Jesus, strong and kind</p>
+<p style="margin-top:2.5rem;font-size:.85rem;color:#555;line-height:1.5;">For the Lord is good and faithful<br>
+He will keep us day and night<br>
+We can always run to Jesus<br>
+Jesus, strong and kind<br>
+Jesus, strong and kind</p>
+<p style="margin-top:2.5rem;font-size:.85rem;color:#555;line-height:1.5;">© 2019 CityAlight Music. Words and Music by COLIN BUCHANAN, MICHAEL FARREN, JONNY ROBINSON &amp; RICH<br>
 CCLI 62951 (main copyright licence)<br>
 CCLI 174113 (streaming licence)</p>
 </body>
