@@ -143,38 +143,48 @@ CCLI 174113 (streaming licence)</p>
 </html>
 
 
-### Song 3: The Servant King
+### Song 3: In Christ Alone
 
-<body style="font-family:Georgia,serif;max-width:480px;margin:2rem auto;padding:0 1rem;">
-<p style="margin-top:2.5rem;font-size:.85rem;color:#555;line-height:1.5;">From heaven you came helpless babe<br>
-Entered our world, your glory veiled<br>
-Not to be served but to serve<br>
-And give Your life that we might live</p>
-<p style="margin-top:2.5rem;font-size:.85rem;color:#555;line-height:1.5;">This is our God, The Servant King<br>
-He calls us now to follow Him<br>
-To bring our lives as a daily offering<br>
-Of worship to The Servant King</p>
-<p style="margin-top:2.5rem;font-size:.85rem;color:#555;line-height:1.5;">There in the garden of tears<br>
-My heavy load he chose to bear<br>
-His heart with sorrow was torn<br>
-'Yet not My will but Yours, ' He said</p>
-<p style="margin-top:2.5rem;font-size:.85rem;color:#555;line-height:1.5;">This is our God, The Servant King<br>
-He calls us now to follow Him<br>
-To bring our lives as a daily offering<br>
-Of worship to The Servant King</p>
-<p style="margin-top:2.5rem;font-size:.85rem;color:#555;line-height:1.5;">Come see His hands and His feet<br>
-The scars that speak of sacrifice<br>
-Hands that flung stars into space<br>
-To cruel nails surrendered</p>
-<p style="margin-top:2.5rem;font-size:.85rem;color:#555;line-height:1.5;">This is our God, The Servant King<br>
-He calls us now to follow Him<br>
-To bring our lives as a daily offering<br>
-Of worship to The Servant King</p>
-<p style="margin-top:2.5rem;font-size:.85rem;color:#555;line-height:1.5;">Of worship to The Servant King</p>
-<p style="margin-top:2.5rem;font-size:.85rem;color:#555;line-height:1.5;">Graham Kendrick ‧ 1988<br>
-CCLI 62951 (main copyright licence)<br>
-CCLI 174113 (streaming licence)</p>
+<p style="margin-top:2.5rem;font-size:.85rem;color:#555;line-height:1.5;">In Christ alone my hope is found,<br>
+He is my light, my strength, my song;<br>
+This Cornerstone, this solid Ground,<br>
+Firm through the fiercest drought and storm.</p>
+<p style="margin-top:2.5rem;font-size:.85rem;color:#555;line-height:1.5;">What heights of love, what depths of peace,<br>
+When fears are stilled, when strivings cease!<br>
+My Comforter, my All in All,<br>
+Here in the love of Christ I stand.</p>
+<p style="margin-top:2.5rem;font-size:.85rem;color:#555;line-height:1.5;">In Christ alone! – who took on flesh,<br>
+Fullness of God in helpless babe.<br>
+This gift of love and righteousness,<br>
+Scorned by the ones He came to save:</p>
+<p style="margin-top:2.5rem;font-size:.85rem;color:#555;line-height:1.5;">Till on that cross as Jesus died,<br>
+The wrath of God was satisfied<br>
+For every sin on Him was laid;<br>
+Here in the death of Christ I live.</p>
+<p style="margin-top:2.5rem;font-size:.85rem;color:#555;line-height:1.5;">There in the ground His body lay,<br>
+Light of the world by darkness slain:<br>
+Then bursting forth in glorious day<br>
+Up from the grave He rose again!</p>
+<p style="margin-top:2.5rem;font-size:.85rem;color:#555;line-height:1.5;">And as He stands in victory<br>
+Sin’s curse has lost its grip on me,<br>
+For I am His and He is mine<br>
+Bought with the precious blood of Christ.</p>
+<p style="margin-top:2.5rem;font-size:.85rem;color:#555;line-height:1.5;">No guilt in life, no fear in death,<br>
+This is the power of Christ in me<br>
+From life’s first cry to final breath,<br>
+Jesus commands my destiny.</p>
+<p style="margin-top:2.5rem;font-size:.85rem;color:#555;line-height:1.5;">No power of hell, no scheme of man,<br>
+Can ever pluck me from His hand:<br>
+Till He returns or calls me home,<br>
+Here in the power of Christ I’ll stand.</p>
+<p style="margin-top:2.5rem;font-size:.85rem;color:#555;line-height:1.5;">No power of hell, no scheme of man,<br>
+Can ever pluck me from His hand:<br>
+Till He returns or calls me home,<br>
+Here in the power of Christ I’ll stand.</p>
+<p style="margin-top:2.5rem;font-size:.85rem;color:#555;line-height:1.5;">CCLI #:3350395;  Stuart Townend &amp; Keith Getty Copyright © 2001 Thankyou Music<br>
+CCLI 62951 (main copyright licence)</p>
 </body>
+</html>
 
 ### Song 4: What a Friend We Have in Jesus
 
