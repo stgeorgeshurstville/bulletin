@@ -10,9 +10,9 @@ title: Welcome
 [comment]: ----------------------------------------------------  
 
 ## Open Hearts
-#### "We have thought on your steadfast love, O God, in the midst of your temple. As your Name, so your praise reaches to the end of the earth. Your right hand is filled with victory.”
+#### "The Lord is my light and my salvation; whom shall I fear? The Lord is the stronghold of my life; of whom shall I be afraid?”
 
-##### Psalm 48: 9-10
+##### Psalm 27: 1
 
 ---
 - We are gathering in person! For people who can’t gather in person, you can watch online [here](https://stgeorgeshurstville.org.au/sunday-english-online)
