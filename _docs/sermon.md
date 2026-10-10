@@ -58,6 +58,7 @@ Dear God, thank you for letting us know you. Please help us learn from your word
 ⁵ Examine yourselves to see whether you are in the faith; test yourselves. Do you not realize that Christ Jesus is in you—unless, of course, you fail the test? ⁶ And I trust that you will discover that we have not failed the test. ⁷ Now we pray to God that you will not do anything wrong—not so that people will see that we have stood the test but so that you will do what is right even though we may seem to have failed. ⁸ For we cannot do anything against the truth, but only for the truth. ⁹ We are glad whenever we are weak but you are strong; and our prayer is that you may be fully restored. ¹⁰ This is why I write these things when I am absent, that when I come I may not have to be harsh in my use of authority—the authority the Lord gave me for building you up, not for tearing you down.
 
 *Final Greetings*
+
 ¹¹ Finally, brothers and sisters, rejoice! Strive for full restoration, encourage one another, be of one mind, live in peace. And the God of love and peace will be with you.
 
 ¹² Greet one another with a holy kiss. ¹³ All God’s people here send their greetings.
