@@ -176,103 +176,34 @@ CCLI 62951 (main copyright licence)<br>
 CCLI 174113 (streaming licence)</p>
 </body>
 
-### Song 4: Yet Not I
+### Song 4: What a Friend We Have in Jesus
 
-<!DOCTYPE html>
-<html lang="en">
-<head>
-<meta charset="utf-8">
-</head>
-<body style="font-family:Georgia,serif;max-width:480px;margin:2rem auto;padding:0 1rem;">
-<p style="margin-top:2.5rem;font-size:.85rem;color:#555;line-height:1.5;"><br>
-What gift of grace is Jesus, my redeemer<br>
-There is no more for heaven now to give<br>
-He is my joy, my righteousness, and freedom<br>
-My steadfast love, my deep and boundless peace</p>
-<p style="margin-top:2.5rem;font-size:.85rem;color:#555;line-height:1.5;"><br>
-To this I hold, my hope is only Jesus<br>
-For my life is wholly bound to His<br>
-Oh, how strange and divine, I can sing: All is mine!<br>
-Yet not I, but through Christ in me</p>
-<p style="margin-top:2.5rem;font-size:.85rem;color:#555;line-height:1.5;"><br>
-The night is dark but I am not forsaken<br>
-For by my side, the Saviour He will stay<br>
-I labour on in weakness and rejoicing<br>
-For in my need, His power is displayed</p>
-<p style="margin-top:2.5rem;font-size:.85rem;color:#555;line-height:1.5;"><br>
-To this I hold, my Shepherd will defend me<br>
-Through the deepest valley, He will lead<br>
-Oh, the night has been won, and I shall overcome<br>
-Yet not I, but through Christ in me</p>
-<p style="margin-top:2.5rem;font-size:.85rem;color:#555;line-height:1.5;"><br>
-No fate I dread, I know I am forgiven<br>
-The future sure, the price it has been paid<br>
-For Jesus bled and suffered for my pardon<br>
-And He was raised to overthrow the grave</p>
-<p style="margin-top:2.5rem;font-size:.85rem;color:#555;line-height:1.5;"><br>
-To this I hold, my sin has been defeated<br>
-Jesus now and ever is my plea<br>
-Oh, the chains are released, I can sing: I am free!<br>
-Yet not I, but through Christ in me</p>
-<p style="margin-top:2.5rem;font-size:.85rem;color:#555;line-height:1.5;"><br>
-With every breath, I long to follow Jesus<br>
-For He has said that He will bring me home<br>
-And day by day I know He will renew me<br>
-Until I stand with joy before the throne</p>
-<p style="margin-top:2.5rem;font-size:.85rem;color:#555;line-height:1.5;"><br>
-To this I hold, my hope is only Jesus<br>
-All the glory evermore to Him<br>
-When the race is complete, still my lips shall repeat:<br>
-Yet not I, but through Christ in me!</p>
-<p style="margin-top:2.5rem;font-size:.85rem;color:#555;line-height:1.5;">Yet not I, but through Christ in me!</p>
-<p style="margin-top:2.5rem;font-size:.85rem;color:#555;line-height:1.5;">CityAlight Music,  2018<br>
+<p style="margin-top:2.5rem;font-size:.85rem;color:#555;line-height:1.5;">What a friend we have in Jesus<br>
+All our sins and griefs to bear<br>
+What a privilege to carry<br>
+Everything to God in prayer<br>
+O what peace we often forfeit<br>
+O what needless pain we bear<br>
+All because we do not carry<br>
+Everything to God in prayer</p>
+<p style="margin-top:2.5rem;font-size:.85rem;color:#555;line-height:1.5;">Have we trials and temptations?<br>
+Is there trouble anywhere?<br>
+We should never be discouraged<br>
+Take it to the Lord in prayer<br>
+Can we find a friend so faithful<br>
+Who will all our sorrows share?<br>
+Jesus knows our every weakness<br>
+Take it to the Lord in prayer</p>
+<p style="margin-top:2.5rem;font-size:.85rem;color:#555;line-height:1.5;">Are we weak and heavy laden,<br>
+cumbered with a load of care?<br>
+Precious Savior, still our refuge;<br>
+take it to the Lord in prayer.<br>
+Do thy friends despise, forsake thee?<br>
+Take it to the Lord in prayer!<br>
+In his arms he’ll take and shield thee;<br>
+thou wilt find a solace there.</p>
+<p style="margin-top:2.5rem;font-size:.85rem;color:#555;line-height:1.5;">© 2006 Edeejay Music, Word Music, Llc, Curb Word Music, Emerald Music (ireland) Ltd<br>
 CCLI 62951 (main copyright licence)<br>
 CCLI 174113 (streaming licence)</p>
-</body>
-</html>
-
-
-### Song 5: As For Me & My House
-
-
-<body style="font-family:Georgia,serif;max-width:480px;margin:2rem auto;padding:0 1rem;">
-<p style="margin-top:2.5rem;font-size:.85rem;color:#555;line-height:1.5;">Oh, choose you this day whom you will serve<br>
-The kingdom of heaven or the powers of earth<br>
-Has He not spoken? Have you not heard?<br>
-There is but one true God</p>
-<p style="margin-top:2.5rem;font-size:.85rem;color:#555;line-height:1.5;">The God of our fathers set us free<br>
-His Son paid the price for our covenant peace<br>
-Through generations His mercy speaks<br>
-We trust in one true God</p>
-<p style="margin-top:2.5rem;font-size:.85rem;color:#555;line-height:1.5;">As for me and my house<br>
-We will serve, serve the Lord<br>
-As for me and my house<br>
-We will serve the Lord our God</p>
-<p style="margin-top:2.5rem;font-size:.85rem;color:#555;line-height:1.5;">This house is the Lord's and all within<br>
-May we be pleasing and holy to Him<br>
-Joined by His Spirit His people sing<br>
-Great is the one true God<br>
-Oh, great Is the living God</p>
-<p style="margin-top:2.5rem;font-size:.85rem;color:#555;line-height:1.5;">As for me and my house<br>
-We will serve, serve the Lord<br>
-As for me and my house<br>
-We will serve the Lord our God</p>
-<p style="margin-top:2.5rem;font-size:.85rem;color:#555;line-height:1.5;">Oh, praise the Father, praise the Son<br>
-Praise the Spirit now in us<br>
-Let every heart and every tongue<br>
-Praise the one true God</p>
-<p style="margin-top:2.5rem;font-size:.85rem;color:#555;line-height:1.5;">Oh, praise the Father, praise the Son<br>
-Praise the Spirit now in us<br>
-Let every heart and every tongue<br>
-Praise the one true God</p>
-<p style="margin-top:2.5rem;font-size:.85rem;color:#555;line-height:1.5;">As for me and my house<br>
-We will serve, serve the Lord<br>
-As for me and my house<br>
-We will serve the Lord our God</p>
-<p style="margin-top:2.5rem;font-size:.85rem;color:#555;line-height:1.5;">As for me and my house<br>
-We will serve, serve the Lord<br>
-As for me and my house<br>
-We will serve the Lord our God</p>
-<p style="margin-top:2.5rem;font-size:.85rem;color:#555;line-height:1.5;">Cochren &amp; Co., Keith &amp; Kristyn Getty, 2025</p>
 </body>
 </html>
