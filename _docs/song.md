@@ -20,77 +20,43 @@ order: 1
 
 ## 9:30am Song Lyrics <br>
 
-### Song 1: How Great Thou Art
+### Song 1: I Am Not My Own
 
-<body style="font-family:Georgia,serif;max-width:480px;margin:2rem auto;padding:0 1rem;">
-<p style="margin-top:2.5rem;font-size:.85rem;color:#555;line-height:1.5;">O Lord my God<br>
-When I in awesome wonder<br>
-Consider all the works<br>
-Thy hands have made,<br>
-I see the stars,<br>
-I hear the rolling thunder,<br>
-Thy pow'r throughout<br>
-The universe displayed!</p>
-<p style="margin-top:2.5rem;font-size:.85rem;color:#555;line-height:1.5;">Then sings my soul,<br>
-My Savior God, to Thee;<br>
-How great Thou art,<br>
-How great Thou art!<br>
-Then sings my soul,<br>
-My Savior God, to Thee;<br>
-How great Thou art,<br>
-How great Thou art!</p>
-<p style="margin-top:2.5rem;font-size:.85rem;color:#555;line-height:1.5;">When thru the woods<br>
-And forest glades I wander<br>
-And hear the birds<br>
-Sing sweetly in the trees,<br>
-When I look down<br>
-From lofty mountain grandeur<br>
-And hear the brook<br>
-And feel the gentle breeze,</p>
-<p style="margin-top:2.5rem;font-size:.85rem;color:#555;line-height:1.5;">Then sings my soul,<br>
-My Savior God, to Thee;<br>
-How great Thou art,<br>
-How great Thou art!<br>
-Then sings my soul,<br>
-My Savior God, to Thee;<br>
-How great Thou art,<br>
-How great Thou art!</p>
-<p style="margin-top:2.5rem;font-size:.85rem;color:#555;line-height:1.5;">And when I think<br>
-That God, His Son not sparing,<br>
-Sent Him to die,<br>
-I scarce can take it in -<br>
-That on the cross,<br>
-My burden gladly bearing,<br>
-He bled and died<br>
-To take away my sin!</p>
-<p style="margin-top:2.5rem;font-size:.85rem;color:#555;line-height:1.5;">Then sings my soul,<br>
-My Savior God, to Thee;<br>
-How great Thou art,<br>
-How great Thou art!<br>
-Then sings my soul,<br>
-My Savior God, to Thee;<br>
-How great Thou art,<br>
-How great Thou art!</p>
-<p style="margin-top:2.5rem;font-size:.85rem;color:#555;line-height:1.5;">When Christ shall come<br>
-With shout of acclamation<br>
-And take me home,<br>
-What joy shall fill my heart!<br>
-Then I shall bow<br>
-In humble adoration<br>
-And there proclaim,<br>
-My God, how great Thou art!</p>
-<p style="margin-top:2.5rem;font-size:.85rem;color:#555;line-height:1.5;">Then sings my soul,<br>
-My Savior God, to Thee;<br>
-How great Thou art,<br>
-How great Thou art!<br>
-Then sings my soul,<br>
-My Savior God, to Thee;<br>
-How great Thou art,<br>
-How great Thou art!</p>
-<p style="margin-top:2.5rem;font-size:.85rem;color:#555;line-height:1.5;">Carl Boberg, 1886<br>
+<p style="margin-top:2.5rem;font-size:.85rem;color:#555;line-height:1.5;">The One who made the heavens, made my heart and soul<br>
+Before I drew a breath, I was loved and known<br>
+I am His creation, the Maker's masterpiece<br>
+And all that He designs will be done in me</p>
+<p style="margin-top:2.5rem;font-size:.85rem;color:#555;line-height:1.5;">My body is a temple of the living God<br>
+I'll worship in this house that His blood has bought<br>
+As I bear His image, oh, may I not profane<br>
+The holiness I hold in this earthly frame</p>
+<p style="margin-top:2.5rem;font-size:.85rem;color:#555;line-height:1.5;">I belong to the Lord, oh, I am not my own<br>
+I belong to the Lord, I am not my own<br>
+I will honour Him for this I know<br>
+I belong to the Lord, I am not my own</p>
+<p style="margin-top:2.5rem;font-size:.85rem;color:#555;line-height:1.5;">And if He has redeemed me, I am not my own<br>
+The measure of my worth is His love alone<br>
+He declares my standing, and He declares my state<br>
+So I will know myself by the name He gave</p>
+<p style="margin-top:2.5rem;font-size:.85rem;color:#555;line-height:1.5;">I belong to the Lord, oh, I am not my own<br>
+I belong to the Lord, I am not my own<br>
+I will honour Him for this I know<br>
+I belong to the Lord, I am not my own</p>
+<p style="margin-top:2.5rem;font-size:.85rem;color:#555;line-height:1.5;">I am not my own and now my heart is free<br>
+O Maker, come and make what You will of me<br>
+There is nothing broken that You cannot repair<br>
+So Lord, I leave my life in Your loving care</p>
+<p style="margin-top:2.5rem;font-size:.85rem;color:#555;line-height:1.5;">I belong to the Lord, oh, I am not my own<br>
+I belong to the Lord, I am not my own<br>
+I will honour Him for this I know<br>
+I belong to the Lord, I am not my own</p>
+<p style="margin-top:2.5rem;font-size:.85rem;color:#555;line-height:1.5;">I will honour Him for this I know<br>
+I belong to the Lord, I am not my own</p>
+<p style="margin-top:2.5rem;font-size:.85rem;color:#555;line-height:1.5;">© 2022 Keith &amp; Kristyn Getty, Getty Music Publishing, Beehive Songs<br>
 CCLI 62951 (main copyright licence)<br>
 CCLI 174113 (streaming licence)</p>
 </body>
+</html>
 
 ### Song 2: Jesus, Strong and Kind 
 
