@@ -29,7 +29,8 @@ We’ll wrap up the day relaxing with a G-rated movie. Morning tea and lunch are
 ### Mission Partner Visit: Berkeley Life Centre
 <br>
 On **Sunday, 25th October**, we have the privilege of welcoming Pastor Beejai Abrahams, Senior Pastor at Berkeley Life Centre. He will be sharing about the wonderful work God is doing in Berkeley, as well as the unique opportunities and challenges of ministry in a low socio-economic, marginalized community.<br>
-**Op Shop Clothing Drive:**<br>
+
+*Op Shop Clothing Drive:*<br>
 
 As part of his visit, we are collecting summer clothing to support their local Op Shop.
 - **Items Needed:** If you'd like a list of specific items that BLC is after, please click on the link.
