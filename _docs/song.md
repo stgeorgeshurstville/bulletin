@@ -4,19 +4,18 @@ order: 1
 ---
 
 ## 9:30am 
-1. How Great Thou Art
-2. God Always Keeps His Promises
-3. The Servant King
-4. Yet Not I
-5. As For Me & My House
+1. I Am Not My Own
+2. Jesus, Strong and Kind 
+3. In Christ Alone
+4. What a Friend We Have in Jesus
 
 **Scroll below for 9:30am song lyrics**
 
 ## 4:00pm
-1. Jerusalem
-2. Jesus Strong and Kind
-3. Nothing can I boast in
-4. Completely known, completely loved
+1. This Is Amazing Grace
+2. Hear Our Prayer
+3. Here We Stand
+4. Come Thou Fount of Every Blessing
    
 
 ## 9:30am Song Lyrics <br>
