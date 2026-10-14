@@ -9,10 +9,9 @@ title: Welcome
 [comment]: ##### "where the sentence came from, e.g. Psalm 1:1"  
 [comment]: ----------------------------------------------------  
 
-## Open Hearts
-#### "The Lord is my light and my salvation; whom shall I fear? The Lord is the stronghold of my life; of whom shall I be afraid?”
-
-##### Psalm 27: 1
+## "Acts series: Making Him Known"
+#### "Let our prayer come before you, O Lord, incline your ear to our cry.”
+##### Psalm 88: 2
 
 ---
 - We are gathering in person! For people who can’t gather in person, you can watch online [here](https://stgeorgeshurstville.org.au/sunday-english-online)
