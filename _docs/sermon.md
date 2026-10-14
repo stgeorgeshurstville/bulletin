@@ -54,10 +54,7 @@ and,
 
 
 ## Sermon Outline <br>
-- The Corinthians Have Been Immature
-- But Paul Reacts with Patience
-- And Paul Corrects Them
-- But the Hero Has Been God All Along
+- TODO
 
 
 
