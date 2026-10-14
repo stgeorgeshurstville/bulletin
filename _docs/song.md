@@ -4,59 +4,25 @@ order: 1
 ---
 
 ## 9:30am 
-1. I Am Not My Own
-2. Jesus, Strong and Kind 
-3. In Christ Alone
-4. What a Friend We Have in Jesus
+1. TODO
+2. TODO
+3. TODO
+4. TODO
 
 **Scroll below for 9:30am song lyrics**
 
 ## 4:00pm
-1. This Is Amazing Grace
-2. Hear Our Prayer
-3. Here We Stand
-4. Come Thou Fount of Every Blessing
+1. All creatures of our god and king
+2. N\A
+3. By Faith
+4. How can they hear
    
 
 ## 9:30am Song Lyrics <br>
 
 ### Song 1: I Am Not My Own
 
-<p style="margin-top:2.5rem;font-size:.85rem;color:#555;line-height:1.5;">The One who made the heavens, made my heart and soul<br>
-Before I drew a breath, I was loved and known<br>
-I am His creation, the Maker's masterpiece<br>
-And all that He designs will be done in me</p>
-<p style="margin-top:2.5rem;font-size:.85rem;color:#555;line-height:1.5;">My body is a temple of the living God<br>
-I'll worship in this house that His blood has bought<br>
-As I bear His image, oh, may I not profane<br>
-The holiness I hold in this earthly frame</p>
-<p style="margin-top:2.5rem;font-size:.85rem;color:#555;line-height:1.5;">I belong to the Lord, oh, I am not my own<br>
-I belong to the Lord, I am not my own<br>
-I will honour Him for this I know<br>
-I belong to the Lord, I am not my own</p>
-<p style="margin-top:2.5rem;font-size:.85rem;color:#555;line-height:1.5;">And if He has redeemed me, I am not my own<br>
-The measure of my worth is His love alone<br>
-He declares my standing, and He declares my state<br>
-So I will know myself by the name He gave</p>
-<p style="margin-top:2.5rem;font-size:.85rem;color:#555;line-height:1.5;">I belong to the Lord, oh, I am not my own<br>
-I belong to the Lord, I am not my own<br>
-I will honour Him for this I know<br>
-I belong to the Lord, I am not my own</p>
-<p style="margin-top:2.5rem;font-size:.85rem;color:#555;line-height:1.5;">I am not my own and now my heart is free<br>
-O Maker, come and make what You will of me<br>
-There is nothing broken that You cannot repair<br>
-So Lord, I leave my life in Your loving care</p>
-<p style="margin-top:2.5rem;font-size:.85rem;color:#555;line-height:1.5;">I belong to the Lord, oh, I am not my own<br>
-I belong to the Lord, I am not my own<br>
-I will honour Him for this I know<br>
-I belong to the Lord, I am not my own</p>
-<p style="margin-top:2.5rem;font-size:.85rem;color:#555;line-height:1.5;">I will honour Him for this I know<br>
-I belong to the Lord, I am not my own</p>
-<p style="margin-top:2.5rem;font-size:.85rem;color:#555;line-height:1.5;">© 2022 Keith &amp; Kristyn Getty, Getty Music Publishing, Beehive Songs<br>
-CCLI 62951 (main copyright licence)<br>
-CCLI 174113 (streaming licence)</p>
-</body>
-</html>
+
 
 ### Song 2: Jesus, Strong and Kind 
 
