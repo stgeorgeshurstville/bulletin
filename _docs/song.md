@@ -5,7 +5,7 @@ order: 1
 
 ## 9:30am 
 1. TODO
-2. TODO
+2. N\A
 3. TODO
 4. TODO
 
