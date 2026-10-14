@@ -21,8 +21,7 @@ order: 2
 Dear God, thank you for letting us know you. Please help us learn from your word. Help us to serve and praise you. **Amen!**
 
 ### Acts 1:1-26 (NIV)
-_Jesus Taken Up Into Heaven_
-
+_Jesus Taken Up Into Heaven_<br>
 ¹ In my former book, Theophilus, I wrote about all that Jesus began to do and to teach ² until the day he was taken up to heaven, after giving instructions through the Holy Spirit to the apostles he had chosen. ³ After his suffering, he presented himself to them and gave many convincing proofs that he was alive. He appeared to them over a period of forty days and spoke about the kingdom of God. ⁴ On one occasion, while he was eating with them, he gave them this command: “Do not leave Jerusalem, but wait for the gift my Father promised, which you have heard me speak about. ⁵ For John baptized with water, but in a few days you will be baptized with the Holy Spirit.”
 
 ⁶ Then they gathered around him and asked him, “Lord, are you at this time going to restore the kingdom to Israel?”
@@ -33,7 +32,7 @@ _Jesus Taken Up Into Heaven_
 
 ¹⁰ They were looking intently up into the sky as he was going, when suddenly two men dressed in white stood beside them. ¹¹ “Men of Galilee,” they said, “why do you stand here looking into the sky? This same Jesus, who has been taken from you into heaven, will come back in the same way you have seen him go into heaven.”
 
-_Matthias Chosen to Replace Judas_
+_Matthias Chosen to Replace Judas_<br>
 ¹² Then the apostles returned to Jerusalem from the hill called the Mount of Olives, a Sabbath day’s walk from the city. ¹³ When they arrived, they went upstairs to the room where they were staying. Those present were Peter, John, James and Andrew; Philip and Thomas, Bartholomew and Matthew; James son of Alphaeus and Simon the Zealot, and Judas son of James. ¹⁴ They all joined together constantly in prayer, along with the women and Mary the mother of Jesus, and with his brothers.
 
 ¹⁵ In those days Peter stood up among the believers (a group numbering about a hundred and twenty) ¹⁶ and said, “Brothers and sisters, the Scripture had to be fulfilled in which the Holy Spirit spoke long ago through David concerning Judas, who served as guide for those who arrested Jesus. ¹⁷ He was one of our number and shared in our ministry.”
@@ -42,12 +41,12 @@ _Matthias Chosen to Replace Judas_
 
 ²⁰ “For,” said Peter, “it is written in the Book of Psalms:
 
-    “‘May his place be deserted;
-    let there be no one to dwell in it,’ 
+&emsp; &emsp; “‘May his place be deserted;
+&emsp; &emsp; let there be no one to dwell in it,’ 
 
 and,
 
-    “‘May another take his place of leadership.’ 
+&emsp; &emsp; “‘May another take his place of leadership.’ 
 
 ²¹ Therefore it is necessary to choose one of the men who have been with us the whole time the Lord Jesus was living among us, ²² beginning from John’s baptism to the time when Jesus was taken up from us. For one of these must become a witness with us of his resurrection.”
 
