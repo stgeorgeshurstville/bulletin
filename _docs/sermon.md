@@ -41,7 +41,7 @@ _Matthias Chosen to Replace Judas_<br>
 
 ²⁰ “For,” said Peter, “it is written in the Book of Psalms:
 
-&emsp; &emsp; “‘May his place be deserted;
+&emsp; &emsp; “‘May his place be deserted;<br>
 &emsp; &emsp; let there be no one to dwell in it,’ 
 
 and,
