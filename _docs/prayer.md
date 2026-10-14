@@ -4,7 +4,7 @@ order: 4
 ---
 
 ## Collect
-Lord God, without you we are not able to please you; mercifully grant that your Holy Spirit may in all things direct and rule our hearts; through Jesus Christ our Lord. Amen.
+Almighty and merciful God, of your bountiful goodness keep us from everything that may hurt us, that we may be ready in body and soul cheerfully accomplish whatever you want us to do; through Jesus Christ our Lord. Amen.
 
 ## Week B
 
