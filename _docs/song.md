@@ -86,7 +86,7 @@ order: 1
 <br>When the longed-for Messiah would appear
 <br>With the power to break the chains of sin and death
 <br>And rise triumphant from the grave
-<br>By faith the church was called to go
+<br><br>By faith the church was called to go
 <br>In the power of the Spirit to the lost
 <br>To deliver captives and to preach good news
 <br>In every corner of the earth
