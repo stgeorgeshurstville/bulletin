@@ -28,6 +28,7 @@ Dear St George’s Church Family,
 - Initial Staged Return: At this stage, Sunny will be working strictly two days a week in a remote, work-from-home capacity, focusing on behind-the-scenes administration.  This will be from 20/10/2026.
 - Church Services & Fellowship: You will see Sunny around church gatherings and services, but please note that he will be attending purely as a church member and brother in Christ, not in any official staff or ministerial capacity.
 - Caring for Sunny: We warmly ask everyone to respect this boundary. Working from home and limiting ministry duties is an important medical safeguard against over-exertion. When you see Sunny on Sundays or during church events, please welcome him, encourage him in fellowship, and enjoy catching up—but kindly refrain from asking him to handle operational, administrative, or church business matters.   
+
 <br>**Filling the Operational Gaps**
 To support our church operations while Sunny undertakes this phased return, the parish leadership is currently recruiting temporary casual staff to assist with church administration, Sunday site coordination, and property maintenance.
 <br>Please refer to our other communication about this. Once appointed, these team members will be on hand to assist with day-to-day practical needs.   
