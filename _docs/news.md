@@ -21,6 +21,21 @@ As part of his visit, we are collecting **summer clothing** to support their loc
 - **Items Needed:** If you'd like a list of specific items that BLC is after, please click on the link.
 - **Drop-offs:** Please contact Ben on **0431 978 673** to arrange a drop-off time prior to 25th October.
 
+### An important announcement about Sunny’s return to work!
+Dear St George’s Church Family,
+<br>We want to share an important update regarding Sunny Yu and thank you for your ongoing prayers, love, and care for him and his family.
+<br>Sunny is continuing his recovery, and under the guidance and sign-off of his medical professionals, we have agreed upon a carefully staged return-to-work plan. To ensure his health and sustained rehabilitation are prioritised, his transition back will be gradual:   
+- Initial Staged Return: At this stage, Sunny will be working strictly two days a week in a remote, work-from-home capacity, focusing on behind-the-scenes administration.  This will be from 20/10/2026.
+- Church Services & Fellowship: You will see Sunny around church gatherings and services, but please note that he will be attending purely as a church member and brother in Christ, not in any official staff or ministerial capacity.
+- Caring for Sunny: We warmly ask everyone to respect this boundary. Working from home and limiting ministry duties is an important medical safeguard against over-exertion. When you see Sunny on Sundays or during church events, please welcome him, encourage him in fellowship, and enjoy catching up—but kindly refrain from asking him to handle operational, administrative, or church business matters.   
+<br>**Filling the Operational Gaps**
+To support our church operations while Sunny undertakes this phased return, the parish leadership is currently recruiting temporary casual staff to assist with church administration, Sunday site coordination, and property maintenance.
+<br>Please refer to our other communication about this. Once appointed, these team members will be on hand to assist with day-to-day practical needs.   
+<br>In the meantime, please direct all parish enquiries, booking requests, or property questions directly to 0404 604 725(M)  church_admin@sgh.church (E) otherwise to me or the Parish Wardens (Gilbert Wong, Cynthia Wang, and Raymond Kwok).   
+<br>Thank you for your ongoing partnership, understanding, and loving care as we support Sunny in this next phase of his recovery.   
+<br><br>Warmly in Christ,
+<br>Brian Tung, Rector, St George’s Hurstville
+
 
 ### New to the Family? Join "The Bridge"
 If you’ve recently moved into the area or have started making this your home church after moving from another congregation, we’d love to officially welcome you.
