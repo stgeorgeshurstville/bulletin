@@ -5,17 +5,15 @@ order: 1
 
 ## 9:30am 
 1. King of Kings
-2. N\A
-3. By Faith
-4. Let Your Kingdom Come
+2. By Faith
+3. Let Your Kingdom Come
 
 **Scroll below for 9:30am song lyrics**
 
 ## 4:00pm
 1. All creatures of our god and king
-2. N\A
-3. By Faith
-4. How can they hear
+2. By Faith
+3. How can they hear
    
 
 ## 9:30am Song Lyrics <br>
@@ -111,10 +109,35 @@ order: 1
 
 
 
-### Song 3: Let Your Kingdom Come
-//TODO
+### Song 3: How can they hear
+<br>Jesus, I love you, King of all grace
+<br>I want the whole world to know your name
+<br>Friend to the sinner, mighty to save
+<br>Gave your body and blood
+<br>As a ransom for many
+<br><br>How can they hear if we’re silent?
+<br>How can they trust in a God they don’t know?
+<br>How can they love you, unless they can see
+<br>Your love in the way we love?
+<br><br>Jesus, you’re coming, there is a day
+<br>When we will answer for all we’ve done
+<br>Full of compassion, in mercy you wait
+<br>Let today be the day
+<br>Of salvation for many
+<br><br>How can they hear if we’re silent?
+<br>How can they trust in a God they don’t know?
+<br>How can they love you, unless they can see
+<br>Your love in the way we love?
+<br><br>Lord, when you speak, it’s like rain from heaven
+<br>Breathing new life into dusty ground
+<br>I will go out as your Spirit leads me
+<br>Open my mouth and I’ll speak your praise
+<br><br>How can they hear if we’re silent?
+<br>How can they trust in a God they don’t know?
+<br>How can they love you, unless they can see
+<br>Your love in the way we love?
 
 
-### Song 4: What a Friend We Have in Jesus
+
 
 
