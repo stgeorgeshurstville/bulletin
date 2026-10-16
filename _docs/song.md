@@ -4,10 +4,10 @@ order: 1
 ---
 
 ## 9:30am 
-1. TODO
+1. King of Kings
 2. N\A
-3. TODO
-4. TODO
+3. By Faith
+4. Let Your Kingdom Come
 
 **Scroll below for 9:30am song lyrics**
 
@@ -20,17 +20,18 @@ order: 1
 
 ## 9:30am Song Lyrics <br>
 
-### Song 1: I Am Not My Own
+### Song 1: King of Kings
+//TODO
 
 
 
-### Song 2: Jesus, Strong and Kind 
+### Song 2: By Faith
+//TODO
 
 
 
-
-### Song 3: In Christ Alone
-
+### Song 3: Let Your Kingdom Come
+//TODO
 
 
 ### Song 4: What a Friend We Have in Jesus
