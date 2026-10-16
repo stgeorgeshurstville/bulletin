@@ -54,7 +54,7 @@ and,
 
 
 ## Sermon Outline <br>
-- TODO
+- Please refer to Ben for sermon notes
 
 
 
