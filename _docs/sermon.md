@@ -54,7 +54,7 @@ and,
 
 
 ## Sermon Outline <br>
-- Please refer to Ben for sermon notes
+- _Please refer to Ben for sermon notes_
 
 
 
