@@ -38,7 +38,7 @@ To support our church operations while Sunny undertakes this phased return, the 
 <br>Brian Tung, Rector, St George’s Hurstville
 
 ### Save the Date: Women for Women Event!
-<br><br>We’re coming together to support women in need through a mini-seminar on how to respond and care for those who are going through domestic abuse as Christian women, followed by care bags packing.
+<br>We’re coming together to support women in need through a mini-seminar on how to respond and care for those who are going through domestic abuse as Christian women, followed by care bags packing.
 <br><br>When? Saturday, 31 October, 9:30-12pm
 <br>Where? C1 + C2
 <br>Hope to see you there!
