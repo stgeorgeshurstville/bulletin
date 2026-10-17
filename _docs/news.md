@@ -37,6 +37,14 @@ To support our church operations while Sunny undertakes this phased return, the 
 <br><br>Warmly in Christ,
 <br>Brian Tung, Rector, St George’s Hurstville
 
+### Save the Date: Women for Women Event!
+<br><br>We’re coming together to support women in need through a mini-seminar on how to respond and care for those who are going through domestic abuse as Christian women, followed by care bags packing.
+<br><br>When? Saturday, 31 October, 9:30-12pm
+<br>Where? C1 + C2
+<br>Hope to see you there!
+<br><br>Can’t make it or Want to contribute? We are collecting tote bags and beach bags to pack the supplies into. If you have any to spare, please hand them to your pastor or drop them at the office.
+<br><br>For more information, join the SGH ladies group chat or contact Priscilla Lin.
+<img width="1600" height="900" alt="image" src="https://github.com/user-attachments/assets/2d4bee90-a4fc-496c-9d51-e17eba7cd2d6" />
 
 ### New to the Family? Join "The Bridge"
 If you’ve recently moved into the area or have started making this your home church after moving from another congregation, we’d love to officially welcome you.
