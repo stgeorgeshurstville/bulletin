@@ -20,41 +20,72 @@ order: 2
 ### Prayer
 Dear God, thank you for letting us know you. Please help us learn from your word. Help us to serve and praise you. **Amen!**
 
-### Acts 1:1-26 (NIV)
-_Jesus Taken Up Into Heaven_<br>
-¹ In my former book, Theophilus, I wrote about all that Jesus began to do and to teach ² until the day he was taken up to heaven, after giving instructions through the Holy Spirit to the apostles he had chosen. ³ After his suffering, he presented himself to them and gave many convincing proofs that he was alive. He appeared to them over a period of forty days and spoke about the kingdom of God. ⁴ On one occasion, while he was eating with them, he gave them this command: “Do not leave Jerusalem, but wait for the gift my Father promised, which you have heard me speak about. ⁵ For John baptized with water, but in a few days you will be baptized with the Holy Spirit.”
+### Acts 2 (NIV)
+¹ When the day of Pentecost came, they were all together in one place. ² Suddenly a sound like the blowing of a violent wind came from heaven and filled the whole house where they were sitting. ³ They saw what seemed to be tongues of fire that separated and came to rest on each of them. ⁴ All of them were filled with the Holy Spirit and began to speak in other tongues as the Spirit enabled them.
 
-⁶ Then they gathered around him and asked him, “Lord, are you at this time going to restore the kingdom to Israel?”
+⁵ Now there were staying in Jerusalem God-fearing Jews from every nation under heaven. ⁶ When they heard this sound, a crowd came together in bewilderment, because each one heard their own language being spoken. ⁷ Utterly amazed, they asked: “Aren’t all these who are speaking Galileans? ⁸ Then how is it that each of us hears them in our native language? ⁹ Parthians, Medes and Elamites; residents of Mesopotamia, Judea and Cappadocia, Pontus and Asia, ¹⁰ Phrygia and Pamphylia, Egypt and the parts of Libya near Cyrene; visitors from Rome ¹¹ (both Jews and converts to Judaism); Cretans and Arabs—we hear them declaring the wonders of God in our own tongues!” ¹² Amazed and perplexed, they asked one another, “What does this mean?”
 
-⁷ He said to them: “It is not for you to know the times or dates the Father has set by his own authority. ⁸ But you will receive power when the Holy Spirit comes on you; and you will be my witnesses in Jerusalem, and in all Judea and Samaria, and to the ends of the earth.”
+¹³ Some, however, made fun of them and said, “They have had too much wine.”
 
-⁹ After he said this, he was taken up before their very eyes, and a cloud hid him from their sight.
+_Peter Addresses the Crowd_
+¹⁴ Then Peter stood up with the Eleven, raised his voice and addressed the crowd: “Fellow Jews and all of you who live in Jerusalem, let me explain this to you; listen carefully to what I say. ¹⁵ These people are not drunk, as you suppose. It’s only nine in the morning! ¹⁶ No, this is what was spoken by the prophet Joel:
 
-¹⁰ They were looking intently up into the sky as he was going, when suddenly two men dressed in white stood beside them. ¹¹ “Men of Galilee,” they said, “why do you stand here looking into the sky? This same Jesus, who has been taken from you into heaven, will come back in the same way you have seen him go into heaven.”
+¹⁷ “‘In the last days, God says,
+I will pour out my Spirit on all people.
+Your sons and daughters will prophesy,
+your young men will see visions,
+your old men will dream dreams.
+¹⁸ Even on my servants, both men and women,
+I will pour out my Spirit in those days,
+and they will prophesy.
+¹⁹ I will show wonders in the heavens above
+and signs on the earth below,
+blood and fire and billows of smoke.
+²⁰ The sun will be turned to darkness
+and the moon to blood
+before the coming of the great and glorious day of the Lord.
+²¹ And everyone who calls
+on the name of the Lord will be saved.’ 
 
-_Matthias Chosen to Replace Judas_<br>
-¹² Then the apostles returned to Jerusalem from the hill called the Mount of Olives, a Sabbath day’s walk from the city. ¹³ When they arrived, they went upstairs to the room where they were staying. Those present were Peter, John, James and Andrew; Philip and Thomas, Bartholomew and Matthew; James son of Alphaeus and Simon the Zealot, and Judas son of James. ¹⁴ They all joined together constantly in prayer, along with the women and Mary the mother of Jesus, and with his brothers.
+²² “Fellow Israelites, listen to this: Jesus of Nazareth was a man accredited by God to you by miracles, wonders and signs, which God did among you through him, as you yourselves know. ²³ This man was handed over to you by God’s deliberate plan and foreknowledge; and you, with the help of wicked men, put him to death by nailing him to the cross. ²⁴ But God raised him from the dead, freeing him from the agony of death, because it was impossible for death to keep its hold on him. ²⁵ David said about him:
 
-¹⁵ In those days Peter stood up among the believers (a group numbering about a hundred and twenty) ¹⁶ and said, “Brothers and sisters, the Scripture had to be fulfilled in which the Holy Spirit spoke long ago through David concerning Judas, who served as guide for those who arrested Jesus. ¹⁷ He was one of our number and shared in our ministry.”
+“‘I saw the Lord always before me.
+Because he is at my right hand,
+I will not be shaken.
+²⁶ Therefore my heart is glad and my tongue rejoices;
+my body also will rest in hope,
+²⁷ because you will not abandon me to the realm of the dead,
+you will not let your holy one see decay.
+²⁸ You have made known to me the paths of life;
+you will fill me with joy in your presence.’ 
 
-¹⁸ (With the payment he received for his wickedness, Judas bought a field; there he fell headlong, his body burst open and all his intestines spilled out. ¹⁹ Everyone in Jerusalem heard about this, so they called that field in their language Akeldama, that is, Field of Blood.)
+²⁹ “Fellow Israelites, I can tell you confidently that the patriarch David died and was buried, and his tomb is here to this day. ³⁰ But he was a prophet and knew that God had promised him on oath that he would place one of his descendants on his throne. ³¹ Seeing what was to come, he spoke of the resurrection of the Messiah, that he was not abandoned to the realm of the dead, nor did his body see decay. ³² God has raised this Jesus to life, and we are all witnesses of it. ³³ Exalted to the right hand of God, he has received from the Father the promised Holy Spirit and has poured out what you now see and hear. ³⁴ For David did not ascend to heaven, and yet he said,
 
-²⁰ “For,” said Peter, “it is written in the Book of Psalms:
+“‘The Lord said to my Lord:
+“Sit at my right hand
+³⁵ until I make your enemies
+a footstool for your feet.”’ 
 
-&emsp; &emsp; “‘May his place be deserted;<br>
-&emsp; &emsp; let there be no one to dwell in it,’ 
+³⁶ “Therefore let all Israel be assured of this: God has made this Jesus, whom you crucified, both Lord and Messiah.”
 
-and,
+³⁷ When the people heard this, they were cut to the heart and said to Peter and the other apostles, “Brothers, what shall we do?”
 
-&emsp; &emsp; “‘May another take his place of leadership.’ 
+³⁸ Peter replied, “Repent and be baptized, every one of you, in the name of Jesus Christ for the forgiveness of your sins. And you will receive the gift of the Holy Spirit. ³⁹ The promise is for you and your children and for all who are far off—for all whom the Lord our God will call.”
 
-²¹ Therefore it is necessary to choose one of the men who have been with us the whole time the Lord Jesus was living among us, ²² beginning from John’s baptism to the time when Jesus was taken up from us. For one of these must become a witness with us of his resurrection.”
+⁴⁰ With many other words he warned them; and he pleaded with them, “Save yourselves from this corrupt generation.” ⁴¹ Those who accepted his message were baptized, and about three thousand were added to their number that day.
 
-²³ So they nominated two men: Joseph called Barsabbas (also known as Justus) and Matthias. ²⁴ Then they prayed, “Lord, you know everyone’s heart. Show us which of these two you have chosen ²⁵ to take over this apostolic ministry, which Judas left to go where he belongs.” ²⁶ Then they cast lots, and the lot fell to Matthias; so he was added to the eleven apostles.
+_The Fellowship of the Believers_
+⁴² They devoted themselves to the apostles’ teaching and to fellowship, to the breaking of bread and to prayer. ⁴³ Everyone was filled with awe at the many wonders and signs performed by the apostles. ⁴⁴ All the believers were together and had everything in common. ⁴⁵ They sold property and possessions to give to anyone who had need. ⁴⁶ Every day they continued to meet together in the temple courts. They broke bread in their homes and ate together with glad and sincere hearts, ⁴⁷ praising God and enjoying the favor of all the people. And the Lord added to their number daily those who were being saved.
 
 
-## Sermon Outline <br>
-- _Please refer to Ben for sermon notes_
+
+
+## Sermon Outline
+### The Holy Spirit Comes
+- Listen up
+- The sign of the times
+- Experiencing the End Now 
+
 
 
 
