@@ -31,40 +31,40 @@ _Peter Addresses the Crowd_
 <br>¹⁴ Then Peter stood up with the Eleven, raised his voice and addressed the crowd: “Fellow Jews and all of you who live in Jerusalem, let me explain this to you; listen carefully to what I say. ¹⁵ These people are not drunk, as you suppose. It’s only nine in the morning! ¹⁶ No, this is what was spoken by the prophet Joel:
 
 ¹⁷ “‘In the last days, God says,
-<br>&nbspI will pour out my Spirit on all people.
+<br>&nbsp;I will pour out my Spirit on all people.
 <br>Your sons and daughters will prophesy,
-<br>&nbspyour young men will see visions,
-<br>&nbspyour old men will dream dreams.
+<br>&nbsp;your young men will see visions,
+<br>&nbsp;your old men will dream dreams.
 <br>¹⁸ Even on my servants, both men and women,
-<br>&nbspI will pour out my Spirit in those days,
-<br>&nbspand they will prophesy.
+<br>&nbsp;I will pour out my Spirit in those days,
+<br>&nbsp;and they will prophesy.
 <br>¹⁹ I will show wonders in the heavens above
-<br>&nbspand signs on the earth below,
-<br>&nbspblood and fire and billows of smoke.
+<br>&nbsp;and signs on the earth below,
+<br>&nbsp;blood and fire and billows of smoke.
 <br>²⁰ The sun will be turned to darkness
-<br>&nbspand the moon to blood
-<br>&nbspbefore the coming of the great and glorious day of the Lord.
+<br>&nbsp;and the moon to blood
+<br>&nbsp;before the coming of the great and glorious day of the Lord.
 <br>²¹ And everyone who calls
-<br>&nbspon the name of the Lord will be saved.’ 
+<br>&nbsp;on the name of the Lord will be saved.’ 
 
 ²² “Fellow Israelites, listen to this: Jesus of Nazareth was a man accredited by God to you by miracles, wonders and signs, which God did among you through him, as you yourselves know. ²³ This man was handed over to you by God’s deliberate plan and foreknowledge; and you, with the help of wicked men, put him to death by nailing him to the cross. ²⁴ But God raised him from the dead, freeing him from the agony of death, because it was impossible for death to keep its hold on him. ²⁵ David said about him:
 
 <br>“‘I saw the Lord always before me.
-<br>&nbspBecause he is at my right hand,
-<br>&nbspI will not be shaken.
+<br>&nbsp;Because he is at my right hand,
+<br>&nbsp;I will not be shaken.
 <br>²⁶ Therefore my heart is glad and my tongue rejoices;
-<br>&nbspmy body also will rest in hope,
+<br>&nbsp;my body also will rest in hope,
 <br>²⁷ because you will not abandon me to the realm of the dead,
-<br>&nbspyou will not let your holy one see decay.
+<br>&nbsp;you will not let your holy one see decay.
 <br>²⁸ You have made known to me the paths of life;
-<br>&nbspyou will fill me with joy in your presence.’ 
+<br>&nbsp;you will fill me with joy in your presence.’ 
 
 ²⁹ “Fellow Israelites, I can tell you confidently that the patriarch David died and was buried, and his tomb is here to this day. ³⁰ But he was a prophet and knew that God had promised him on oath that he would place one of his descendants on his throne. ³¹ Seeing what was to come, he spoke of the resurrection of the Messiah, that he was not abandoned to the realm of the dead, nor did his body see decay. ³² God has raised this Jesus to life, and we are all witnesses of it. ³³ Exalted to the right hand of God, he has received from the Father the promised Holy Spirit and has poured out what you now see and hear. ³⁴ For David did not ascend to heaven, and yet he said,
 
 <br>“‘The Lord said to my Lord:
-<br>&nbsp“Sit at my right hand
+<br>&nbsp;“Sit at my right hand
 <br>³⁵ until I make your enemies
-<br>&nbspa footstool for your feet.”’ 
+<br>&nbsp;a footstool for your feet.”’ 
 
 ³⁶ “Therefore let all Israel be assured of this: God has made this Jesus, whom you crucified, both Lord and Messiah.”
 
