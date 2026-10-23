@@ -11,31 +11,8 @@ order: 5
 | Every Friday | The Bridge | 6:00PM - 7:30PM |
 
 ## General
-### Mission Partner Visit: Berkeley Life Centre
-
-On Sunday, 25th October, we have the privilege of welcoming Pastor Beejai Abrahams, Senior Pastor at Berkeley Life Centre. He will be sharing about the wonderful work God is doing in Berkeley, as well as the unique opportunities and challenges of ministry in a low socio-economic, marginalized community.<br>
-
-**Op Shop Clothing Drive:**
-<br>
-As part of his visit, we are collecting **summer clothing** to support their local Op Shop.
-- **Items Needed:** If you'd like a list of specific items that BLC is after, please click on the link.
-- **Drop-offs:** Please contact Ben on **0431 978 673** to arrange a drop-off time prior to 25th October.
-
-### An important announcement about Sunny’s return to work!
-Dear St George’s Church Family,
-<br>We want to share an important update regarding Sunny Yu and thank you for your ongoing prayers, love, and care for him and his family.
-<br>Sunny is continuing his recovery, and under the guidance and sign-off of his medical professionals, we have agreed upon a carefully staged return-to-work plan. To ensure his health and sustained rehabilitation are prioritised, his transition back will be gradual:   
-- Initial Staged Return: At this stage, Sunny will be working strictly two days a week in a remote, work-from-home capacity, focusing on behind-the-scenes administration.  This will be from 20/10/2026.
-- Church Services & Fellowship: You will see Sunny around church gatherings and services, but please note that he will be attending purely as a church member and brother in Christ, not in any official staff or ministerial capacity.
-- Caring for Sunny: We warmly ask everyone to respect this boundary. Working from home and limiting ministry duties is an important medical safeguard against over-exertion. When you see Sunny on Sundays or during church events, please welcome him, encourage him in fellowship, and enjoy catching up—but kindly refrain from asking him to handle operational, administrative, or church business matters.   
-
-<br>**Filling the Operational Gaps**
-To support our church operations while Sunny undertakes this phased return, the parish leadership is currently recruiting temporary casual staff to assist with church administration, Sunday site coordination, and property maintenance.
-<br>Please refer to our other communication about this. Once appointed, these team members will be on hand to assist with day-to-day practical needs.   
-<br>In the meantime, please direct all parish enquiries, booking requests, or property questions directly to 0404 604 725(M)  church_admin@sgh.church (E) otherwise to me or the Parish Wardens (Gilbert Wong, Cynthia Wang, and Raymond Kwok).   
-<br>Thank you for your ongoing partnership, understanding, and loving care as we support Sunny in this next phase of his recovery.   
-<br><br>Warmly in Christ,
-<br>Brian Tung, Rector, St George’s Hurstville
+### Praying with other Churches in Hurstville
+<img width="627" height="352" alt="image" src="https://github.com/user-attachments/assets/48ada584-e4a9-4716-b994-c453ce5b3e01" />
 
 ### Save the Date: Women for Women Event!
 <br>We’re coming together to support women in need through a mini-seminar on how to respond and care for those who are going through domestic abuse as Christian women, followed by care bags packing.
@@ -45,6 +22,15 @@ To support our church operations while Sunny undertakes this phased return, the 
 <br><br>Can’t make it or Want to contribute? We are collecting tote bags and beach bags to pack the supplies into. If you have any to spare, please hand them to your pastor or drop them at the office.
 <br><br>For more information, join the SGH ladies group chat or contact Priscilla Lin.
 <img width="1600" height="900" alt="image" src="https://github.com/user-attachments/assets/2d4bee90-a4fc-496c-9d51-e17eba7cd2d6" />
+
+### Stewardship 
+<br>The PC encourages all Church members to respect all staff and Church policies and procedures inclusive of the Stewardship Policy and the room booking system. The PC supports all staff in undertaking such reasonable <br>enforcement action as may be required to protect Church staff and assets and give effect to Church policies and procedures.
+
+##### Room bookings
+1. Kindly adhere to the Stewardship Policy and the room booking procedure. 
+2. Please follow the directions of the staff. 
+3. All room bookings request MUST be in writing, including all casual uses (unless a staff member is present with you). You can request a booking on our website or by sending a message to 0404 604 725. When you make a request you are agreeing to use the room in compliance with the policies of the Church and the User’s Covenant.  
+4. You may only use a room once you have received a written confirmation. 
 
 ### New to the Family? Join "The Bridge"
 If you’ve recently moved into the area or have started making this your home church after moving from another congregation, we’d love to officially welcome you.
