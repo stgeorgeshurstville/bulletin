@@ -12,7 +12,8 @@ order: 5
 
 ## General
 ### Praying with other Churches in Hurstville
-<img width="627" height="352" alt="image" src="https://github.com/user-attachments/assets/48ada584-e4a9-4716-b994-c453ce5b3e01" />
+<img width="623" height="350" alt="image" src="https://github.com/user-attachments/assets/393a8620-a83b-40d9-bbfa-b22d4c3017c9" />
+
 
 ### Save the Date: Women for Women Event!
 <br>We’re coming together to support women in need through a mini-seminar on how to respond and care for those who are going through domestic abuse as Christian women, followed by care bags packing.
