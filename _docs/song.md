@@ -4,140 +4,222 @@ order: 1
 ---
 
 ## 9:30am 
-1. King of Kings
-2. By Faith
-3. Let Your Kingdom Come
+1. His Mercy is More
+2. This is I Believe
+3. His Glory and My Good
+4. The Church’s One Foundation
 
 **Scroll below for 9:30am song lyrics**
 
 ## 4:00pm
-1. All creatures of our god and king
-2. By Faith
-3. How can they hear
+1. Your word
+2. Once for all
+3. The God we Love (Nicene Creed)
+4. You alone
    
 
 ## 9:30am Song Lyrics <br>
 
-### Song 1: King of Kings
-<br>In the darkness we were waiting
-<br>Without hope, without light
-<br>'Til from Heaven You came running
-<br>There was mercy in Your eyes
-<br>To fulfill the law and prophets
-<br>To a virgin came the word
-<br>From a throne of endless glory
-<br>To a cradle in the dirt
-<br><br>Praise the Father, praise the Son
-<br>Praise the Spirit, three in one
-<br>God of glory, Majesty
-<br>Praise forever to the King of Kings
-<br><br>To reveal the kingdom coming
-<br>And to reconcile the lost
-<br>To redeem the whole creation
-<br>You did not despise the cross
-<br>For even in your suffering
-<br>You saw to the other side
-<br>Knowing this was our salvation
-<br>Jesus for our sake you died
-<br><br>Praise the Father, praise the Son
-<br>Praise the Spirit, three in one
-<br>God of glory, Majesty
-<br>Praise forever to the King of Kings
-<br><br>And the morning that You rose
-<br>All of Heaven held its breath
-<br>'Til that stone was moved for good
-<br>For the Lamb had conquered death
-<br>And the dead rose from their tombs
-<br>And the angels stood in awe
-<br>For the souls of all who'd come
-<br>To the Father are restored
-<br><br>And the church of Christ was born
-<br>Then the Spirit lit the flame
-<br>Now this gospel truth of old
-<br>Shall not kneel, shall not faint
-<br>By His blood and in His name
-<br>In His freedom I am free
-<br>For the love of Jesus Christ
-<br>Who has resurrected me
-<br><br>Praise the Father, praise the Son
-<br>Praise the Spirit, three in one
-<br>God of glory, Majesty
-<br>Praise forever to the King of Kings
-<br><br>Praise forever to the King of Kings
+### Song 1: His Mercy is More<br>
+<br>What love could remember no wrongs we have done
+<br>Omniscient, all knowing, He counts not their sum
+<br>Thrown into a sea without bottom or shore
+<br>Our sins they are many, His mercy is more
+<br><br>Praise the Lord, His mercy is more
+<br>Stronger than darkness, new every morn
+<br>Our sins they are many, His mercy is more 
+<br><br>What patience would wait as we constantly roam
+<br>What Father, so tender, is calling us home
+<br>He welcomes the weakest, the vilest, the poor
+<br>Our sins they are many, His mercy is more 
+<br><br>Praise the Lord, His mercy is more
+<br>Stronger than darkness, new every morn
+<br>Our sins they are many, His mercy is more 
+<br><br>What riches of kindness He lavished on us
+<br>His blood was the payment, His life was the cost
+<br>We stood 'neath a debt we could never afford
+<br>Our sins they are many, His mercy is more
+<br><br>Praise the Lord, His mercy is more
+<br>Stronger than darkness, new every morn
+<br>Our sins they are many, His mercy is more
+<br><br>Praise the Lord, His mercy is more
+<br>Stronger than darkness, new every morn
+<br>Our sins they are many, His mercy is more
+<br>Our sins they are many, His mercy is mоre
+ 
+© 2018 Publishing, Getty Music Publishing, Getty Music Hymns And Songs
 
-
-
-### Song 2: By Faith
-<br>By faith we see the hand of God
-<br>In the light of creation's grand design
-<br>In the lives of those who prove His faithfulness
-<br>Who walk by faith and not by sight
-<br><br>By faith our fathers roamed the earth
-<br>With the power of His promise in their hearts
-<br>Of a holy city built by God's own hand
-<br>A place where peace and justice reign
-<br><br>We will stand as children of the promise
-<br>We will fix our eyes on Him our soul's reward
-<br>Till the race is finished and the work is done
-<br>We'll walk by faith and not by sight
-<br><br>By faith the prophets saw a day
-<br>When the longed-for Messiah would appear
-<br>With the power to break the chains of sin and death
-<br>And rise triumphant from the grave
-<br><br>By faith the church was called to go
-<br>In the power of the Spirit to the lost
-<br>To deliver captives and to preach good news
-<br>In every corner of the earth
-<br><br>We will stand as children of the promise
-<br>We will fix our eyes on Him our soul's reward
-<br>Till the race is finished and the work is done
-<br>We'll walk by faith and not by sight
-<br><br>By faith this mountain shall be moved
-<br>And the power of the gospel shall prevail
-<br>For we know in Christ all things are possible
-<br>For all who call upon His name
-<br><br>We will stand as children of the promise
-<br>We will fix our eyes on Him our soul’s reward
-<br>Till the race is finished and the work is done
-<br>We’ll walk by faith and not by sight
-<br>Ohh, we will stand as children of the promise
-<br>We will fix our eyes on Him our soul’s reward
-<br>Till the race is finished and the work is done
-<br>We’ll walk by faith and not by sight
-<br>We’ll walk by faith and not by sight
+CCLI 62951 (main copyright licence)
+CCLI 174113 (streaming licence)
 
 
 
 
-### Song 3: How can they hear
-<br>Jesus, I love you, King of all grace
-<br>I want the whole world to know your name
-<br>Friend to the sinner, mighty to save
-<br>Gave your body and blood
-<br>As a ransom for many
-<br><br>How can they hear if we’re silent?
-<br>How can they trust in a God they don’t know?
-<br>How can they love you, unless they can see
-<br>Your love in the way we love?
-<br><br>Jesus, you’re coming, there is a day
-<br>When we will answer for all we’ve done
-<br>Full of compassion, in mercy you wait
-<br>Let today be the day
-<br>Of salvation for many
-<br><br>How can they hear if we’re silent?
-<br>How can they trust in a God they don’t know?
-<br>How can they love you, unless they can see
-<br>Your love in the way we love?
-<br><br>Lord, when you speak, it’s like rain from heaven
-<br>Breathing new life into dusty ground
-<br>I will go out as your Spirit leads me
-<br>Open my mouth and I’ll speak your praise
-<br><br>How can they hear if we’re silent?
-<br>How can they trust in a God they don’t know?
-<br>How can they love you, unless they can see
-<br>Your love in the way we love?
+### Song 2: This is I Believe <br>
+<br>Our Father everlasting
+<br>The all creating One
+<br>God Almighty
+<br><br>Through Your Holy Spirit
+<br>Conceiving Christ the Son
+<br>Jesus our Saviour
+<br><br>I believe in God our Father
+<br>I believe in Christ the Son
+<br>I believe in the Holy Spirit
+<br><br>Our God is three in One
+<br>I believe in the resurrection
+<br>That we will rise again
+<br>For I believe in the Name of Jesus
+<br><br>Our judge and our defender
+<br>Suffered and crucified
+<br>Forgiveness is in You
+<br><br>Descended into darkness
+<br>You rose in glorious life
+<br>Forever seated high
+<br><br>I believe in God our Father
+<br>I believe in Christ the Son
+<br>I believe in the Holy Spirit
+<br><br>Our God is three in One
+<br>I believe in the resurrection
+<br>That we will rise again
+<br>For I believe in the Name of Jesus
+<br><br>I believe in You
+<br>I believe You rose again
+<br>I believe that Jesus Christ is Lord
+<br><br>I believe in You
+<br>I believe You rose again
+<br>I believe that Jesus Christ is Lord
+<br><br>I believe in God our Father
+<br>I believe in Christ the Son
+<br>I believe in the Holy Spirit
+<br><br>Our God is three in One
+<br>I believe in the resurrection
+<br>That we will rise again
+<br><br>For I believe in the Name of Jesus
+<br>For I believe in the Name of Jesus
+<br>For I believe in the Name of Jesus
+<br><br>I believe in life eternal
+<br>I believe in the virgin birth
+<br>I believe in the saints' communion
+<br>And in Your holy Church
+<br>I believe in the resurrection
+<br>When Jesus comes again
+<br>For I believe in the Name of Jesus
+<br><br>I believe in life eternal
+<br>I believe in the virgin birth
+<br>I believe in the saints' communion
+<br>And in Your holy Church
+<br><br>I believe in the resurrection
+<br>When Jesus comes again
+<br>For I believe in the Name of Jesus
+<br>For I believe in the Name of Jesus
+
+CLI 62951 @ Hillsong Worship
+CCLI 62951 (main copyright licence)
+CCLI 174113 (streaming licence)
 
 
 
+
+
+### Song 3: His Glory and My Good<br>
+<br>I have seen my Father's glory
+<br>Revealed in Jesus Christ
+<br>And the more that I behold Him
+<br>The more He satisfies
+<br>When I gaze upon His beauty
+<br>When I see Him as I should
+<br>Then my eyes are lifted upward
+<br>For His glory and my good
+<br><br>There is hope in every trial
+<br>For I can trust the Lord
+<br>He will turn my heart towards Him
+<br>And help me bear the thorn
+<br>So in faith I follow Jesus
+<br>On the road not understood
+<br>For I know that He is working
+<br>For His glory and my good
+<br><br>To our God be the glory
+<br>To our God be praise
+<br>He alone, the name above all names
+<br>I will boast ever only in the Lord my God
+<br>For I know His glory is my good
+<br><br>See the open arms of Jesus
+<br>Upon the cross that day
+<br>What they understood as weakness
+<br>Deserves my every praise
+<br>For the charge that was against me
+<br>It was nailed into the wood
+<br>Yes I know that He has saved me
+<br>For His glory and my good
+<br><br>To our God be the glory
+<br>To our God be praise
+<br>He alone, the name above all names
+<br>I will boast ever only in the Lord my God
+<br>For I know His glory is my good
+<br><br>Would I gladly be made nothing
+<br>That Christ would be made more
+<br>Would I seek the only kingdom
+<br>That far outweighs them all
+<br>I will stand before my Father
+<br>Where the faithful saints have stood
+<br>And with joy my heart shall praise Him
+<br>For His glory and my good
+<br>And with joy my heart shall praise Him
+<br>For His glory and my good
+<br><br>To our God be the glory
+<br>To our God be praise
+<br> He alone, the name above all names
+<br>I will boast ever only in the Lord my God
+<br>For I know His glory is my good
+<br><br>To our God be the glory
+<br>To our God be praise
+<br>He alone, the name above all names
+<br>I will boast ever only in the Lord my God
+<br>For I know His glory is my good
+<br>Yes I know His glory is my good
+ 
+© Integrity Music, 2024 City Alight
+CCLI 62951 (main copyright licence)
+CCLI 174113 (streaming licence)
+
+
+
+### Song 4: The Church’s One Foundation <br>
+<br>The Church's one foundation
+<br>Is Jesus Christ her Lord;
+<br>She is his new creation,
+<br>By spirit and the word;
+<br>From Heav'n he came and sought her
+<br>To be his holy bride;
+<br>With his own blood he bought her,
+<br>And for her life he died.
+<br><br>Elect from ev'ry nation,
+<br>Yet one o'er all the Earth,
+<br>Her charter of salvation
+<br>One Lord, one faith, one birth;
+<br>One holy name she blesses,
+<br>Partakes one holy food,
+<br>And to one hope she presses,
+<br>With ev'ry grace endued.
+<br><br>Mid toil and tribulation
+<br>And tumult of her war,
+<br>She waits the consummation
+<br>Of peace forever more;
+<br>Till with the vision glorious
+<br>Her longing eyes are blest,
+<br>And the great Church victorious
+<br>Shall be the Church at rest.
+<br>Yet she on earth hath union
+<br>With God the three in one
+<br>And mystic sweet communion
+<br>With those whose rest is won
+<br>O happy ones and holy
+<br>Lord, give us grace that we
+<br>Like them, the meek and lowly
+<br>On high may dwell with Thee
+
+Copyright © 1866 Public Domain, S.J.Stone
+CCLI 62951 (main copyright licence)
+CCLI 174113 (streaming licence)
 
 
