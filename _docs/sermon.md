@@ -28,7 +28,7 @@ Dear God, thank you for letting us know you. Please help us learn from your word
 ¹³ Some, however, made fun of them and said, “They have had too much wine.”
 
 _Peter Addresses the Crowd_
-¹⁴ Then Peter stood up with the Eleven, raised his voice and addressed the crowd: “Fellow Jews and all of you who live in Jerusalem, let me explain this to you; listen carefully to what I say. ¹⁵ These people are not drunk, as you suppose. It’s only nine in the morning! ¹⁶ No, this is what was spoken by the prophet Joel:
+<br>¹⁴ Then Peter stood up with the Eleven, raised his voice and addressed the crowd: “Fellow Jews and all of you who live in Jerusalem, let me explain this to you; listen carefully to what I say. ¹⁵ These people are not drunk, as you suppose. It’s only nine in the morning! ¹⁶ No, this is what was spoken by the prophet Joel:
 
 ¹⁷ “‘In the last days, God says,
 <br>&nbspI will pour out my Spirit on all people.
@@ -75,7 +75,7 @@ _Peter Addresses the Crowd_
 ⁴⁰ With many other words he warned them; and he pleaded with them, “Save yourselves from this corrupt generation.” ⁴¹ Those who accepted his message were baptized, and about three thousand were added to their number that day.
 
 _The Fellowship of the Believers_
-⁴² They devoted themselves to the apostles’ teaching and to fellowship, to the breaking of bread and to prayer. ⁴³ Everyone was filled with awe at the many wonders and signs performed by the apostles. ⁴⁴ All the believers were together and had everything in common. ⁴⁵ They sold property and possessions to give to anyone who had need. ⁴⁶ Every day they continued to meet together in the temple courts. They broke bread in their homes and ate together with glad and sincere hearts, ⁴⁷ praising God and enjoying the favor of all the people. And the Lord added to their number daily those who were being saved.
+<br>⁴² They devoted themselves to the apostles’ teaching and to fellowship, to the breaking of bread and to prayer. ⁴³ Everyone was filled with awe at the many wonders and signs performed by the apostles. ⁴⁴ All the believers were together and had everything in common. ⁴⁵ They sold property and possessions to give to anyone who had need. ⁴⁶ Every day they continued to meet together in the temple courts. They broke bread in their homes and ate together with glad and sincere hearts, ⁴⁷ praising God and enjoying the favor of all the people. And the Lord added to their number daily those who were being saved.
 
 
 
