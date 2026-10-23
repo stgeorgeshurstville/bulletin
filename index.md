@@ -10,8 +10,8 @@ title: Welcome
 [comment]: ----------------------------------------------------  
 
 ## "Acts series: Making Him Known"
-#### "Let our prayer come before you, O Lord, incline your ear to our cry.”
-##### Psalm 88: 2
+#### "May the Lord give peace to those who wait for him and may his prophets proclaim his name. His ears are open to the prayer of his servants.”
+##### Sirach 36: 15,16
 
 ---
 - We are gathering in person! For people who can’t gather in person, you can watch online [here](https://stgeorgeshurstville.org.au/sunday-english-online)
