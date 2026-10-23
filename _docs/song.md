@@ -209,7 +209,7 @@ CCLI 174113 (streaming licence)
 <br>Her longing eyes are blest,
 <br>And the great Church victorious
 <br>Shall be the Church at rest.
-<br>Yet she on earth hath union
+<br><br>Yet she on earth hath union
 <br>With God the three in one
 <br>And mystic sweet communion
 <br>With those whose rest is won
