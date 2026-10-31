@@ -11,26 +11,7 @@ Father in heaven, keep your household the church steadfast in faith and love, th
 | **Section** | **Content** |
 |--------------|-------------|
 | **From the Passage** |Sovereign Lord, Creator of the heavens and the earth, the sea, and everything in them:<br><br>
-<br>The nations rage, rulers plot in vain, and the world places its confidence in human strength and passing systems. Yet You have anointed Your Holy Servant Jesus, whom the world rejected and crucified, but whom You raised from the dead by Your mighty power. He is the Author of life, the stone rejected by the builders that has become the cornerstone.Salvation is found in no one else, and there is no other name under heaven given to mankind by which we must be saved.
-
-<br>Father, we come to You in that very name—not claiming our own godliness, righteousness, or wisdom, but trusting entirely in what belongs to Jesus Christ of Nazareth.
-
-<br>We have often been timid and anxious, hesitating to speak because we fear looking foolish or worry that our own strength is not enough. In those moments, remind us that the power has never been ours but Jesus’.
-
-<br>Guard our hearts against pride and presumption. Keep us from ever taking Your Son's name in vain—manipulating or coercing others, or dressing up our own selfish ambitions as Your will. In our ministries, our homes, and our workplaces, preserve us from spiritual arrogance. Make us humble followers and faithful servants.
-<br>And now, Lord, consider the hostility, indifference, and pressures of our world, and enable us, Your servants, to speak Your word with great boldness. Stretch out Your hand in mercy—to bring wholeness to the broken, forgiveness to the guilty, and life to the spiritually dead through the name of Your holy servant Jesus.
-
-<br>Grant us grace so that we cannot help but speak of what we have seen and heard, seeking only what is right in Your eyes, until every knee bows to the Name that is above every name.
-
-<br>It is in that name that we pray, confident that you will hear,
-<br>Amen.
-<br>
-<br>
-<br>
-<br>
-<br>
-
-<br>Amen.|
+<br>The nations rage, rulers plot in vain, and the world places its confidence in human strength and passing systems. Yet You have anointed Your Holy Servant Jesus, whom the world rejected and crucified, but whom You raised from the dead by Your mighty power. He is the Author of life, the stone rejected by the builders that has become the cornerstone.Salvation is found in no one else, and there is no other name under heaven given to mankind by which we must be saved.<br>Father, we come to You in that very name—not claiming our own godliness, righteousness, or wisdom, but trusting entirely in what belongs to Jesus Christ of Nazareth.<br>We have often been timid and anxious, hesitating to speak because we fear looking foolish or worry that our own strength is not enough. In those moments, remind us that the power has never been ours but Jesus’.<br>Guard our hearts against pride and presumption. Keep us from ever taking Your Son's name in vain—manipulating or coercing others, or dressing up our own selfish ambitions as Your will. In our ministries, our homes, and our workplaces, preserve us from spiritual arrogance. Make us humble followers and faithful servants.<br>And now, Lord, consider the hostility, indifference, and pressures of our world, and enable us, Your servants, to speak Your word with great boldness. Stretch out Your hand in mercy—to bring wholeness to the broken, forgiveness to the guilty, and life to the spiritually dead through the name of Your holy servant Jesus.<br>Grant us grace so that we cannot help but speak of what we have seen and heard, seeking only what is right in Your eyes, until every knee bows to the Name that is above every name.<br>It is in that name that we pray, confident that you will hear,<br>Amen.|
 | **Mission & Vision** | **For Growing Up** <br><br> _(Please reflect on your own prayer)_|
 | **Global & Nation** | **Nation** <br><br> _(Please reflect on your own prayer)_|
 | **Mission Partners** | **Berkerly Life Centre** <br><br> *General info: Berkeley Life Centre desires to see Jesus Christ transforming lives to transform a community. They minister in the south coast in an area where many people are from a low socioeconomic background. People are coming to faith and the church is making a positive impact.* <br><br>Our One Stop Central Op Shop<br>- Pray that God will bring new volunteers with willing hearts to serve others and share the hope of Jesus.<br>- Pray for strength, encouragement and unity for our current team as they faithfully serve the community.<br>- Pray that we will continue to prioritise the health, wellbeing and safety of every volunteer.<br><br>Our Church: Berkeley Life Centre (BLC)<br>- Pray that God continues to raise up new leaders, and give thanks for previous leaders who have returned, feeling called and equipped to serve in our church.<br>- Ask God to protect our church, congregation and the wider Berkeley community.<br> -Pray for wisdom, unity and discernment as important decisions are made over the coming months.<br> -Pray for our developing partnership with WEA Illawarra Community College and for opportunities to provide education and training in Berkeley.<br> -Pray for our new time of missional prayer before our Sunday meal. Ask God to unite us as we pray for the streets and households of Berkeley, grow our compassion for the community, open doors for gospel conversations and help us share the hope of Jesus|
