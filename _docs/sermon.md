@@ -69,7 +69,7 @@ and against his anointed one. ’
 
 
 ## Sermon Outline
-### The Holy Spirit Comes
+### Holy Spirit-Filled Fellowship of Believers
 - The difficult  conversation 
 - Jesus still saves 
 - In the name of Jesus Christ of Nazareth 
