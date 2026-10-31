@@ -20,206 +20,246 @@ order: 1
 
 ## 9:30am Song Lyrics <br>
 
-### Song 1: His Mercy is More<br>
-<br>What love could remember no wrongs we have done
-<br>Omniscient, all knowing, He counts not their sum
-<br>Thrown into a sea without bottom or shore
-<br>Our sins they are many, His mercy is more
-<br><br>Praise the Lord, His mercy is more
-<br>Stronger than darkness, new every morn
-<br>Our sins they are many, His mercy is more 
-<br><br>What patience would wait as we constantly roam
-<br>What Father, so tender, is calling us home
-<br>He welcomes the weakest, the vilest, the poor
-<br>Our sins they are many, His mercy is more 
-<br><br>Praise the Lord, His mercy is more
-<br>Stronger than darkness, new every morn
-<br>Our sins they are many, His mercy is more 
-<br><br>What riches of kindness He lavished on us
-<br>His blood was the payment, His life was the cost
-<br>We stood 'neath a debt we could never afford
-<br>Our sins they are many, His mercy is more
-<br><br>Praise the Lord, His mercy is more
-<br>Stronger than darkness, new every morn
-<br>Our sins they are many, His mercy is more
-<br><br>Praise the Lord, His mercy is more
-<br>Stronger than darkness, new every morn
-<br>Our sins they are many, His mercy is more
-<br>Our sins they are many, His mercy is mоre
- 
-© 2018 Publishing, Getty Music Publishing, Getty Music Hymns And Songs
+### Song 1: And Can It Be<br>
 
-CCLI 62951 (main copyright licence)
-CCLI 174113 (streaming licence)
+And can it be that I should gain<br>
+An int'rest in the Savior's blood?<br>
+Died He for me, who caused His pain?<br>
+For me, who Him to death pursued?<br>
+Amazing love! how can it be<br>
+That Thou, my God, should die for me<br>
+Amazing love! how can it be<br>
+That Thou, my God, should die for me<br><br>
+
+He left His Father's throne above<br>
+So free, so infinite His grace<br>
+Emptied Himself of all but love<br>
+And bled for Adam's helpless race<br>
+'Tis mercy all, immense and free<br>
+For, O my God, it found out me <br>
+'Tis mercy all, immense and free<br>
+For, O my God, it found out me<br><br>
+
+Long my imprisoned spirit lay<br>
+Fast bound in sin and nature's night<br>
+Thine eye diffused a quick'ning ray<br>
+I woke, the dungeon flamed with light<br>
+My chains fell off, my heart was free<br>
+I rose, went forth and followed Thee <br>
+My chains fell off, my heart was free<br>
+I rose, went forth and followed Thee <br><br>
+
+No condemnation now I dread<br>
+Jesus, and all in Him is mine<br>
+Alive in Him, my living Head<br>
+And clothed in righteousness divine<br>
+Bold I approach th'eternal throne<br>
+And claim the crown, through Christ my own<br>
+Bold I approach th'eternal throne<br>
+And claim the crown, through Christ my own<br><br>
 
 
-
-
-### Song 2: This is I Believe <br>
-<br>Our Father everlasting
-<br>The all creating One
-<br>God Almighty
-<br><br>Through Your Holy Spirit
-<br>Conceiving Christ the Son
-<br>Jesus our Saviour
-<br><br>I believe in God our Father
-<br>I believe in Christ the Son
-<br>I believe in the Holy Spirit
-<br><br>Our God is three in One
-<br>I believe in the resurrection
-<br>That we will rise again
-<br>For I believe in the Name of Jesus
-<br><br>Our judge and our defender
-<br>Suffered and crucified
-<br>Forgiveness is in You
-<br><br>Descended into darkness
-<br>You rose in glorious life
-<br>Forever seated high
-<br><br>I believe in God our Father
-<br>I believe in Christ the Son
-<br>I believe in the Holy Spirit
-<br><br>Our God is three in One
-<br>I believe in the resurrection
-<br>That we will rise again
-<br>For I believe in the Name of Jesus
-<br><br>I believe in You
-<br>I believe You rose again
-<br>I believe that Jesus Christ is Lord
-<br><br>I believe in You
-<br>I believe You rose again
-<br>I believe that Jesus Christ is Lord
-<br><br>I believe in God our Father
-<br>I believe in Christ the Son
-<br>I believe in the Holy Spirit
-<br><br>Our God is three in One
-<br>I believe in the resurrection
-<br>That we will rise again
-<br><br>For I believe in the Name of Jesus
-<br>For I believe in the Name of Jesus
-<br>For I believe in the Name of Jesus
-<br><br>I believe in life eternal
-<br>I believe in the virgin birth
-<br>I believe in the saints' communion
-<br>And in Your holy Church
-<br>I believe in the resurrection
-<br>When Jesus comes again
-<br>For I believe in the Name of Jesus
-<br><br>I believe in life eternal
-<br>I believe in the virgin birth
-<br>I believe in the saints' communion
-<br>And in Your holy Church
-<br><br>I believe in the resurrection
-<br>When Jesus comes again
-<br>For I believe in the Name of Jesus
-<br>For I believe in the Name of Jesus
-
-CLI 62951 @ Hillsong Worship
-CCLI 62951 (main copyright licence)
-CCLI 174113 (streaming licence)
+Charles Wesley (1738)<br>
+CCLI 62951 (main copyright licence)<br>
+CCLI 174113 (streaming licence)<br><br>
 
 
 
 
 
-### Song 3: His Glory and My Good<br>
-<br>I have seen my Father's glory
-<br>Revealed in Jesus Christ
-<br>And the more that I behold Him
-<br>The more He satisfies
-<br>When I gaze upon His beauty
-<br>When I see Him as I should
-<br>Then my eyes are lifted upward
-<br>For His glory and my good
-<br><br>There is hope in every trial
-<br>For I can trust the Lord
-<br>He will turn my heart towards Him
-<br>And help me bear the thorn
-<br>So in faith I follow Jesus
-<br>On the road not understood
-<br>For I know that He is working
-<br>For His glory and my good
-<br><br>To our God be the glory
-<br>To our God be praise
-<br>He alone, the name above all names
-<br>I will boast ever only in the Lord my God
-<br>For I know His glory is my good
-<br><br>See the open arms of Jesus
-<br>Upon the cross that day
-<br>What they understood as weakness
-<br>Deserves my every praise
-<br>For the charge that was against me
-<br>It was nailed into the wood
-<br>Yes I know that He has saved me
-<br>For His glory and my good
-<br><br>To our God be the glory
-<br>To our God be praise
-<br>He alone, the name above all names
-<br>I will boast ever only in the Lord my God
-<br>For I know His glory is my good
-<br><br>Would I gladly be made nothing
-<br>That Christ would be made more
-<br>Would I seek the only kingdom
-<br>That far outweighs them all
-<br>I will stand before my Father
-<br>Where the faithful saints have stood
-<br>And with joy my heart shall praise Him
-<br>For His glory and my good
-<br>And with joy my heart shall praise Him
-<br>For His glory and my good
-<br><br>To our God be the glory
-<br>To our God be praise
-<br> He alone, the name above all names
-<br>I will boast ever only in the Lord my God
-<br>For I know His glory is my good
-<br><br>To our God be the glory
-<br>To our God be praise
-<br>He alone, the name above all names
-<br>I will boast ever only in the Lord my God
-<br>For I know His glory is my good
-<br>Yes I know His glory is my good
- 
-© Integrity Music, 2024 City Alight
-CCLI 62951 (main copyright licence)
-CCLI 174113 (streaming licence)
+### Song 2: No Other Name<br>
+
+There is no other name<br>
+In heaven can be found<br>
+Through whom we are redeemed<br>
+Through whom your grace abounds<br>
+No other name can save<br>
+But Jesus Christ our Lord<br><br>
+
+There is no other name<br>
+In heaven can be found<br>
+Through whom we are redeemed<br>
+Through whom your grace abounds<br>
+No other name can save<br>
+But Jesus Christ our Lord<br><br>
+
+My joy in sorrowʼs tears<br>
+My strength to cast out fears<br>
+No other name but Jesus, Jesus<br>
+My hope in darkest night<br>
+My broken soulʼs delight<br>
+No other name but Jesus, Jesus!<br><br>
+
+There is no victory<br>
+But Jesus crucified<br>
+No other cure for sin<br>
+But that our Saviour died<br>
+No other hope we have<br>
+But that he rose again<br><br>
+
+My joy in sorrowʼs tears<br>
+My strength to cast out fears<br>
+No other name but Jesus, Jesus<br>
+My hope in darkest night<br>
+My broken soulʼs delight<br>
+No other name but Jesus, Jesus!<br><br>
+
+No other throne endures<br>
+No other song remains<br>
+But ʻWorthy is the Lamb<br>
+Who was for sinners slainʼ<br>
+
+When every knee shall bow<br>
+And tongue confess you are Lord,<br>
+You are Lord!<br><br>
+
+My joy in sorrowʼs tears<br>
+My strength to cast out fears<br>
+No other name but Jesus, Jesus<br>
+My hope in darkest night<br>
+My broken soulʼs delight<br>
+No other name but Jesus, Jesus!<br><br>
+
+
+© 2010 Trevor Hodge CCLI #5737284<br>
+CCLI 62951 (main copyright licence)<br>
+CCLI 174113 (streaming licence)<br><br>
 
 
 
-### Song 4: The Church’s One Foundation <br>
-<br>The Church's one foundation
-<br>Is Jesus Christ her Lord;
-<br>She is his new creation,
-<br>By spirit and the word;
-<br>From Heav'n he came and sought her
-<br>To be his holy bride;
-<br>With his own blood he bought her,
-<br>And for her life he died.
-<br><br>Elect from ev'ry nation,
-<br>Yet one o'er all the Earth,
-<br>Her charter of salvation
-<br>One Lord, one faith, one birth;
-<br>One holy name she blesses,
-<br>Partakes one holy food,
-<br>And to one hope she presses,
-<br>With ev'ry grace endued.
-<br><br>Mid toil and tribulation
-<br>And tumult of her war,
-<br>She waits the consummation
-<br>Of peace forever more;
-<br>Till with the vision glorious
-<br>Her longing eyes are blest,
-<br>And the great Church victorious
-<br>Shall be the Church at rest.
-<br><br>Yet she on earth hath union
-<br>With God the three in one
-<br>And mystic sweet communion
-<br>With those whose rest is won
-<br>O happy ones and holy
-<br>Lord, give us grace that we
-<br>Like them, the meek and lowly
-<br>On high may dwell with Thee
-
-Copyright © 1866 Public Domain, S.J.Stone
-CCLI 62951 (main copyright licence)
-CCLI 174113 (streaming licence)
 
 
+
+### Song 3: By faith, we see the hand of God<br>
+In the light of creation’s grand design;<br>
+In the lives of those who prove His faithfulness,<br>
+Who walk by faith and not by sight.<br><br>
+
+By faith, our fathers roamed the earth<br>
+With the power of His promise in their hearts<br>
+Of a holy city built by God’s own hand –<br>
+A place where peace and justice reign.<br><br>
+
+We will stand as children of the promise,<br>
+We will fix our eyes on Him, our soul’s reward.<br>
+Till the race is finished and the work is done,<br>
+We’ll walk by faith and not by sight.<br><br>
+
+By faith, the prophets saw a day<br>
+When the longed-for Messiah would appear<br>
+With the power to break the chains of sin and death,<br>
+And rise triumphant from the grave.<br><br>
+
+By faith, the church was called to go<br>
+In the power of the Spirit to the lost<br>
+To deliver captives and to preach good news,<br>
+In every corner of the earth.<br><br>
+
+We will stand as children of the promise,<br>
+We will fix our eyes on Him, our soul’s reward.<br>
+Till the race is finished and the work is done,<br>
+We’ll walk by faith and not by sight.<br><br>
+
+By faith, this mountain shall be moved<br>
+And the power of the gospel shall prevail,<br>
+For we know in Christ all things are possible<br>
+For all who call upon His name.<br><br>
+
+We will stand as children of the promise,<br>
+We will fix our eyes on Him, our soul’s reward.<br>
+Till the race is finished and the work is done,<br>
+We’ll walk by faith and not by sight.<br><br>
+
+We will stand as children of the promise,<br>
+We will fix our eyes on Him, our soul’s reward.<br>
+Till the race is finished and the work is done,<br>
+We’ll walk by faith and not by sight.<br><br>
+
+
+©2009 Getty Music Publishing, Thankyou Music. CCLI #5469291<br>
+CCLI 62951 (main copyright licence)<br>
+CCLI 174113 (streaming licence)<br><br>
+
+
+
+
+### Song 4: Abide<br>
+Verse 1<br>
+For my waking breath<br>
+For my daily bread<br>
+I depend on You<br>
+I depend on You<br>
+For the sun to rise<br>
+For my sleep at night<br>
+I depend on You<br>
+I depend on You<br><br>
+
+Chorus<br>
+You’re the way the truth and the life<br>
+You’re the well that never runs dry<br>
+I’m the branch and You are the vine<br>
+Draw me close and teach me to abide<br><br>
+
+Verse 1<br>
+For my waking breath<br>
+For my daily bread<br>
+I depend on You<br>
+I depend on You<br>
+For the sun to rise<br>
+For my sleep at night<br>
+I depend on You<br>
+I depend on You<br><br>
+
+Chorus<br>
+You’re the way the truth and the life<br>
+You’re the well that never runs dry<br>
+I’m the branch and You are the vine<br>
+Draw me close and teach me to abide<br>
+Be my strength my song in the night<br>
+Be my all my treasure my prize<br>
+I am Yours forever You’re mine<br>
+Draw me close and teach me to abide<br>
+
+Verse 2<br>
+Where the Spirit leads<br>
+As I’m following<br>
+I depend on You<br>
+I depend on You<br>
+For the victories<br>
+Still in front of me<br>
+I depend on You<br>
+I depend on You<br><br>
+
+Chorus<br>
+You’re the way the truth and the life<br>
+You’re the well that never runs dry<br>
+I’m the branch and You are the vine<br>
+Draw me close and teach me to abide<br>
+Be my strength my song in the night<br>
+Be my all my treasure my prize<br>
+I am Yours forever You’re mine<br>
+Draw me close and teach me to abide<br><br>
+
+Verse 3<br>
+When I pass through death<br>
+As I enter rest<br>
+I depend on You<br>
+I depend on You<br>
+For eternal life<br>
+To be raised with Christ<br>
+I depend on You, Jesus!<br>
+I depend on You<br><br>
+
+Chorus<br>
+You’re the way the truth and the life<br>
+You’re the well that never runs dry<br>
+I’m the branch and You are the vine<br>
+Draw me close and teach me to abide<br>
+Be my strength my song in the night<br>
+Be my all my treasure my prize<br>
+I am Yours forever You’re mine<br>
+Draw me close and teach me to abide<br><br>
+
+Aaron Keyes, Aaron Williams, Jake Fauber; CCLI: 7168160<br>
+CCLI 62951 (main copyright licence)<br>
+CCLI 174113 (streaming licence)<br><br>
