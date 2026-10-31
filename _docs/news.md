@@ -14,15 +14,11 @@ order: 5
 ### Praying with other Churches in Hurstville
 <img width="623" height="350" alt="image" src="https://github.com/user-attachments/assets/393a8620-a83b-40d9-bbfa-b22d4c3017c9" />
 
-
-### Save the Date: Women for Women Event!
-<br>We’re coming together to support women in need through a mini-seminar on how to respond and care for those who are going through domestic abuse as Christian women, followed by care bags packing.
-<br><br>When? Saturday, 31 October, 9:30-12pm
-<br>Where? C1 + C2
-<br>Hope to see you there!
-<br><br>Can’t make it or Want to contribute? We are collecting tote bags and beach bags to pack the supplies into. If you have any to spare, please hand them to your pastor or drop them at the office.
-<br><br>For more information, join the SGH ladies group chat or contact Priscilla Lin.
-<img width="1600" height="900" alt="image" src="https://github.com/user-attachments/assets/2d4bee90-a4fc-496c-9d51-e17eba7cd2d6" />
+### Reformation Sunday: The Unbroken Word and Unshakable Bride 
+<br>Each Reformation Sunday, we give thanks for the recovery of core biblical truths often summarized by the historic slogans: Scripture alone as our supreme authority, grace alone as the gift of life to the spiritually dead, received through faith alone, all anchored in the finished work of Christ alone. In the 16th century, these truths cut through religious corruption and traditions, restoring the comfort that our right standing before God is grounded entirely in Jesus’ sacrifice, not human merit or purchased indulgences.
+<br>Yet the struggle to uphold the truth of the gospel is not unique to the sixteenth century. In Acts 3 and 4, as Peter and John proclaimed the risen Christ and healed the lame man at the Temple gate, the religious authorities immediately pushed back. Unwilling to yield their authority, they arrested the apostles and commanded them to speak no more in Jesus’ name.
+<br>At every stage of history, the Word of God and the work of the Holy Spirit meet opposition. Worldly powers, religious institutions, and secular culture continually attempt to silence or dilute the truth. But Acts 4 reminds us of the church’s great comfort: human opposition cannot undo what God has determined to do. When threatened, the early believers did not despair or pray for mere safety—they prayed to the Sovereign Lord for boldness to keep proclaiming His Word.
+<br>Christ has never abandoned His Bride. Just as He sustained the early church against the threats of the Sanhedrin, and preserved His gospel through the upheaval of the Reformation, so He continues to watch over His church today. In the face of whatever pressures or cultural hostilities surround us, we rest confident that the gates of hell will not prevail against His people, and salvation remains anchored in the only name under heaven given to mankind: Jesus Christ.
 
 ### Stewardship 
 <br>The PC encourages all Church members to respect all staff and Church policies and procedures inclusive of the Stewardship Policy and the room booking system. The PC supports all staff in undertaking such reasonable <br>enforcement action as may be required to protect Church staff and assets and give effect to Church policies and procedures.
