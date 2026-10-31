@@ -4,13 +4,33 @@ order: 4
 ---
 
 ## Collect
-Almighty and merciful God, of your bountiful goodness keep us from everything that may hurt us, that we may be ready in body and soul cheerfully accomplish whatever you want us to do; through Jesus Christ our Lord. Amen.
+Father in heaven, keep your household the church steadfast in faith and love, that through your protection it may be free from all adversities, and may devoutly serve you in good works to the glory of your name; through Jesus Christ our Lord. Amen.
 
 ## Week B
 
 | **Section** | **Content** |
 |--------------|-------------|
-| **From the Passage** |Heavenly Father,<br><br>You are the holy God.<br><br>You sent Your beloved Son into the world. He was in the world, and though the world was made through Him, the world did not recognise Him. He came to that which was His own, but His own did not receive Him.<br><br>Like the world of Jesus’ day, we too have failed to receive Him. We have disregarded Him and ignored Him. We have treated Him as an afterthought, honoring Him with our lips while our hearts were far from Him.<br><br>Yet You have spoken Your final word on us and on the fate of this world by raising Jesus from the dead and crowning Him with all glory, honor, and might. And You have given us the sign of the Last Days by pouring out Your Holy Spirit into the world.<br>Thank You that there is still time to turn to You for mercy. Thank you that to all who receive Jesus—to all who call on His name—You give complete forgiveness and the incredible gift of Your Holy Spirit.<br><br>Thank You that Your Spirit is actively at work in our midst right now: transforming us, putting sin to death, and shaping us into the holy Bride of Christ. Thank You for the gift of Christian fellowship.<br><br>By the power of Your Spirit, according to Your good will, and for the sake of our Lord Jesus, make St George’s a foretaste of heaven on earth. Give us hearts willing to forsake all other loves for the surpassing worth of Jesus. Enable us to see the needs of our brothers and sisters and meet them with genuine gladness. And move us out in power to love our neighbors near and far, that they too may call on the name of Jesus and be welcomed into eternal fellowship with You.<br><br>We pray this in the name of our reigning King, Jesus Christ.<br>Amen.|
+| **From the Passage** |Sovereign Lord, Creator of the heavens and the earth, the sea, and everything in them:<br><br>
+<br>The nations rage, rulers plot in vain, and the world places its confidence in human strength and passing systems. Yet You have anointed Your Holy Servant Jesus, whom the world rejected and crucified, but whom You raised from the dead by Your mighty power. He is the Author of life, the stone rejected by the builders that has become the cornerstone.Salvation is found in no one else, and there is no other name under heaven given to mankind by which we must be saved.
+
+<br>Father, we come to You in that very name—not claiming our own godliness, righteousness, or wisdom, but trusting entirely in what belongs to Jesus Christ of Nazareth.
+
+<br>We have often been timid and anxious, hesitating to speak because we fear looking foolish or worry that our own strength is not enough. In those moments, remind us that the power has never been ours but Jesus’.
+
+<br>Guard our hearts against pride and presumption. Keep us from ever taking Your Son's name in vain—manipulating or coercing others, or dressing up our own selfish ambitions as Your will. In our ministries, our homes, and our workplaces, preserve us from spiritual arrogance. Make us humble followers and faithful servants.
+<br>And now, Lord, consider the hostility, indifference, and pressures of our world, and enable us, Your servants, to speak Your word with great boldness. Stretch out Your hand in mercy—to bring wholeness to the broken, forgiveness to the guilty, and life to the spiritually dead through the name of Your holy servant Jesus.
+
+<br>Grant us grace so that we cannot help but speak of what we have seen and heard, seeking only what is right in Your eyes, until every knee bows to the Name that is above every name.
+
+<br>It is in that name that we pray, confident that you will hear,
+<br>Amen.
+<br>
+<br>
+<br>
+<br>
+<br>
+
+<br>Amen.|
 | **Mission & Vision** | **For Growing Up** <br><br> _(Please reflect on your own prayer)_|
 | **Global & Nation** | **Nation** <br><br> _(Please reflect on your own prayer)_|
 | **Mission Partners** | **Berkerly Life Centre** <br><br> *General info: Berkeley Life Centre desires to see Jesus Christ transforming lives to transform a community. They minister in the south coast in an area where many people are from a low socioeconomic background. People are coming to faith and the church is making a positive impact.* <br><br>Our One Stop Central Op Shop<br>- Pray that God will bring new volunteers with willing hearts to serve others and share the hope of Jesus.<br>- Pray for strength, encouragement and unity for our current team as they faithfully serve the community.<br>- Pray that we will continue to prioritise the health, wellbeing and safety of every volunteer.<br><br>Our Church: Berkeley Life Centre (BLC)<br>- Pray that God continues to raise up new leaders, and give thanks for previous leaders who have returned, feeling called and equipped to serve in our church.<br>- Ask God to protect our church, congregation and the wider Berkeley community.<br> -Pray for wisdom, unity and discernment as important decisions are made over the coming months.<br> -Pray for our developing partnership with WEA Illawarra Community College and for opportunities to provide education and training in Berkeley.<br> -Pray for our new time of missional prayer before our Sunday meal. Ask God to unite us as we pray for the streets and households of Berkeley, grow our compassion for the community, open doors for gospel conversations and help us share the hope of Jesus|
