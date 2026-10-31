@@ -7,7 +7,6 @@ order: 5
 
 | Date | Event | Time |
 | ---- | ---- | ---- |
-| 12th of October | Kids Holiday Hub | 9:00AM - 3:00PM |
 | Every Friday | The Bridge | 6:00PM - 7:30PM |
 
 ## General
