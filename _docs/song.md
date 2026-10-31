@@ -4,18 +4,18 @@ order: 1
 ---
 
 ## 9:30am 
-1. His Mercy is More
-2. This is I Believe
-3. His Glory and My Good
-4. The Church’s One Foundation
+1. And Can It Be
+2. No Other Name
+3. By Faith 
+4. Abide
 
 **Scroll below for 9:30am song lyrics**
 
 ## 4:00pm
-1. Your word
-2. Once for all
-3. The God we Love (Nicene Creed)
-4. You alone
+1. This is Amazing Grace
+2. No Other Name
+3. By Faith
+4. All Glory Be to Christ
    
 
 ## 9:30am Song Lyrics <br>
