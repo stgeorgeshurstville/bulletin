@@ -10,9 +10,6 @@ order: 5
 | Every Friday | The Bridge | 6:00PM - 7:30PM |
 
 ## General
-### Praying with other Churches in Hurstville
-<img width="623" height="350" alt="image" src="https://github.com/user-attachments/assets/393a8620-a83b-40d9-bbfa-b22d4c3017c9" />
-
 ### Reformation Sunday: The Unbroken Word and Unshakable Bride 
 <br>Each Reformation Sunday, we give thanks for the recovery of core biblical truths often summarized by the historic slogans: Scripture alone as our supreme authority, grace alone as the gift of life to the spiritually dead, received through faith alone, all anchored in the finished work of Christ alone. In the 16th century, these truths cut through religious corruption and traditions, restoring the comfort that our right standing before God is grounded entirely in Jesus’ sacrifice, not human merit or purchased indulgences.
 <br>Yet the struggle to uphold the truth of the gospel is not unique to the sixteenth century. In Acts 3 and 4, as Peter and John proclaimed the risen Christ and healed the lame man at the Temple gate, the religious authorities immediately pushed back. Unwilling to yield their authority, they arrested the apostles and commanded them to speak no more in Jesus’ name.
