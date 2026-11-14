@@ -18,8 +18,8 @@ Our annual Christmas Market is coming soon! This is a wonderful opportunity for 
 We hope to welcome more local residents, friends and families to our church and share the joy and hope of Christmas with them.
 
 **Event Details:**
-* Date: Saturday 12 December 2026
-* Time: 4:30 pm – 7:30 pm
+* **Date:** Saturday 12 December 2026
+* **Time:** 4:30 pm – 7:30 pm
 
 **We encourage everyone to get involved by:**
 * Running a stall (Car Boot Sale or Food Stall)
@@ -28,8 +28,8 @@ We hope to welcome more local residents, friends and families to our church and 
 * Supporting our charity fundraising efforts to help those in need in our community
 
 **Stall Registration:**
-* Car Boot Sale: [here](https://forms.gle/z4aPfJMtZdakAjEk7)
-* Food & Drinks: [here](https://forms.gle/QPKFRpqaCXLUVXus6)
+* Car Boot Sale: [HERE](https://forms.gle/z4aPfJMtZdakAjEk7)
+* Food & Drinks: [HERE](https://forms.gle/QPKFRpqaCXLUVXus6)
 
 For more information, please contact Fiona Sit or Esther Wu or your congregation's pastor.
 Let's serve together and share Christ's love and blessings with our community this Christmas!
