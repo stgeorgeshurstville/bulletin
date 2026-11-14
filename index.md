@@ -10,8 +10,8 @@ title: Welcome
 [comment]: ----------------------------------------------------  
 
 ## "Acts series: Making Him Known"
-#### "Thus says the Lord, I know the plans I have for you, plans for your welfare and not for evil, to give you a future and a hope.”
-##### Jeremiah 29: 11
+#### "You are righteous, Lord, and right are your judgements. Deal with your servant according to your steadfast love."
+##### Psalm 119: 137,154
 
 ---
 - We are gathering in person! For people who can’t gather in person, you can watch online [here](https://stgeorgeshurstville.org.au/sunday-english-online)
