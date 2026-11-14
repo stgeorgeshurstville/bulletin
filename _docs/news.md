@@ -7,14 +7,32 @@ order: 5
 
 | Date | Event | Time |
 | ---- | ---- | ---- |
+| Saturday 12 December | 2026 Christmas Market | 4:30pm - 7:30pm |
 | Every Friday | The Bridge | 6:00PM - 7:30PM |
 
 ## General
-### Reformation Sunday: The Unbroken Word and Unshakable Bride 
-<br>Each Reformation Sunday, we give thanks for the recovery of core biblical truths often summarized by the historic slogans: Scripture alone as our supreme authority, grace alone as the gift of life to the spiritually dead, received through faith alone, all anchored in the finished work of Christ alone. In the 16th century, these truths cut through religious corruption and traditions, restoring the comfort that our right standing before God is grounded entirely in Jesus’ sacrifice, not human merit or purchased indulgences.
-<br>Yet the struggle to uphold the truth of the gospel is not unique to the sixteenth century. In Acts 3 and 4, as Peter and John proclaimed the risen Christ and healed the lame man at the Temple gate, the religious authorities immediately pushed back. Unwilling to yield their authority, they arrested the apostles and commanded them to speak no more in Jesus’ name.
-<br>At every stage of history, the Word of God and the work of the Holy Spirit meet opposition. Worldly powers, religious institutions, and secular culture continually attempt to silence or dilute the truth. But Acts 4 reminds us of the church’s great comfort: human opposition cannot undo what God has determined to do. When threatened, the early believers did not despair or pray for mere safety—they prayed to the Sovereign Lord for boldness to keep proclaiming His Word.
-<br>Christ has never abandoned His Bride. Just as He sustained the early church against the threats of the Sanhedrin, and preserved His gospel through the upheaval of the Reformation, so He continues to watch over His church today. In the face of whatever pressures or cultural hostilities surround us, we rest confident that the gates of hell will not prevail against His people, and salvation remains anchored in the only name under heaven given to mankind: Jesus Christ.
+### 2026 Christmas Market
+
+Our annual Christmas Market is coming soon! This is a wonderful opportunity for us to connect with our local community, share the gospel, show Christ's love through charity fundraising, and serve together as one church.
+
+We hope to welcome more local residents, friends and families to our church and share the joy and hope of Christmas with them.
+
+**Event Details:**
+* Date: Saturday 12 December 2026
+* Time: 4:30 pm – 7:30 pm
+
+**We encourage everyone to get involved by:**
+* Running a stall (Car Boot Sale or Food Stall)
+* Joining the outreach team or helping as a volunteer
+* Inviting family, friends and neighbours to come along
+* Supporting our charity fundraising efforts to help those in need in our community
+
+**Stall Registration:**
+* Car Boot Sale: [here](https://forms.gle/z4aPfJMtZdakAjEk7)
+* Food & Drinks: [here](https://forms.gle/QPKFRpqaCXLUVXus6)
+
+For more information, please contact Fiona Sit or Esther Wu or your congregation's pastor.
+Let's serve together and share Christ's love and blessings with our community this Christmas!
 
 ### Stewardship 
 <br>The PC encourages all Church members to respect all staff and Church policies and procedures inclusive of the Stewardship Policy and the room booking system. The PC supports all staff in undertaking such reasonable <br>enforcement action as may be required to protect Church staff and assets and give effect to Church policies and procedures.
@@ -22,7 +40,7 @@ order: 5
 ##### Room bookings
 1. Kindly adhere to the Stewardship Policy and the room booking procedure. 
 2. Please follow the directions of the staff. 
-3. All room bookings request MUST be in writing, including all casual uses (unless a staff member is present with you). You can request a booking on our website or by sending a message to 0404 604 725. When you make a request you are agreeing to use the room in compliance with the policies of the Church and the User’s Covenant.  
+3. All room bookings request **MUST be in writing**, including all casual uses (unless a staff member is present with you). You can request a booking on our website or by sending a message to 0404 604 725. When you make a request you are agreeing to use the room in compliance with the policies of the Church and the User’s Covenant.  
 4. You may only use a room once you have received a written confirmation. 
 
 ### New to the Family? Join "The Bridge"
