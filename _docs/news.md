@@ -56,7 +56,8 @@ Celebrate the joy of Christmas morning with us! Come and rejoice in the birth of
 
 The PC encourages all Church members to respect all staff and Church policies and procedures inclusive of the Stewardship Policy and the room booking system. The PC supports all staff in undertaking such reasonable <br>enforcement action as may be required to protect Church staff and assets and give effect to Church policies and procedures.
 
-##### Room bookings
+**Room bookings**
+
 1. Kindly adhere to the Stewardship Policy and the room booking procedure. 
 2. Please follow the directions of the staff. 
 3. All room bookings request **MUST be in writing**, including all casual uses (unless a staff member is present with you). You can request a booking on our website or by sending a message to 0404 604 725. When you make a request you are agreeing to use the room in compliance with the policies of the Church and the User’s Covenant.  
