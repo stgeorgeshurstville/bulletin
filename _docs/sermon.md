@@ -20,23 +20,78 @@ order: 2
 ### Prayer
 Dear God, thank you for letting us know you. Please help us learn from your word. Help us to serve and praise you. **Amen!**
 
-### Acts 6:1-7 (NIV)
-**The Choosing of the Seven**
+### Acts 6:8-7:60 (NIV)
 
-In those days when the number of disciples was increasing, the Hellenistic Jews among them complained against the Hebraic Jews because their widows were being overlooked in the daily distribution of food. ² So the Twelve gathered all the disciples together and said, “It would not be right for us to neglect the ministry of the word of God in order to wait on tables. ³ Brothers and sisters, choose seven men from among you who are known to be full of the Spirit and wisdom. We will turn this responsibility over to them ⁴ and will give our attention to prayer and the ministry of the word.”
+**Stephen Seized**
+⁸ Now Stephen, a man full of God’s grace and power, performed great wonders and signs among the people. ⁹ Opposition arose, however, from members of the Synagogue of the Freedmen (as it was called)—Jews of Cyrene and Alexandria as well as the provinces of Cilicia and Asia—who began to argue with Stephen. ¹⁰ But they could not stand up against the wisdom the Spirit gave him as he spoke.
 
-⁵ This proposal pleased the whole group. They chose Stephen, a man full of faith and of the Holy Spirit; also Philip, Procorus, Nicanor, Timon, Parmenas, and Nicolas from Antioch, a convert to Judaism. ⁶ They presented these men to the apostles, who prayed and laid their hands on them.
+¹¹ Then they secretly persuaded some men to say, “We have heard Stephen speak blasphemous words against Moses and against God.”
 
-⁷ So the word of God spread. The number of disciples in Jerusalem increased rapidly, and a large number of priests became obedient to the faith.
+¹² So they stirred up the people and the elders and the teachers of the law. They seized Stephen and brought him before the Sanhedrin. ¹³ They produced false witnesses, who testified, “This fellow never stops speaking against this holy place and against the law. ¹⁴ For we have heard him say that this Jesus of Nazareth will destroy this place and change the customs Moses handed down to us.”
+
+¹⁵ All who were sitting in the Sanhedrin looked intently at Stephen, and they saw that his face was like the face of an angel.
+
+**Stephen’s Speech to the Sanhedrin**
+¹ Then the high priest asked Stephen, “Are these charges true?”
+
+² To this he replied: “Brothers and fathers, listen to me! The God of glory appeared to our father Abraham while he was still in Mesopotamia, before he lived in Harran. ³ ‘Leave your country and your people,’ God said, ‘and go to the land I will show you.’ 
+
+⁴ “So he left the land of the Chaldeans and settled in Harran. After the death of his father, God sent him to this land where you are now living. ⁵ He gave him no inheritance here, not even enough ground to set his foot on. But God promised him that he and his descendants after him would possess the land, even though at that time Abraham had no child. ⁶ God spoke to him in this way: ‘For four hundred years your descendants will be strangers in a country not their own, and they will be enslaved and mistreated. ⁷ But I will punish the nation they serve as slaves,’ God said, ‘and afterward they will come out of that country and worship me in this place.’ ⁸ Then he gave Abraham the covenant of circumcision. And Abraham became the father of Isaac and circumcised him eight days after his birth. Later Isaac became the father of Jacob, and Jacob became the father of the twelve patriarchs.
+
+⁹ “Because the patriarchs were jealous of Joseph, they sold him as a slave into Egypt. But God was with him ¹⁰ and rescued him from all his troubles. He gave Joseph wisdom and enabled him to gain the goodwill of Pharaoh king of Egypt. So Pharaoh made him ruler over Egypt and all his palace.
+
+¹¹ “Then a famine struck all Egypt and Canaan, bringing great suffering, and our ancestors could not find food. ¹² When Jacob heard that there was grain in Egypt, he sent our forefathers on their first visit. ¹³ On their second visit, Joseph told his brothers who he was, and Pharaoh learned about Joseph’s family. ¹⁴ After this, Joseph sent for his father Jacob and his whole family, seventy-five in all. ¹⁵ Then Jacob went down to Egypt, where he and our ancestors died. ¹⁶ Their bodies were brought back to Shechem and placed in the tomb that Abraham had bought from the sons of Hamor at Shechem for a certain sum of money.
+
+¹⁷ “As the time drew near for God to fulfill his promise to Abraham, the number of our people in Egypt had greatly increased. ¹⁸ Then ‘a new king, to whom Joseph meant nothing, came to power in Egypt.’ ¹⁹ He dealt treacherously with our people and oppressed our ancestors by forcing them to throw out their newborn babies so that they would die.
+
+²⁰ “At that time Moses was born, and he was no ordinary child. For three months he was cared for by his family. ²¹ When he was placed outside, Pharaoh’s daughter took him and brought him up as her own son. ²² Moses was educated in all the wisdom of the Egyptians and was powerful in speech and action.
+
+²³ “When Moses was forty years old, he decided to visit his own people, the Israelites. ²⁴ He saw one of them being mistreated by an Egyptian, so he went to his defense and avenged him by killing the Egyptian. ²⁵ Moses thought that his own people would realize that God was using him to rescue them, but they did not. ²⁶ The next day Moses came upon two Israelites who were fighting. He tried to reconcile them by saying, ‘Men, you are brothers; why do you want to hurt each other?’
+
+²⁷ “But the man who was mistreating the other pushed Moses aside and said, ‘Who made you ruler and judge over us? ²⁸ Are you thinking of killing me as you killed the Egyptian yesterday?’ ²⁹ When Moses heard this, he fled to Midian, where he settled as a foreigner and had two sons.
+
+³⁰ “After forty years had passed, an angel appeared to Moses in the flames of a burning bush in the desert near Mount Sinai. ³¹ When he saw this, he was amazed at the sight. As he went over to get a closer look, he heard the Lord say: ³² ‘I am the God of your fathers, the God of Abraham, Isaac and Jacob.’ Moses trembled with fear and did not dare to look.
+
+³³ “Then the Lord said to him, ‘Take off your sandals, for the place where you are standing is holy ground. ³⁴ I have indeed seen the oppression of my people in Egypt. I have heard their groaning and have come down to set them free. Now come, I will send you back to Egypt.’ 
+
+³⁵ “This is the same Moses they had rejected with the words, ‘Who made you ruler and judge?’ He was sent to be their ruler and deliverer by God himself, through the angel who appeared to him in the bush. ³⁶ He led them out of Egypt and performed wonders and signs in Egypt, at the Red Sea and for forty years in the wilderness.
+
+³⁷ “This is the Moses who told the Israelites, ‘God will raise up for you a prophet like me from your own people.’ ³⁸ He was in the assembly in the wilderness, with the angel who spoke to him on Mount Sinai, and with our ancestors; and he received living words to pass on to us.
+
+³⁹ “But our ancestors refused to obey him. Instead, they rejected him and in their hearts turned back to Egypt. ⁴⁰ They told Aaron, ‘Make us gods who will go before us. As for this fellow Moses who led us out of Egypt—we don’t know what has happened to him!’ ⁴¹ That was the time they made an idol in the form of a calf. They brought sacrifices to it and reveled in what their own hands had made. ⁴² But God turned away from them and gave them over to the worship of the sun, moon and stars. This agrees with what is written in the book of the prophets:
+
+“‘Did you bring me sacrifices and offerings
+forty years in the wilderness, people of Israel?
+⁴³ You have taken up the tabernacle of Molek
+and the star of your god Rephan,
+the idols you made to worship.
+Therefore I will send you into exile’ beyond Babylon.
+⁴⁴ “Our ancestors had the tabernacle of the covenant law with them in the wilderness. It had been made as God directed Moses, according to the pattern he had seen. ⁴⁵ After receiving the tabernacle, our ancestors under Joshua brought it with them when they took the land from the nations God drove out before them. It remained in the land until the time of David, ⁴⁶ who enjoyed God’s favor and asked that he might provide a dwelling place for the God of Jacob. ⁴⁷ But it was Solomon who built a house for him.
+
+⁴⁸ “However, the Most High does not live in houses made by human hands. As the prophet says:
+
+⁴⁹ “‘Heaven is my throne,
+and the earth is my footstool.
+What kind of house will you build for me?
+says the Lord.
+Or where will my resting place be?
+⁵⁰ Has not my hand made all these things?’ 
+⁵¹ “You stiff-necked people! Your hearts and ears are still uncircumcised. You are just like your ancestors: You always resist the Holy Spirit! ⁵² Was there ever a prophet your ancestors did not persecute? They even killed those who predicted the coming of the Righteous One. And now you have betrayed and murdered him— ⁵³ you who have received the law that was given through angels but have not obeyed it.”
+
+**The Stoning of Stephen**
+⁵⁴ When the members of the Sanhedrin heard this, they were furious and gnashed their teeth at him. ⁵⁵ But Stephen, full of the Holy Spirit, looked up to heaven and saw the glory of God, and Jesus standing at the right hand of God. ⁵⁶ “Look,” he said, “I see heaven open and the Son of Man standing at the right hand of God.”
+
+⁵⁷ At this they covered their ears and, yelling at the top of their voices, they all rushed at him, ⁵⁸ dragged him out of the city and began to stone him. Meanwhile, the witnesses laid their coats at the feet of a young man named Saul.
+
+⁵⁹ While they were stoning him, Stephen prayed, “Lord Jesus, receive my spirit.” ⁶⁰ Then he fell on his knees and cried out, “Lord, do not hold this sin against them.” When he had said this, he fell asleep.
 
 ## Sermon Outline
-### The Gospel cannot be stopped
-- Jesus' unstoppable mission
-- The growth problem
-- What they were missing out on?
-- Who was missing out?
-- Jesus fixed it
-- The enemy's scheme
+### The Gospel Crosses Barriers
+- Why we we get angry
+- Stephen is attacking what's holy
+- God's place
+- God's people
+- Idols and the Spirit of Christ
 
 
 
