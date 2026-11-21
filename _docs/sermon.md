@@ -90,7 +90,7 @@ Or where will my resting place be?
 
 ## Sermon Outline
 ### The Gospel Crosses Barriers
-- Why we we get angry
+- Why we get angry
 - Stephen is attacking what's holy
 - God's place
 - God's people
