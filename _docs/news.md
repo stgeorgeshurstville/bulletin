@@ -8,10 +8,12 @@ order: 5
 | Date | Event | Time |
 | ---- | ---- | ---- |
 | Saturday 12 December | 2026 Christmas Market | 4:30pm - 7:30pm |
+| Sunday 13 December | Service of Carols & Lessons | 9:30am |
+| Friday 25 December | Christmas Day Service | 9:30am |
 | Every Friday | The Bridge | 6:00PM - 7:30PM |
 
 ## General
-### 2026 Christmas Market
+### Christmas Market
 
 Our annual Christmas Market is coming soon! This is a wonderful opportunity for us to connect with our local community, share the gospel, show Christ's love through charity fundraising, and serve together as one church.
 
@@ -33,6 +35,22 @@ We hope to welcome more local residents, friends and families to our church and 
 
 For more information, please contact Fiona Sit or Esther Wu or your congregation's pastor.
 Let's serve together and share Christ's love and blessings with our community this Christmas!
+
+### Service of Carols & Lessons
+
+Come and experience the story of Jesus' birth through the scriptures and traditional carols. Join us for a special morning of music, readings, and reflection as we prepare our hearts for Christmas. Family and friends are warmly invited to attend!
+
+* **When:** Sunday, December 13th at 9:30am
+* **Where:** St George's Hurstville Anglican Church (2 The Avenue, Hurstville)
+* **Parking:** Please park either on the street or in the council car park at 7–11 The Avenue.
+
+### Christmas Day Service
+
+Celebrate the joy of Christmas morning with us! Come and rejoice in the birth of Jesus with festive carols, scripture readings, and a brief Christmas message for the whole family. Whether you are a regular member or visiting for the holidays, we would love to welcome you.
+
+* **When:** Friday, December 25th at 9:30am
+* **Where:** The Chapel, St George's Hurstville Anglican Church (2 The Avenue, Hurstville)
+* **Parking:** Street parking or the council car park at 7–11 The Avenue.
 
 ### Stewardship 
 <br>The PC encourages all Church members to respect all staff and Church policies and procedures inclusive of the Stewardship Policy and the room booking system. The PC supports all staff in undertaking such reasonable <br>enforcement action as may be required to protect Church staff and assets and give effect to Church policies and procedures.
