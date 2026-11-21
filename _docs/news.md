@@ -53,7 +53,8 @@ Celebrate the joy of Christmas morning with us! Come and rejoice in the birth of
 * **Parking:** Street parking or the council car park at 7–11 The Avenue.
 
 ### Stewardship 
-<br>The PC encourages all Church members to respect all staff and Church policies and procedures inclusive of the Stewardship Policy and the room booking system. The PC supports all staff in undertaking such reasonable <br>enforcement action as may be required to protect Church staff and assets and give effect to Church policies and procedures.
+
+The PC encourages all Church members to respect all staff and Church policies and procedures inclusive of the Stewardship Policy and the room booking system. The PC supports all staff in undertaking such reasonable <br>enforcement action as may be required to protect Church staff and assets and give effect to Church policies and procedures.
 
 ##### Room bookings
 1. Kindly adhere to the Stewardship Policy and the room booking procedure. 
