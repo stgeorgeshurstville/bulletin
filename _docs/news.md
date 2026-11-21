@@ -44,7 +44,7 @@ Come and experience the story of Jesus' birth through the scriptures and traditi
 * **Where:** St George's Hurstville Anglican Church (2 The Avenue, Hurstville)
 * **Parking:** Please park either on the street or in the council car park at 7–11 The Avenue.
 
-### Christmas Day Service
+### 👑 Christmas Day Service
 
 Celebrate the joy of Christmas morning with us! Come and rejoice in the birth of Jesus with festive carols, scripture readings, and a brief Christmas message for the whole family. Whether you are a regular member or visiting for the holidays, we would love to welcome you.
 
