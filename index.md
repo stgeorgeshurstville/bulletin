@@ -10,9 +10,8 @@ title: Welcome
 [comment]: ----------------------------------------------------  
 
 ## "Acts series: Making Him Known"
-#### "You are righteous, Lord, and right are your judgements. Deal with your servant according to your steadfast love."
-##### Psalm 119: 137,154
-
+#### "Worthy is the Lamb who was slain to receive power and wealth and wisdom and might and honour and glory and blessing. To him be glory and dominion for ever and ever.” 	
+##### Revelations 5:12
 ---
 - We are gathering in person! For people who can’t gather in person, you can watch online [here](https://stgeorgeshurstville.org.au/sunday-english-online)
 - If you are a **guest**, please fill in this [survey](https://tinyurl.com/SGHACsurvey) so that we know how you found it and if there’s anything we can help with.
