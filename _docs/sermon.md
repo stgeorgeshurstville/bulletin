@@ -23,6 +23,7 @@ Dear God, thank you for letting us know you. Please help us learn from your word
 ### Acts 6:8-7:60 (NIV)
 
 **Stephen Seized**
+
 ⁸ Now Stephen, a man full of God’s grace and power, performed great wonders and signs among the people. ⁹ Opposition arose, however, from members of the Synagogue of the Freedmen (as it was called)—Jews of Cyrene and Alexandria as well as the provinces of Cilicia and Asia—who began to argue with Stephen. ¹⁰ But they could not stand up against the wisdom the Spirit gave him as he spoke.
 
 ¹¹ Then they secretly persuaded some men to say, “We have heard Stephen speak blasphemous words against Moses and against God.”
@@ -32,6 +33,7 @@ Dear God, thank you for letting us know you. Please help us learn from your word
 ¹⁵ All who were sitting in the Sanhedrin looked intently at Stephen, and they saw that his face was like the face of an angel.
 
 **Stephen’s Speech to the Sanhedrin**
+
 ¹ Then the high priest asked Stephen, “Are these charges true?”
 
 ² To this he replied: “Brothers and fathers, listen to me! The God of glory appeared to our father Abraham while he was still in Mesopotamia, before he lived in Harran. ³ ‘Leave your country and your people,’ God said, ‘and go to the land I will show you.’ 
@@ -79,6 +81,7 @@ Or where will my resting place be?
 ⁵¹ “You stiff-necked people! Your hearts and ears are still uncircumcised. You are just like your ancestors: You always resist the Holy Spirit! ⁵² Was there ever a prophet your ancestors did not persecute? They even killed those who predicted the coming of the Righteous One. And now you have betrayed and murdered him— ⁵³ you who have received the law that was given through angels but have not obeyed it.”
 
 **The Stoning of Stephen**
+
 ⁵⁴ When the members of the Sanhedrin heard this, they were furious and gnashed their teeth at him. ⁵⁵ But Stephen, full of the Holy Spirit, looked up to heaven and saw the glory of God, and Jesus standing at the right hand of God. ⁵⁶ “Look,” he said, “I see heaven open and the Son of Man standing at the right hand of God.”
 
 ⁵⁷ At this they covered their ears and, yelling at the top of their voices, they all rushed at him, ⁵⁸ dragged him out of the city and began to stone him. Meanwhile, the witnesses laid their coats at the feet of a young man named Saul.
